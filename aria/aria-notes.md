@@ -27,3 +27,23 @@ So he decides to create a startup around the idea, with a couple guys from the c
 Then the story flash forwards fifteen years, and we learn the programmer has a terminal form of cancer. He makes arrangements as to who is going to run the company after he's gone, and finally dies. After his death, the new CEO tries the best he can but step by step they start to ruin simple idea behind The Song (first thing they do is introduce ads) and make it less and less the original idea. The company declines and loses its cool, no more users, and goes bankrupt, is bought out.
 
 A coda ends the book, where five years later a young programmer is reading about old technologies and finds The Song App, and realizes it would be a good idea if the ads (and other crap) were stripped away.
+
+
+
+
+ARIA by Daniel Stepp
+
+Book One
+  1) The Idea
+  2) The Managers
+  3) The Meeting
+Book Two
+  1) The Team
+  2) The Investors
+  3) The Launch
+Book Three
+  1) The Diagnosis
+  2) The Aftermath
+  3) The Source
+
+Make each book have its own story arc, with rising tension, resolved in the final section. Do not use exposition unless necessary. Write scenes. The writing should be true to the world. Talk about code, about investment, use the terminology of the world to make it real, concrete. Forget the overall theme. Just tell the story in the tightest, most compelling way you can.
