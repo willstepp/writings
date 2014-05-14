@@ -11,7 +11,7 @@ One (10,000 words)
 Two (10,000 words)
   Starts his own company, develops the idea, releases it, is successful
 Three (10,000 words)
-  Dies from Cancer, others take over the company, the idea is corrupted with the best intentions, loses marketshare and is forgotten, yet a young intern sees the beauty in there somewhere, strips it out, and decides to strike out on his own, calling his idea Aria.
+  Dies from Cancer, but releases the algorithm on GitHub others take over the company, the idea is corrupted with the best intentions, loses marketshare and is forgotten, yet a young intern sees the beauty in there somewhere, strips it out, and decides to strike out on his own, calling his idea Aria. Forks it on GitHub.
 
 "There was something about it, simple and true."
 
