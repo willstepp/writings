@@ -47,3 +47,6 @@ Book Three
   3) The Source
 
 Make each book have its own story arc, with rising tension, resolved in the final section. Do not use exposition unless necessary. Write scenes. The writing should be true to the world. Talk about code, about investment, use the terminology of the world to make it real, concrete. Forget the overall theme. Just tell the story in the tightest, most compelling way you can.
+
+
+A friend from the start, the only one who understands, an unintentional betrayer in the end
