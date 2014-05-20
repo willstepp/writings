@@ -33,20 +33,32 @@ A coda ends the book, where five years later a young programmer is reading about
 
 ARIA by Daniel Stepp
 
-Book One
+First Movement
   1) The Idea
   2) The Managers
   3) The Meeting
-Book Two
+Interlude
+Second Movement
   1) The Team
   2) The Investors
   3) The Launch
-Book Three
+Interlude
+Third Movement
   1) The Diagnosis
-  2) The Aftermath
-  3) The Source
+  2) The Partner
+  3) The IPO
+Coda
 
 Make each book have its own story arc, with rising tension, resolved in the final section. Do not use exposition unless necessary. Write scenes. The writing should be true to the world. Talk about code, about investment, use the terminology of the world to make it real, concrete. Forget the overall theme. Just tell the story in the tightest, most compelling way you can.
 
 
 A friend from the start, the only one who understands, an unintentional betrayer in the end
+
+The company is on track to go IPO, not yet monetized in a meaningful way. Not sustainable.
+
+
+David did not believe in God or any kind of higher power. He had never considered it important. And yet in that moment he felt compelled to kneel beside his car in the parking lot.
+
+"Please. Don't take it from me. Not now. Let me live long enough to give it life. Let me live that long."
+
+Brandon found the code difficult to understand, but it was commented here and there. No watchers. Fascinating stuff. He named it The Song.

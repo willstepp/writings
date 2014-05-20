@@ -1,0 +1,3 @@
+JOSEPH THE SON by Daniel Stepp
+
+He was used to the darkness by now, finding his way in the darkness, without the use of his eyes. In the night a snow had come and blanketed the field behind the old house. It was morning now and yet still dark. He followed behind his grandfather and tried to match the footprints in the powder the old man left behind. Joseph in his winter coat, a scrap of shirt wrapped around his mouth and nose. He breathed through the material and felt his hot breath meet the cold air. He carried the hammer and some pegs and soon saw the edge of the woods and the broken fence.
