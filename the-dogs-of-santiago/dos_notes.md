@@ -310,3 +310,5 @@ I never understood atheism. Nothing observable spontaneously exists. Everyting c
 Fulbright conversation around soulmates vs biological reasons for mating, remove other conversation points unrelated
 
 At the end, remove the dog the boy plays with, end with detailed observation of the boy, ending with him embracing his mother. The boy is happy, cheerful, bringing joy to all whom he meets.
+
+A profound insight is contained in the most basic teaching of the Christian faith, hidden in plain sight, as the saying goes. The Golden Rule. It transcends the dogma of religions, accepted by most every religion, rationality there is. Simple, logical, rational. Do unto others as you would have them do unto you. That is, the authority to know right from wrong is something inherent to our nature, the ability to judge what is good and evil, right and wrong. Is in yourself. Not in the book, not in the dogma. Jesus is the Holy Savior. It is repeated in various other places in the Bible as well. In Luke.

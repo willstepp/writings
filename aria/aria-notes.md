@@ -59,6 +59,40 @@ The company is on track to go IPO, not yet monetized in a meaningful way. Not su
 
 David did not believe in God or any kind of higher power. He had never considered it important. And yet in that moment he felt compelled to kneel beside his car in the parking lot.
 
-"Please. Don't take it from me. Not now. Let me live long enough to give it life. Let me live that long."
+"Please. Don't take it from me. Not now. Let me live so that I can give it life. Let me live that long."
 
 Brandon found the code difficult to understand, but it was commented here and there. No watchers. Fascinating stuff. He named it The Song.
+
+He uses the Aria stream on his friend and understood that he would be betrayed.
+His partner betrays him, commits suicide after visiting the grave, "Forgive me."
+
+His friend goes behind his back, integrates ads for demo purposes. He experiences it, a toothpaste ad, and during the remainder of the story buys toothpaste at random.
+
+Elliptical storytelling, lean, minimal. Be smart, authentic, concise.
+
+At night he would try to understand how it worked, a memory imprint on the data streams. Perhaps the native americans were right all along, and your spirit somehow is captured. But soon he would reach the limit of his knowledge, like hitting a wall. Leave it to smarter men and women to figure out.
+
+
+
+‘Be careful not to wager too much before you’re certain it will succeed’.
+‘If this wasn’t your first startup, you’d make fewer mistakes.’
+‘When you hit bumps, successful entrepreneurs keep going’.
+Either my idea was insane — too far out there, crazy, bizarre. “Why would anyone buy that?”
+
+Or, it was old news — been done before, isn’t that special. “Don’t pants like that exist, and aren’t they called Dockers?”
+
+But there is one comment that has forever stuck with me. A conversation that went like this:
+
+Me: “I want to make a new kind of wrinkle-free pants that are cool instead of stodgy and are so wrinkle free they can be worn for multiple days in a row without care.”
+
+My friend: “That’s your idea?”
+
+“Yeah, and I’m super passionate about it, too.”
+
+“Do you have another 59 ideas lined up?”
+
+“No, what do you mean?”
+
+“Well, I read it takes the average entrepreneur 60 tries before they’re successful, so I’m wondering what you plan to do next?”
+
+OUCH!
