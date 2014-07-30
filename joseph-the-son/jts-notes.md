@@ -7,4 +7,29 @@ A story about a boy who's deepest wish is for his estranged father to return hom
 
 Modern technology: cars, bars, television (and yet indistinct, no computers)
 
-The feeling of a mild summer twilight, the time of lighting bugs, the smell of grass and flowers
+The feeling of a mild summer twilight, the time of lighting bugs, the smell of grass and flowers.
+
+Joseph finds his grandfather at rest next to a log. Sits on his lap. They stare at the water for a long time. His grandfather presses his cheek against his own. Body odor and stale beer, sweat.
+
+"What do you feel?"
+
+"I feel whiskers."
+
+"No, what do you feel?"
+
+"Love."
+
+
+
+"He won't be coming back, Joseph. I need you to understand that."
+"He will."
+
+
+
+A new knife.
+"Tell no one."
+
+
+"If you talk about it, it goes away."
+"What does?"
+"I don't know."
