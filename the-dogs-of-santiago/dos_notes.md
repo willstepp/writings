@@ -314,3 +314,5 @@ At the end, remove the dog the boy plays with, end with detailed observation of 
 A profound insight is contained in the most basic teaching of the Christian faith, hidden in plain sight, as the saying goes. The Golden Rule. It transcends the dogma of religions, accepted by most every religion, rationality there is. Simple, logical, rational. Do unto others as you would have them do unto you. That is, the authority to know right from wrong is something inherent to our nature, the ability to judge what is good and evil, right and wrong. Is in yourself. Not in the book, not in the dogma. Jesus is the Holy Savior and all that nonsense. It is repeated in various other places in the Bible as well. In Luke.
 
 At the hotel and movies and restaurant, he watches the other people, does what they do. Not sure why.
+
+After the first night, wakes up with a physical feeling of loneliness and isolation. A prison that he can't escape from.
