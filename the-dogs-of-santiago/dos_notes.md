@@ -316,3 +316,5 @@ A profound insight is contained in the most basic teaching of the Christian fait
 At the hotel and movies and restaurant, he watches the other people, does what they do. Not sure why.
 
 After the first night, wakes up with a physical feeling of loneliness and isolation. A prison that he can't escape from.
+
+A sentence acknowledging that his gluttony and inebriation was some kind of subconscious numbing, and that eventually he would have to deal with the Constanza situation.

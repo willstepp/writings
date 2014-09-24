@@ -131,13 +131,15 @@ As they approached the servers, Derek and Will both order the pasta and sat down
 
 "Stop fucking around, I'm serious."
 
-"How can I not fuck around, what you're saying isn't logical. Why would you convert a sound file to an image? Conceptually it doesn't make sense. It's like asking me, why is the grass red?"
+"How can I not fuck around, what you're saying isn't logical. Why would you convert a sound file to an image? Conceptually it doesn't make sense. It's like asking me, why is the grass blue, why is the sky green?”
 
 "Just bear with me."
 
 "The grass is green."
 
 "I know it is, humor me."
+
+“The sky is blue.”
 
 "Well, assuming you don't care what the output is, which is the biggest red flag in my opinion, as long as the converter understood how to parse the source into something that can be translated into the target, you could do it in realtime, as a stream at least. Modern computers are that fast for sure, even a smartphone. If we're talking just images, sound, video."
 
@@ -181,3 +183,5 @@ A few hours later, at 9pm, he had something resembling a proof of concept. It co
 He held his breath as he started the program with a test JPG, his cat Myshkin when he was just born, asleep on Will's knee. The program ran quick. Not doing much at this point it was expected. He could control what format the final output was. He went through sound and video. Both came out like noise, a jumbled chaotic mess. And yet, he had done it. It worked, somewhat.
 
 Will sat back in his chair. The cat rose from behind the computer and bowed in front of Will, wanting to be petted. Will stroked his neck and ears. Myshkin closed his eyes with pleasure.
+
+“He lived in a world of blue grass and green skies.”
