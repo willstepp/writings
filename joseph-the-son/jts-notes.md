@@ -46,7 +46,7 @@ What is the narrative pull?
 
   The visitor, the scene with the dog has already happened.
   Jacob, Minister retells the story.
-  Invites them to the 4th Party.
+  Invites them to the Fall Festival.
   "You're not like them other boys," he spoke, "Your heart is good."
   "I understand you."
   "Yes. I see by your eyes that you do."
@@ -65,12 +65,17 @@ Has to go work for Minister Jacob each afternoon with the others. Arrives at wor
 The large story outside the main, not well understood by Joseph. A corruption in the church, an affair, a murder, skipping town with the money raised to rebuild their house. A fire.
 
 At the funeral:
-There ain't no more money, darlin. We did what we could at the time, you know. You understand. Times are hard for everybody these days. In this economy and all. You'll be fine. And you're always welcome at the congregation. Jacob was a charismatic man. But he turned out rotten. They found him in a hotel in Alabama, shot himself. Good lord.
+There ain't no more money, darlin. We did what we could, you know, but circumstances change. You understand. Times are hard for everybody. You ain't the only ones. In this economy and all. You'll be fine. And you're always welcome at the congregation. Jacob was a charismatic man. But he turned out rotten. They found him in a hotel in Alabama, shot himself. Good lord.
 
 What's going to happen to us?
 I don't know, baby.
-Goddamn this world. Goddamn it all to hell.
+Goddamn this world.
 
 A promise, many promises built on other promises.
 
 Joseph picks up his grandfather's morning chores, following the funeral, lighting the furnace.
+
+
+The father returns home at the end of the book, in the morning, lights the furnace, sits on the porch and looks towards the road, mirroring when Joseph cleaned the room for his brother.
+
+Grandfather confuses Joseph for Will, his son. Tells him to return.
