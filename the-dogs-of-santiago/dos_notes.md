@@ -241,6 +241,8 @@ Why did you get out of the cab and escort that man to San Bernardo?
 
 Something evil and unclean had depressed my soul, was suffocating it. Maybe it was the drugs, my mood, the riots, sleeping with the prostitute. I felt a sadness not directly tied to any of those events. I felt like crying, but I couldn't cry. I felt something like a physical desire to perform an act of goodness with my own two hands, to do something decent for somebody else. I felt like doing a think like that would make those feelings of sadness inside me go away. That's as much as I can explain it. I'm not saying it right. I don't know how to say it right.
 
+****Explains the feeling of darkness like how a squall appears to subsume a ship in rough seas.*******
+
 An old man scrubbing vandalism off a church
 
 
