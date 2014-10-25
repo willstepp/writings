@@ -65,7 +65,7 @@ Has to go work for Minister Jacob each afternoon with the others. Arrives at wor
 The large story outside the main, not well understood by Joseph. A corruption in the church, an affair, a murder, skipping town with the money raised to rebuild their house. A fire.
 
 At the funeral:
-There ain't no more money, darlin. We did what we could, you know, but circumstances change. You understand. Times are hard for everybody. You ain't the only ones. In this economy and all. You'll be fine. And you're always welcome at the congregation. Jacob was a charismatic man. But he turned out rotten. They found him in a hotel in Alabama, shot himself. Good lord.
+There ain't no more money, darlin. We did what we could, you know, but circumstances change. You understand. Times are hard for everybody. You ain't the only ones. In this economy. You'll be fine. And you're always welcome at the congregation. Jacob was a charismatic man. But he turned out rotten. They found him in a hotel in Alabama, shot himself. Good lord.
 
 What's going to happen to us?
 I don't know, baby.
@@ -79,3 +79,8 @@ Joseph picks up his grandfather's morning chores, following the funeral, lightin
 The father returns home at the end of the book, in the morning, lights the furnace, sits on the porch and looks towards the road, mirroring when Joseph cleaned the room for his brother.
 
 Grandfather confuses Joseph for Will, his son. Tells him to return.
+
+
+Like most mornings Joseph sat alone on the porch, feet dangling from a rocking chair that no longer worked because one of the rockers broke off, the wood dry and old, brittle. Grandpa determined to fix it one day, "By God", with an old tire tread cut into a crescent and some baling wire, and it still didn't rock. But at least you could sit in it. And grandpa was proud of his ingenuity and tried to work it into conversations not remotely about rocking chairs.
+
+He liked to sit out there because you could see a long way, clear to the mountain ridge somedays, blue and shadowy in the distance.
