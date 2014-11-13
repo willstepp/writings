@@ -84,3 +84,72 @@ Grandfather confuses Joseph for Will, his son. Tells him to return.
 Like most mornings Joseph sat alone on the porch, feet dangling from a rocking chair that no longer worked because one of the rockers broke off, the wood dry and old, brittle. Grandpa determined to fix it one day, "By God", with an old tire tread cut into a crescent and some baling wire, and it still didn't rock. But at least you could sit in it. And grandpa was proud of his ingenuity and tried to work it into conversations not remotely about rocking chairs.
 
 He liked to sit out there because you could see a long way, clear to the mountain ridge somedays, blue and shadowy in the distance.
+
+
+
+Outline
+===============
+
+Joseph and Grandfather repair the fence one afternoon in the snow, packed down. Deep in winter.
+
+JOSEPH THE SON
+
+Grandfather wakes before everyone else, lights the stove to warm the house, makes coffee, biscuits. Watches the sun come up through the window.
+
+A visit by Minister Jacob. Joseph gazes lovingly through the outside window at his family indoors, where it was warm. A longing deep within. Something so far away from him. Tears came to his eyes.
+
+At work on Jacob’s farm.
+	Jesse
+	Hard Labor
+
+The family goes to Wednesday Church. Fundraiser.
+	Sermon
+	Country Feast
+
+The dead chickens are discovered.
+
+Joseph and his brother track the culprit.
+
+Minister Jacob comes over for dinner. Argument with grandpa. No God. Drunk.
+
+Grandfather whips Noah and Joseph cleans the room.
+
+Joseph receives a new knife, told not to tell anyone.
+
+Grandfather takes Joseph and Noah out to feed the horses apples, fence breaks. We can fix it tomorrow.
+
+Grandfather gives Joseph the old knife he wanted. “Come back to your family, Will. They need you now. That precious boy Joseph needs you.” Joseph cries. Buries the new one he received from Minister Jacob in shame.
+
+Joseph and Noah trace the tracks to an old barn. Jason and other boys have already found the culprit, the old dog. Joseph defends it by repeating what Jacob told them all about God’s grace. They tell him Jacob paid them to hang it for killing the chickens. Joseph struck by Jesse but does not retaliate. Brother cries. They keep the dog.
+
+Mother is crying. They somehow overhear the Minister has killed the junior pastor at the behest of the secretary who he was having an affair with. On the run with money they had raised to fix Joseph family’s roof. $8000 total.
+
+Joseph tends to his dog in a makeshift dog house. “You are mine forever.” The dog runs off, past the field, into the woods. Joseph follows him. Ends up at a lake. His grandfather is there. He sits on his lap. “Minister Jacob ran off with the money. He killed a man.” “It doesn’t matter.” “What do you feel?” “Whiskers.” “No. What do you feel?” “Love.”
+
+“Joseph, your grandfather has passed away.”
+
+Funeral. The first snow is falling. Buried next to his love. They learn Jacob shot himself in a Motel 6 outside Birmingham. Left a note that said, “Forgive them, father, for they know not what they do.”
+
+In the early morning hours, Will enters the house, using an old key. He brings in wood for the stove and kindles it. Make a pot of coffee, and waits for the sun to rise.
+
+
+Main Characters
+===================
+
+Joseph - Awaits the return of his father, unspoken and yet understood by all. Minister Jacob becomes father figure.
+
+Noah - Does not respect or obey his brother, always fighting, arguing, calling him stupid. Is humbled when Joseph wins the fight with Jesse by not retaliating. “Our dad sucks. He’s a motherfucker.”
+
+Mother (Beth) - Trying to hold things together, starts a new life, falls in love with the promises that Minister Jacob makes. I give up. God damn this world.
+
+Grandfather (Kenneth) - Living in a state of dementia. Wants to rebuild the house as it has fallen into disrepair. No God, but reveals the mystery.
+
+Father (Will) - The returner.
+
+Minister Jacob
+
+Each of the main characters needs their own story arc, with its own rises and falls. In this book, the plot should be light and unimposing, creeping in around scenes that are more about the characters. Moments, moods, memories. Suggested rather than told.
+
+The words that Jesus said are not true because he spoke them. Truth is not truth because who speaks the words. Lies are not lies because they come from the mouth of a liar.
+
+Minister Jacob tells the story of the house he never built.
