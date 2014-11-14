@@ -96,7 +96,7 @@ JOSEPH THE SON
 
 Grandfather wakes before everyone else, lights the stove to warm the house, makes coffee, biscuits. Watches the sun come up through the window.
 
-A visit by Minister Jacob. Joseph gazes lovingly through the outside window at his family indoors, where it was warm. A longing deep within. Something so far away from him. Tears came to his eyes.
+A visit by Minister Jacob. Joseph gazes lovingly through the outside window at his family indoors, where it was warm. Decorating a small pine with popcorn. A longing deep within. Something so far away from him. Tears came to his eyes. He somehow knew it would always be so. That it was not something he could possess. And it filled his heart with sadness. At least that was how his mind understood it.
 
 At work on Jacob’s farm.
 	Jesse
@@ -111,6 +111,12 @@ The dead chickens are discovered.
 Joseph and his brother track the culprit.
 
 Minister Jacob comes over for dinner. Argument with grandpa. No God. Drunk.
+
+Jacob at Dinner table: The heart deceives. A common belief. Yet I am not so sure. Do unto others as you would have them do unto you. So, you see. The capacity to judge right and wrong is inside every person. If this were not so then there would be no golden rule.
+
+You look like Jesus. Except you’re bald.
+
+That’s why I wear this hat. You like it?
 
 Grandfather whips Noah and Joseph cleans the room.
 
@@ -138,11 +144,11 @@ Main Characters
 
 Joseph - Awaits the return of his father, unspoken and yet understood by all. Minister Jacob becomes father figure.
 
-Noah - Does not respect or obey his brother, always fighting, arguing, calling him stupid. Is humbled when Joseph wins the fight with Jesse by not retaliating. “Our dad sucks. He’s a motherfucker.”
+Noah - Does not respect or obey his brother, always fighting, arguing, calling him stupid. Is humbled when Joseph wins the fight with Jesse by not retaliating. “Our dad is a cocksucker.”
 
-Mother (Beth) - Trying to hold things together, starts a new life, falls in love with the promises that Minister Jacob makes. I give up. God damn this world.
+Mother (Beth) - Trying to hold things together, starts a new life, falls in love with the promises that Minister Jacob makes. I give up. I don’t know what to do anymore. God damn. God damn this world.
 
-Grandfather (Kenneth) - Living in a state of dementia. Wants to rebuild the house as it has fallen into disrepair. No God, but reveals the mystery.
+Grandfather (Kenneth) - Living in a state of dementia. Wants to rebuild the house as it has fallen into disrepair. No belief in God, but reveals the mystery to Joseph. Beth calls him “Mr. Kenneth”
 
 Father (Will) - The returner.
 
@@ -151,5 +157,7 @@ Minister Jacob
 Each of the main characters needs their own story arc, with its own rises and falls. In this book, the plot should be light and unimposing, creeping in around scenes that are more about the characters. Moments, moods, memories. Suggested rather than told.
 
 The words that Jesus said are not true because he spoke them. Truth is not truth because who speaks the words. Lies are not lies because they come from the mouth of a liar.
+
+The lie is not the lie because it proceeds from the mouth of a liar. The truth is not the truth because it proceeds from the mouth of a truth-teller.
 
 Minister Jacob tells the story of the house he never built.
