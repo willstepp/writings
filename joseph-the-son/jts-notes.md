@@ -7,8 +7,6 @@ A story about a boy who's deepest wish is for his estranged father to return hom
 
 Modern technology: cars, bars, television (and yet indistinct, no computers)
 
-The feeling of a mild summer twilight, the time of lighting bugs, the smell of grass and flowers.
-
 Joseph finds his grandfather at rest next to a log. Sits on his lap. They stare at the water for a long time. His grandfather presses his cheek against his own. Body odor and stale beer, sweat.
 
 "What do you feel?"
@@ -51,7 +49,7 @@ What is the narrative pull?
   "I understand you."
   "Yes. I see by your eyes that you do."
 
-Joseph sat on the porch and gazed down the dirt road. A man appeared from behind a row of pines that canopied the dirt road. They all came that way, car parked at the edge where it was still paved, where the mailboxes were. There was idle talk of pitching in and graveling it or maybe even getting the county to pave it one of these days. But that was just talk.
+Joseph sat on the porch and gazed down the dirt road. A man appeared from behind a row of pines that canopied the dirt road. They all came that way, car parked at the edge where it was still paved, where the mailboxes were. There was idle talk of pitching in and graveling it or maybe even getting the county to pave it one of these days. But that was just talk. There was no money for such things. Not anymore.
 
 "Well, I'll be."
 
@@ -96,35 +94,40 @@ JOSEPH THE SON
 
 Grandfather wakes before everyone else, lights the stove to warm the house, makes coffee, biscuits. Watches the sun come up through the window.
 
-A visit by Minister Jacob. Joseph gazes lovingly through the outside window at his family indoors, where it was warm. Decorating a small pine with popcorn. A longing deep within. Something so far away from him. Tears came to his eyes. He somehow knew it would always be so. That it was not something he could possess. And it filled his heart with sadness. At least that was how his mind understood it.
+A visit by Minister Jacob. Joseph gazes lovingly through the outside window at his family indoors, where it was warm. Decorating a small pine with popcorn. A longing deep within. Something so far away from him. Tears came to his eyes. He somehow knew it would always be so. That it was not something he could possess. And it filled his heart with sadness. At least that was how his mind understood it. Invited to Fall Festival Sermon
 
-At work on Jacob’s farm.
-	Jesse
-	Hard Labor
+“All of creation is our brothers and sisters.”
 
-The family goes to Wednesday Church. Fundraiser.
+Work Day One: At work on Jacob’s farm.
+	Jesse calls his father ‘left yall. just a no account asshole. and you and your brother are just a bunch of bastards.’
+	Joseph lashes out but gets his ass kicked
+	Work is tearing down a tree
+
+The family goes to The Fall Cornucopia. Fundraiser.
 	Sermon
-	Country Feast
+	Country Feast (Rich cinnamon apple pies)
+	Jacob is inspired to restore the old house they live in
 
-The dead chickens are discovered.
+Work Day Two: The dead chickens are discovered. Jacob asks Joseph in secret to discover the culprit, with his brother. Joseph asks Jacob to dinner, on behalf of mother.
 
-Joseph and his brother track the culprit.
-
-Minister Jacob comes over for dinner. Argument with grandpa. No God. Drunk.
+Minister Jacob comes over for dinner. Argument with grandpa. There is no God. Drunk.
 
 Jacob at Dinner table: The heart deceives. A common belief. Yet I am not so sure. Do unto others as you would have them do unto you. So, you see. The capacity to judge right and wrong is inside every person. If this were not so then there would be no golden rule.
 
 You look like Jesus. Except you’re bald.
-
 That’s why I wear this hat. You like it?
 
-Grandfather whips Noah and Joseph cleans the room.
+Grandfather whips Noah and Joseph cleans the room, and waits patiently for the sun to rise.
 
-Joseph receives a new knife, told not to tell anyone.
+Joseph and his brother look for clues on Jacob’s farm. Joseph receives a new knife, told not to tell anyone.
 
 Grandfather takes Joseph and Noah out to feed the horses apples, fence breaks. We can fix it tomorrow.
 
-Grandfather gives Joseph the old knife he wanted. “Come back to your family, Will. They need you now. That precious boy Joseph needs you.” Joseph cries. Buries the new one he received from Minister Jacob in shame.
+For his birthday, grandfather gives Joseph the old knife he wanted. “Come back to your family, Will. They need you now. That precious boy Joseph needs you.” Joseph cries.
+
+That’s his way of apologizing. “Your daddy ain’t coming back, Joseph.” “He will.”
+
+Buries the new one he received from Minister Jacob in shame. Where it would stay forever.
 
 Joseph and Noah trace the tracks to an old barn. Jason and other boys have already found the culprit, the old dog. Joseph defends it by repeating what Jacob told them all about God’s grace. They tell him Jacob paid them to hang it for killing the chickens. Joseph struck by Jesse but does not retaliate. Brother cries. They keep the dog.
 
@@ -161,3 +164,11 @@ The words that Jesus said are not true because he spoke them. Truth is not truth
 The lie is not the lie because it proceeds from the mouth of a liar. The truth is not the truth because it proceeds from the mouth of a truth-teller.
 
 Minister Jacob tells the story of the house he never built.
+
+Important that scenes lead into one another organically, and do not seem episodic. This leads to blurred line between reality and dream later.
+
+Minister Jacob’s hypocrisy reveals itself through the ‘fruit’ of his actions, never from his demeanor or words.
+
+Establish early that Joseph wants the rusty old knife that sits on the shelf. Grandfather polishes it up the best he can and gives it for his birthday.
+
+Worried about the winter. No heat. Ostracized from the church after the incident. Mother somehow implicated.
