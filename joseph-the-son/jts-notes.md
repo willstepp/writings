@@ -17,8 +17,6 @@ Joseph finds his grandfather at rest next to a log. Sits on his lap. They stare 
 
 "Love."
 
-
-
 "He ain't coming back, Joseph. I need you to understand that."
 "He is."
 
@@ -103,7 +101,7 @@ Work Day One: At work on Jacob’s farm.
 	Joseph lashes out but gets his ass kicked
 	Work is tearing down trees to build a garden.
 
-The family goes to The Fall Cornucopia. Fundraiser.
+The family goes to Cornucopia. Fundraiser.
 	Sermon
 	Country Feast (Rich cinnamon apple pies)
 	Jacob is inspired to restore the old house they live in
@@ -187,3 +185,9 @@ What makes this story compelling? We follow the events through the eyes of a boy
 Even though it deals with a minister and the church, do not get into specific Christian ideas. Keep it universal, metaphysical if you go there. It almost should not matter what religion it is.
 
 The story seems to want to take place in an indistinct time. Don’t force the point. Have cars. Have TV. Avoid any more technology than that.
+
+This story is a challenge because unlike your other stories, this one doesn’t have anything *big* going on in the main plotline, except for grandfather’s natural death and the murder of the youth minister, which stays background action. The trick is to make it *feel* big.
+
+Mother cries after the funeral and Joseph consoles her. They fall asleep in Joseph’s bed.
+
+Not in school because of ‘fall break’, an indeterminate time away from school.
