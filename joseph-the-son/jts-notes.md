@@ -101,7 +101,7 @@ A visit by Minister Jacob. Joseph gazes lovingly through the outside window at h
 Work Day One: At work on Jacob’s farm.
 	Jesse calls his father ‘left yall. just a no account asshole. and you and your brother are just a bunch of bastards.’
 	Joseph lashes out but gets his ass kicked
-	Work is tearing down a tree
+	Work is tearing down trees to build a garden.
 
 The family goes to The Fall Cornucopia. Fundraiser.
 	Sermon
@@ -125,11 +125,11 @@ Grandfather takes Joseph and Noah out to feed the horses apples, fence breaks. W
 
 For his birthday, grandfather gives Joseph the old knife he wanted. “Come back to your family, Will. They need you now. That precious boy Joseph needs you.” Joseph cries.
 
-That’s his way of apologizing. “Your daddy ain’t coming back, Joseph.” “He will.”
+That’s his way of apologizing. “Your daddy ain’t coming back, Joseph.” “He is.”
 
 Buries the new one he received from Minister Jacob in shame. Where it would stay forever.
 
-Joseph and Noah trace the tracks to an old barn. Jason and other boys have already found the culprit, the old dog. Joseph defends it by repeating what Jacob told them all about God’s grace. They tell him Jacob paid them to hang it for killing the chickens. Joseph struck by Jesse but does not retaliate. Brother cries. They keep the dog.
+Joseph and Noah trace the tracks to an old barn. Jason and other boys have already found the culprit, the old dog. Joseph defends it by repeating what Jacob told them all about God’s grace. They tell him Jacob paid them to hang it for killing the chickens. Joseph is struck by Jesse but does not retaliate. Brother cries. They keep the dog.
 
 Mother is crying. They somehow overhear the Minister has killed the junior pastor at the behest of the secretary who he was having an affair with. On the run with money they had raised to fix Joseph family’s roof. $8000 total.
 
@@ -147,11 +147,11 @@ Main Characters
 
 Joseph - Awaits the return of his father, unspoken and yet understood by all. Minister Jacob becomes father figure.
 
-Noah - Does not respect or obey his brother, always fighting, arguing, calling him stupid. Is humbled when Joseph wins the fight with Jesse by not retaliating. “Our dad is a cocksucker.”
+Lizzie - About five. Assumes the feelings and ideas of those around her. Joseph is protective, but annoyed by her.
 
 Mother (Beth) - Trying to hold things together, starts a new life, falls in love with the promises that Minister Jacob makes. I give up. I don’t know what to do anymore. God damn. God damn this world.
 
-Grandfather (Kenneth) - Living in a state of dementia. Wants to rebuild the house as it has fallen into disrepair. No belief in God, but reveals the mystery to Joseph. Beth calls him “Mr. Kenneth”
+Grandfather (Kenneth) - Living in a state of dementia. Wants to rebuild the house as it has fallen into disrepair. No belief in God, but reveals the mystery to Joseph. Beth calls him “Mr. Kenneth”.
 
 Father (Will) - The returner.
 
@@ -172,3 +172,18 @@ Minister Jacob’s hypocrisy reveals itself through the ‘fruit’ of his actio
 Establish early that Joseph wants the rusty old knife that sits on the shelf. Grandfather polishes it up the best he can and gives it for his birthday.
 
 Worried about the winter. No heat. Ostracized from the church after the incident. Mother somehow implicated.
+
+"It doesn't matter what you believe. It doesn't matter what I believe. It only matters what *is*."
+
+Grandpa Ken: Loss
+Minister Jacob: Hope
+
+Minister Jacob offers to drive Beth to work. Uses that as a way to smuggle goods out of the church to his house.
+
+No one at funeral. Behind the house. Hires Jesse and gang to dig. Woman comes to pay her respects, update on Jacob (suicide) and for their family not to come around for awhile.
+
+What makes this story compelling? We follow the events through the eyes of a boy who is having to become more responsible, what he is interested in, the dog, the chickens, the knife, the bullies, his sister, snow, fall, cinnamon apples with milk, and yet in the background there is a story unfolding, Minister Jacob’s corruption of the church, Grandpa’s struggles to repair the house for Winter, Minister Jacob wooing the mother. Plot points should reveal themselves by suggestion and indirection, in the background sometimes.
+
+Even though it deals with a minister and the church, do not get into specific Christian ideas. Keep it universal, metaphysical if you go there. It almost should not matter what religion it is.
+
+The story seems to want to take place in an indistinct time. Don’t force the point. Have cars. Have TV. Avoid any more technology than that.
