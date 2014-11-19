@@ -11,9 +11,9 @@ Joseph finds his grandfather at rest next to a log. Sits on his lap. They stare 
 
 "What do you feel?"
 
-"I feel whiskers."
+“Whiskers."
 
-"No, what do you feel?"
+"No. What do you feel?"
 
 "Love."
 
@@ -86,15 +86,25 @@ He liked to sit out there because you could see a long way, clear to the mountai
 Outline
 ===============
 
-Joseph and Grandfather repair the fence one afternoon in the snow, packed down. Deep in winter.
-
 JOSEPH THE SON
 
-Grandfather wakes before everyone else, lights the stove to warm the house, makes coffee, biscuits. Watches the sun come up through the window.
+Grandfather wakes before everyone else, lights the stove to warm the house, makes coffee in percolator, biscuits with karo syrup, bacon. Watches the sun come up through the window. Intro to knife. Grandpa calls Joseph Will. Joseph and his sister off to school. Mother sleeps in, night shift.
 
-A visit by Minister Jacob. Joseph gazes lovingly through the outside window at his family indoors, where it was warm. Decorating a small pine with popcorn. A longing deep within. Something so far away from him. Tears came to his eyes. He somehow knew it would always be so. That it was not something he could possess. And it filled his heart with sadness. At least that was how his mind understood it. Invited to Fall Festival Sermon
+Walking home with boys from school. The dog. Minister Jacob. Chickens.
 
-“All of creation is our brothers and sisters.”
+A visit by Minister Jacob. Joseph gazes lovingly through the outside window at his family indoors, where it was warm. Decorating a small pine with popcorn. A longing deep within. Something so far away from him. Tears came to his eyes. He somehow knew it would always be so. That it was not something he could possess. And it filled his heart with sadness. At least that was how his mind understood it. Invited to Fall Festival Sermon.
+
+That he would lose it over and over again. Florene. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cursed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is horseshit. Your job, money, house, car. Horseshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and kissed her under the stars that night. She was my love. Mine. 
+
+And there ain’t no Heaven. No after life. No reunification will bring that love back to me again. Don’t bullshit me.
+
+“All of creation is our brothers and sisters, but more than that even. The fingers and toes and arms and legs and torso of one heavenly body. Did you know Saint Assisi called the sun his brother? That is the truth. We must have compassion for them. We must forbear when they do wrong. Mutual reverence for the life, God given.”
+
+“I understand you.” Joseph said.
+
+Jacob paused, glanced to the other boys, disinterested and impatient, and then back to Joseph. 
+
+“Yes,” he placed a gentle hand on his shoulder. “I see by your eyes that you do.”
 
 Work Day One: At work on Jacob’s farm.
 	Jesse calls his father ‘left yall. just a no account asshole. and you and your brother are just a bunch of bastards.’
@@ -106,7 +116,17 @@ The family goes to Cornucopia. Fundraiser.
 	Country Feast (Rich cinnamon apple pies)
 	Jacob is inspired to restore the old house they live in
 
-Work Day Two: The dead chickens are discovered. Jacob asks Joseph in secret to discover the culprit, with his brother. Joseph asks Jacob to dinner, on behalf of mother.
+Work Day Two: The dead chickens are discovered. Jacob asks Joseph in secret to discover the culprit, with his brother. Joseph asks Jacob to dinner, on behalf of mother. “No work ethic, them boys. When you old like me you understand the value of work. Doing your part.” 
+
+Look, you’ve done your part here, I guess. More than them other boys anyway. Find out what killed my chickens this morning. I’ll pay you well if you find out what killed them for me. Even more if you catch that sucker.” 
+
+Joseph figured it was probably that old dog from the other day, but he didn’t say a word, and neither did Jacob. They just looked at one another with an understanding that made him uneasy.
+
+“Sure, I can do that.”
+
+“Get your sister to help you, even.”
+
+“Yeah.”
 
 Minister Jacob comes over for dinner. Argument with grandpa. There is no God. Drunk.
 
@@ -117,17 +137,17 @@ That’s why I wear this hat. You like it?
 
 Grandfather whips Noah and Joseph cleans the room, and waits patiently for the sun to rise.
 
-Joseph and his brother look for clues on Jacob’s farm. Joseph receives a new knife, told not to tell anyone.
+Joseph and his brother look for clues on Jacob’s farm. Joseph receives a new knife, told not to tell anyone. Maybe this will help you on your quest.
 
 Grandfather takes Joseph and Noah out to feed the horses apples, fence breaks. We can fix it tomorrow.
 
-For his birthday, grandfather gives Joseph the old knife he wanted. “Come back to your family, Will. They need you now. That precious boy Joseph needs you.” Joseph cries.
+Grandfather gives Joseph the old knife he wanted. “Come back to your family, Will. They need you now. That precious boy needs you.” Joseph cries. “I’m Joseph.” “I know that.”
 
 That’s his way of apologizing. “Your daddy ain’t coming back, Joseph.” “He is.”
 
-Buries the new one he received from Minister Jacob in shame. Where it would stay forever.
+Buries the new one he received from Minister Jacob in shame. In the ground, in the dirt where it would stay forever.
 
-Joseph and Noah trace the tracks to an old barn. Jason and other boys have already found the culprit, the old dog. Joseph defends it by repeating what Jacob told them all about God’s grace. They tell him Jacob paid them to hang it for killing the chickens. Joseph is struck by Jesse but does not retaliate. Brother cries. They keep the dog.
+Joseph and Noah trace the tracks to an old barn. Jason and other boys have already found the culprit, the old dog. Joseph defends it by repeating what Jacob told them all about God’s grace. They tell him Jacob paid them to hang it for killing the chickens. Joseph is struck by Jesse but does not retaliate. His strength in non-retaliation earns their respect. Sister cries. They keep the dog.
 
 Mother is crying. They somehow overhear the Minister has killed the junior pastor at the behest of the secretary who he was having an affair with. On the run with money they had raised to fix Joseph family’s roof. $8000 total.
 
@@ -136,6 +156,8 @@ Joseph tends to his dog in a makeshift dog house. “You are mine forever.” Th
 “Joseph, your grandfather has passed away.”
 
 Funeral. The first snow is falling. Buried next to his love. They learn Jacob shot himself in a Motel 6 outside Birmingham. Left a note that said, “Forgive them, father, for they know not what they do.”
+
+Consoles his mother. “Who was that evil man, Jacob? I invited him into our home. I can’t do this alone. I can’t do it. I give up.” “You’re not alone.” Stokes the fire and it burns until the small hours of the morning.
 
 In the early morning hours, Will enters the house, using an old key. He brings in wood for the stove and kindles it. Make a pot of coffee, and waits for the sun to rise.
 
@@ -171,7 +193,7 @@ Establish early that Joseph wants the rusty old knife that sits on the shelf. Gr
 
 Worried about the winter. No heat. Ostracized from the church after the incident. Mother somehow implicated.
 
-"It doesn't matter what you believe. It doesn't matter what I believe. It only matters what *is*."
+"It doesn't matter what you believe. It doesn't matter what I believe. It only matters what is."
 
 Grandpa Ken: Loss
 Minister Jacob: Hope
@@ -191,3 +213,5 @@ This story is a challenge because unlike your other stories, this one doesn’t 
 Mother cries after the funeral and Joseph consoles her. They fall asleep in Joseph’s bed.
 
 Not in school because of ‘fall break’, an indeterminate time away from school.
+
+Creating wealth in this world. House on a hill. Look at what it has now become. This tomb of a home. Do you think I was always wrinkled and ugly like I am now?  Do you think my mind was always slow? I was once like you. Smooth skin like Lizzie there, sharp in mind. I had money that I spent on myself and others. I was humbled to be able to give to the poor. I lorded it over those who had none, while pretending to be humble.
