@@ -214,4 +214,15 @@ Mother cries after the funeral and Joseph consoles her. They fall asleep in Jose
 
 Not in school because of ‘fall break’, an indeterminate time away from school.
 
-Creating wealth in this world. House on a hill. Look at what it has now become. This tomb of a home. Do you think I was always wrinkled and ugly like I am now?  Do you think my mind was always slow? I was once like you. Smooth skin like Lizzie there, sharp in mind. I had money that I spent on myself and others. I was humbled to be able to give to the poor. I lorded it over those who had none, while pretending to be humble.
+Creating wealth in this world. House on a hill. Look at what it has now become. This tomb of a home. Do you think I was always wrinkled and ugly like I am now?  Do you think my mind was always slow? I was once like you. Smooth skin like Lizzie there, sharp in mind. I had money that I spent on myself and others. I was humbled to be able to give to the poor. I lorded it over those who had none while pretending to be humble.
+
+
+There is a hole in the main living area. Grandpa is working on a repair. Makes more holes.
+
+Jacob wants the boys to tear up a garden.
+
+Will has gotten a message from Beth about his father is why he returns.
+
+
+
+The story opens on the walk home from school. They are coming home earlier in the day because of Fall break. Joseph is with a group of boys who live in the trailer park next to his house. They stop to torture a stray dog. Joseph is not reluctant to join in, even though he is not really *friends* with them. Minister Jacob is outside tending to his chickens and sees them. He steps in and censures the boys. He recognizes Joseph as someone new to the neighborhood and asks if he is from the family that just moved into the old house on the hill. When he finds out he is, he wants to speak with the Joseph’s father. Tells the other boys to get on home.
