@@ -132,8 +132,8 @@ Minister Jacob comes over for dinner. Argument with grandpa. There is no God. Dr
 
 Jacob at Dinner table: The heart deceives. A common belief. Yet I am not so sure. Do unto others as you would have them do unto you. So, you see. The capacity to judge right and wrong is inside every person. If this were not so then there would be no golden rule.
 
-You look like Jesus. Except you’re bald.
-That’s why I wear this hat. You like it?
+Lizzie to Jacob, “You’re bald.”
+“That’s why I wear this hat. You like it?”
 
 Grandfather whips Noah and Joseph cleans the room, and waits patiently for the sun to rise.
 
@@ -224,5 +224,69 @@ Jacob wants the boys to tear up a garden.
 Will has gotten a message from Beth about his father is why he returns.
 
 
+First sentence should describe dog being tortured.
 
 The story opens on the walk home from school. They are coming home earlier in the day because of Fall break. Joseph is with a group of boys who live in the trailer park next to his house. They stop to torture a stray dog. Joseph is not reluctant to join in, even though he is not really *friends* with them. Minister Jacob is outside tending to his chickens and sees them. He steps in and censures the boys. He recognizes Joseph as someone new to the neighborhood and asks if he is from the family that just moved into the old house on the hill. When he finds out he is, he wants to speak with the Joseph’s father. Tells the other boys to get on home.
+
+
+Joseph takes up Minister Jacob’s censure literally, becomes vegetarian. At the dinner Minister Jacob is eating meat. They discuss.
+
+What passage is that?
+
+Not from the scripture. What is a true thing?
+
+Integration and Disintegration. Is all there is.
+
+How do we know what is true?
+
+Mother’s car has broken alternator. Minister Jacob takes to his house to fix. That is the car they escape in.
+
+Grandpa is upset that Jacob is helping him. Think you’re God Almighty? How arrogant. I hate this. The conversation about vegetarianism brings in Grandpa. “It doesn’t matter what you believe. It doesn’t matter what I believe. It only matters what *is*.”
+
+I can’t.
+Why?
+It’s wrong.
+God placed us in this world, Joseph. It is not a sin to feed your family. We revere the animal for the life it has given up. Life must feed on life to live.
+Why do you consider this chicken to be a life, and yet not a piece of fruit? It has a life.
+Do you understand?
+I do.
+It is not for us to know God’s will.
+I won’t have you come into my home and feed my family this horseshit. Lies.
+They are not lies, sir.
+Confusion then. Look at what you’ve done to my grandson. He can’t even eat his dinner.
+
+If it is okay to kill animals for food then why was just messing around with an animal so bad? I don’t get it.
+
+Jesse and Joseph get into a fight because Jesse calls him a bastard. Minister Jacob breaks it up - “He is your brother, why do you strike your brother, Joseph.”
+
+Lizzie has a cold, perhaps pneumonia. She won’t eat.
+
+
+Nimrod killed animals: Genesis 10:9
+
+
+Visit the all-creatures.org Home Page. Write us with your comments: <flh@all-creatures.org>
+Why Is Cruelty Wrong? by Teri Rivas
+God allows us to benefit from the animals. Bible principles allow us to kill animals to provide food and clothing or to protect ourselves from harm. (Genesis 3:21; 9:3; Exodus 21:28) However, life is sacred to God. Our dominion over the animals must be exercised in a balanced way that shows respect for life. The Bible speaks negatively of a man named Nimrod, who apparently killed animals and perhaps humans for the sheer thrill of it.—Genesis 10:9.
+Jesus spoke of God’s concern for animals in these words: "Five sparrows sell for two coins of small value, do they not? Yet not one of them goes forgotten before God." (Luke 12:6) Also, when changing his mind about destroying a city full of practicers of wickedness who had repented, God himself said: "Ought I not to feel sorry for Nineveh the great city, in which there exist more than one hundred and twenty thousand men . . . , besides many domestic animals?" (Jonah 4:11) Obviously, he does not regard animals as just disposable items, to be thrown away at will.
+When giving the Israelites laws, God taught them proper care of animals. He required them to return a stray animal to its owner and to help animals in distress. (Exodus 23:4, 5) Animals were to benefit from a Sabbath rest, just like humans. (Exodus 23:12) There were laws governing the proper treatment of farm animals. (Deuteronomy 22:10; 25:4) Obviously, animals were to be cared for and guarded, not exploited.
+Proverbs 12:10 explicitly states God’s viewpoint: "The righteous one is caring for the soul of his domestic animal, but the mercies of the wicked ones are cruel." A Bible commentary renders this verse as follows: "A righteous man’s kindness extends even to dumb animals, but a wicked man is cruel, even when he thinks he is being most gentle."—Believer’s Bible Commentary, by William MacDonald.
+The righteous man treats animals with kindness and seeks to know their needs. A wicked person may vocally express love for animals, but his "mercies," at best, are actually cruel. His actions betray the selfish motive he has in mind. How true this is of those who pit one animal against another in hopes of winning money!
+Relief for the Animals
+True, God’s original purpose was that man have "in subjection the fish of the sea and the flying creatures of the heavens and every living creature that is moving upon the earth." (Genesis 1:28) Cruelty to animals has no place in that purpose. The inhuman treatment of animals will not go on forever. We have reason to believe that God will stop all unnecessary suffering. But how?
+He promises to do away with wicked and cruel people. (Proverbs 2:22) Regarding the animals, Hosea 2:18 says: "I shall certainly conclude a covenant in that day in connection with the wild beast of the field and with the flying creature of the heavens and the creeping thing of the ground." How wonderful it will be to live during that time, when peaceful conditions will benefit not only upright humans but also the animals!
+KINDNESS TO ANIMALS
+Animals were also given kind consideration. If a man saw a domestic animal in distress he was required to help it, even if it belonged to an enemy of his. (Exodus 23:4, 5; Deuteronomy 22:4) Beasts of burden were not to be overworked or mistreated. (Deuteronomy 22:10; Proverbs 12:10) The bull was not to be muzzled so that he could not enjoy the fruits of his labor when threshing grain. (Deuteronomy 25:4) Kindness to wild animals was also fostered. A man was not to remove both a mother bird and her eggs, thereby wiping out the family. (Deuteronomy 22:6, 7) Among domestic animals an individual was not to slaughter a bull or a sheep and its young on the same day. All of this was a deterrent to a spirit of cruelty.—Leviticus 22:28; compare God’s consideration for animals as expressed at Jonah 4:11 and Leviticus 25:4, 5, 7.
+Additional Thoughts
+"The righteous one is caring for the soul of his domestic animal, but the mercies of the wicked ones are cruel" -Proverbs 12:10
+God created us with this desire to relate to animals. When he made man he said to him, at Genesis 1:28: ‘Your descendants will live all over the earth and bring it under their control. I am putting you in charge of the fish, the birds, and all the wild animals.’ Man is now failing miserably to meet this charge. Instead, he has polluted the earth and destroyed many animal species and endangered many more.
+"But the nations became wrathful, and your own wrath came, and the appointed time for the dead to be judged, and to give [their] reward to your slaves the prophets and to the holy ones and to those fearing your name, the small and the great, and to bring to ruin those ruining the earth." -Revelation 11:18
+How delightful it will be when Jehovah acts to eliminate, earth wide, the abuse of animals and also of people who suffer under this present system of things! Many persons will then enjoy the paradise earth that Jehovah has purposed for appreciative humankind, for those who will carry out his charge to care for its plants and animals and who will love their neighbors as themselves.
+See Also:
+Isaiah 11:6-9 "And the wolf will actually reside for a while with the male lamb, and with the kid the leopard itself will lie down, and the calf and the maned young lion and the well-fed animal all together; and a mere little boy will be leader over them. 7 And the cow and the bear themselves will feed; together their young ones will lie down. And even the lion will eat straw just like the bull. 8 And the sucking child will certainly play upon the hole of the cobra; and upon the light aperture of a poisonous snake will a weaned child actually put his own hand. 9 They will not do any harm or cause any ruin in all my holy mountain; because the earth will certainly be filled with the knowledge of Jehovah as the waters are covering the very sea"
+Isaiah 65:25 "'The wolf and the lamb themselves will feed as one, and the lion will eat straw just like the bull; and as for the serpent, his food will be dust. They will do no harm nor cause any ruin in all my holy mountain,' Jehovah has said"
+Psalm 37:11 "But the meek ones themselves will possess the earth, And they will indeed find their exquisite delight in the abundance of peace"
+Psalm 37:28, 29 "To time indefinite they will certainly be guarded; But as for the offspring of the wicked ones, they will indeed be cut off. The righteous themselves will possess the earth, And they will reside forever upon it"
+Can the abused earth, its animals and its peoples, use that promised paradise? Can a duck use webbed feet?
+Therefore, continue to pray as directed by Jesus in Matthew 6:9,10 "YOU must pray, then, this way:Our Father in the heavens, let your name be sanctified. 10 Let your kingdom come. Let your will take place, as in heaven, also upon earth. 11 Give us today our bread for this day; 12 and forgive us our debts, as we also have forgiven our debtors. 13 And do not bring us into temptation, but deliver us from the wicked one."
+I read an article, "Help for Animals Abused by Man" RE: Wildlife Waystation a 160-acre animal compound north of Los Angeles, up Little Tujunga canyon in the San Gabriel Mountains. Martine Colette, founder and president of this nonprofit, tax-exempt animal facility. (Visitors are received by appointment only.) I thought you may find some comfort in this information.
