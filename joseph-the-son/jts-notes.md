@@ -261,6 +261,8 @@ Jesse and Joseph get into a fight because Jesse calls him a bastard. Minister Ja
 
 Lizzie has a cold, perhaps pneumonia. She won’t eat.
 
+Watches his family from outside the window. He realized a moment  in time was not something he could possess. But felt a strong desire to possess it, to keep it with him always. But it was already gone and that it was gone filled him with a sickness in his heart that he had never felt before.
+
 
 Nimrod killed animals: Genesis 10:9
 
