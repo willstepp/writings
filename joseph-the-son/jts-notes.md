@@ -264,31 +264,45 @@ Lizzie has a cold, perhaps pneumonia. She won’t eat.
 Watches his family from outside the window. He realized a moment  in time was not something he could possess. But felt a strong desire to possess it, to keep it with him always. But it was already gone and that it was gone filled him with a sickness in his heart that he had never felt before.
 
 
-Nimrod killed animals: Genesis 10:9
+TODO:
 
+Work out all scenes / beats at least to the point where the plot follows.
 
-Visit the all-creatures.org Home Page. Write us with your comments: <flh@all-creatures.org>
-Why Is Cruelty Wrong? by Teri Rivas
-God allows us to benefit from the animals. Bible principles allow us to kill animals to provide food and clothing or to protect ourselves from harm. (Genesis 3:21; 9:3; Exodus 21:28) However, life is sacred to God. Our dominion over the animals must be exercised in a balanced way that shows respect for life. The Bible speaks negatively of a man named Nimrod, who apparently killed animals and perhaps humans for the sheer thrill of it.—Genesis 10:9.
-Jesus spoke of God’s concern for animals in these words: "Five sparrows sell for two coins of small value, do they not? Yet not one of them goes forgotten before God." (Luke 12:6) Also, when changing his mind about destroying a city full of practicers of wickedness who had repented, God himself said: "Ought I not to feel sorry for Nineveh the great city, in which there exist more than one hundred and twenty thousand men . . . , besides many domestic animals?" (Jonah 4:11) Obviously, he does not regard animals as just disposable items, to be thrown away at will.
-When giving the Israelites laws, God taught them proper care of animals. He required them to return a stray animal to its owner and to help animals in distress. (Exodus 23:4, 5) Animals were to benefit from a Sabbath rest, just like humans. (Exodus 23:12) There were laws governing the proper treatment of farm animals. (Deuteronomy 22:10; 25:4) Obviously, animals were to be cared for and guarded, not exploited.
-Proverbs 12:10 explicitly states God’s viewpoint: "The righteous one is caring for the soul of his domestic animal, but the mercies of the wicked ones are cruel." A Bible commentary renders this verse as follows: "A righteous man’s kindness extends even to dumb animals, but a wicked man is cruel, even when he thinks he is being most gentle."—Believer’s Bible Commentary, by William MacDonald.
-The righteous man treats animals with kindness and seeks to know their needs. A wicked person may vocally express love for animals, but his "mercies," at best, are actually cruel. His actions betray the selfish motive he has in mind. How true this is of those who pit one animal against another in hopes of winning money!
-Relief for the Animals
-True, God’s original purpose was that man have "in subjection the fish of the sea and the flying creatures of the heavens and every living creature that is moving upon the earth." (Genesis 1:28) Cruelty to animals has no place in that purpose. The inhuman treatment of animals will not go on forever. We have reason to believe that God will stop all unnecessary suffering. But how?
-He promises to do away with wicked and cruel people. (Proverbs 2:22) Regarding the animals, Hosea 2:18 says: "I shall certainly conclude a covenant in that day in connection with the wild beast of the field and with the flying creature of the heavens and the creeping thing of the ground." How wonderful it will be to live during that time, when peaceful conditions will benefit not only upright humans but also the animals!
-KINDNESS TO ANIMALS
-Animals were also given kind consideration. If a man saw a domestic animal in distress he was required to help it, even if it belonged to an enemy of his. (Exodus 23:4, 5; Deuteronomy 22:4) Beasts of burden were not to be overworked or mistreated. (Deuteronomy 22:10; Proverbs 12:10) The bull was not to be muzzled so that he could not enjoy the fruits of his labor when threshing grain. (Deuteronomy 25:4) Kindness to wild animals was also fostered. A man was not to remove both a mother bird and her eggs, thereby wiping out the family. (Deuteronomy 22:6, 7) Among domestic animals an individual was not to slaughter a bull or a sheep and its young on the same day. All of this was a deterrent to a spirit of cruelty.—Leviticus 22:28; compare God’s consideration for animals as expressed at Jonah 4:11 and Leviticus 25:4, 5, 7.
-Additional Thoughts
-"The righteous one is caring for the soul of his domestic animal, but the mercies of the wicked ones are cruel" -Proverbs 12:10
-God created us with this desire to relate to animals. When he made man he said to him, at Genesis 1:28: ‘Your descendants will live all over the earth and bring it under their control. I am putting you in charge of the fish, the birds, and all the wild animals.’ Man is now failing miserably to meet this charge. Instead, he has polluted the earth and destroyed many animal species and endangered many more.
-"But the nations became wrathful, and your own wrath came, and the appointed time for the dead to be judged, and to give [their] reward to your slaves the prophets and to the holy ones and to those fearing your name, the small and the great, and to bring to ruin those ruining the earth." -Revelation 11:18
-How delightful it will be when Jehovah acts to eliminate, earth wide, the abuse of animals and also of people who suffer under this present system of things! Many persons will then enjoy the paradise earth that Jehovah has purposed for appreciative humankind, for those who will carry out his charge to care for its plants and animals and who will love their neighbors as themselves.
-See Also:
-Isaiah 11:6-9 "And the wolf will actually reside for a while with the male lamb, and with the kid the leopard itself will lie down, and the calf and the maned young lion and the well-fed animal all together; and a mere little boy will be leader over them. 7 And the cow and the bear themselves will feed; together their young ones will lie down. And even the lion will eat straw just like the bull. 8 And the sucking child will certainly play upon the hole of the cobra; and upon the light aperture of a poisonous snake will a weaned child actually put his own hand. 9 They will not do any harm or cause any ruin in all my holy mountain; because the earth will certainly be filled with the knowledge of Jehovah as the waters are covering the very sea"
-Isaiah 65:25 "'The wolf and the lamb themselves will feed as one, and the lion will eat straw just like the bull; and as for the serpent, his food will be dust. They will do no harm nor cause any ruin in all my holy mountain,' Jehovah has said"
-Psalm 37:11 "But the meek ones themselves will possess the earth, And they will indeed find their exquisite delight in the abundance of peace"
-Psalm 37:28, 29 "To time indefinite they will certainly be guarded; But as for the offspring of the wicked ones, they will indeed be cut off. The righteous themselves will possess the earth, And they will reside forever upon it"
-Can the abused earth, its animals and its peoples, use that promised paradise? Can a duck use webbed feet?
-Therefore, continue to pray as directed by Jesus in Matthew 6:9,10 "YOU must pray, then, this way:Our Father in the heavens, let your name be sanctified. 10 Let your kingdom come. Let your will take place, as in heaven, also upon earth. 11 Give us today our bread for this day; 12 and forgive us our debts, as we also have forgiven our debtors. 13 And do not bring us into temptation, but deliver us from the wicked one."
-I read an article, "Help for Animals Abused by Man" RE: Wildlife Waystation a 160-acre animal compound north of Los Angeles, up Little Tujunga canyon in the San Gabriel Mountains. Martine Colette, founder and president of this nonprofit, tax-exempt animal facility. (Visitors are received by appointment only.) I thought you may find some comfort in this information.
+JOSEPH THE SON
+
+(1500) Prologue:
+	Joseph and grandfather repair fence on a snowy day.
+
+PART ONE:
+
+(4000) 1: Walking home from school, dog, minister Jacob, censure.
+
+(3000) 2: Going home with Jacob, speak with mother, invitation to fall festival. Flirtations. Car broken down, something simple but out of price range to fix. Jacob offers to fix. Drives it back to his place. “What a kind-hearted man.”
+
+(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). “Proud of you.” You did good today, I’m proud of you. Gives pocket knife here. Tell no one.
+
+(4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Margaret weeps out loud.
+
+(4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner.
+
+(4000) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room.
+
+(4000) 7: Hunting for clues with Lizzie on Jacob’s farm. Uses knife for something. Onto road. Back home, grandpa takes to feed horses, Joseph breaks fence. “We’ll fix it tomorrow.” “You’re old enough for this now.” Grandpa gives rusty pocket knife. Joseph rises in the night and buries Jacob’s new knife forever. Looks up at the stars, Jupiter.
+
+PART TWO:
+
+(3000) 8: Car breaks down. Something more serious this time. Jacob comes over to take a look. Will cost more to fix than the car is worth. Offers to take her to work until it is fixed. Joseph sees Jacob kissing his mother. Becomes angry. Mother tells hims his father is not coming back.
+
+(4000) 9: Joseph and Lizzie track down the dog in the old barn in a field. The boys are there already, preparing to hang it. Joseph tries to stop them. Fights Jesse with non-resistance. They save the dog. Are told Jacob paid them to do it.
+
+(3000) 10: As they walk the dog home, at the church they see police cars, firefighters putting out a fire, a crowd. Arrive home to learn (somehow) that Jacob stabbed the youth minister to death, ran off with the youth minister’s wife and the $8700 dollars raised. Mother crying behind a door. (not sure how they find out)
+
+(4000) 11: Joseph ties up dog but it runs off across the field. Joseph follows it past the point where he’s forbidden to go. Follows it into the woods. Is chased by a horse, deeper. Comes upon a lake. Grandfather there on a log. Tells grandfather what happened with Jacob. Mother wakes Joseph to tell him grandfather has passed away.
+
+(3000) 12: Falling snow. They bury grandfather next to his wife in the backyard. Hires the boys from the trailer park. They respect Joseph now. Margaret from church comes to tell them not to come around (in a nice way), tell about Jacob’s suicide at a Motel 6 outside Birmingham.
+
+(3000) 13: Mother crying after putting Lizzie to bed. Joseph consoles her, stokes fire, and they fall asleep in one another’s arms.
+
+EPILOGUE:
+
+(1500) 14: Will returns in the middle of the night and rekindles the fire, awaits his family to awaken.

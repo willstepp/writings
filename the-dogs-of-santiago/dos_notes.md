@@ -36,6 +36,7 @@ Bus
 Shanty town
 Park
 Bonfire (mother throws baby in fire)
+
 Day Three (5000):
 Revisit the bonfire
 Dog
