@@ -1,13 +1,19 @@
-JOSEPH THE SON by Daniel Stepp
-
-Joseph was used to the darkness by now, finding his way in the darkness, without the use of his eyes. In the night a snow had come and blanketed the field behind the old barn. It was morning now and yet still dark. The family asleep in the house. They two the only ones awake. The boy followed behind his grandfather and tried to match his footprints in the powder. Joseph in his winter coat, a scrap of shirt wrapped around his mouth and nose. He breathed through the material and felt his hot breath dissipate into the morning chill. Grandfather in his pajamas and a wool coat, ragged with holes. He carried a hammer and some makeshift wooden pegs. Soon they came to the broken fence at the edge of the field and set to work. Joseph gazed beyond the field, past the fallen limbs and briars there, where he was not allowed to go.
-
+JOSEPH THE SON
+by Daniel Stepp
 
 
-...and gazed long past the fallen limbs and briars into the woods beyond the field, where he was not allowed to go.
+PROLOGUE
 
+Joseph and grandfather repairing fence
 
+PART ONE
 
-An unfamiliar figure emerged over the hill and approached the house. Joseph and his brother watched from the porch.
+1
 
-A familiar figure.
+PART TWO
+
+1
+
+EPILOGUE
+
+Return of the father

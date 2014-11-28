@@ -261,8 +261,7 @@ Jesse and Joseph get into a fight because Jesse calls him a bastard. Minister Ja
 
 Lizzie has a cold, perhaps pneumonia. She won’t eat.
 
-Watches his family from outside the window. He realized a moment  in time was not something he could possess. But felt a strong desire to possess it, to keep it with him always. But it was already gone and that it was gone filled him with a sickness in his heart that he had never felt before.
-
+Watches his family from outside the window. It was like five hundred years had passed. He then realized a moment in time was not something he could possess. But he felt a strong desire to possess it — to keep it with him always. H	is hand reached up to the glass. The motion caught Lizzie’s attention and she laughed and raced over to the glass and placed her hand over his, with only the pane between them.
 
 TODO:
 
@@ -279,19 +278,19 @@ PART ONE:
 
 (3000) 2: Going home with Jacob, speak with mother, invitation to fall festival. Flirtations. Car broken down, something simple but out of price range to fix. Jacob offers to fix. Drives it back to his place. “What a kind-hearted man.”
 
-(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). “Proud of you.” You did good today, I’m proud of you. Gives pocket knife here. Tell no one.
+(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy).
 
 (4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Margaret weeps out loud.
 
-(4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner.
+(4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. Tell no one. Maybe it will come in handy.
 
 (4000) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room.
 
-(4000) 7: Hunting for clues with Lizzie on Jacob’s farm. Uses knife for something. Onto road. Back home, grandpa takes to feed horses, Joseph breaks fence. “We’ll fix it tomorrow.” “You’re old enough for this now.” Grandpa gives rusty pocket knife. Joseph rises in the night and buries Jacob’s new knife forever. Looks up at the stars, Jupiter.
+(4000) 7: Hunting for clues with Lizzie on Jacob’s farm. Uses knife for something. Onto road. Back home, grandpa takes to feed horses, Joseph breaks fence. “We’ll fix it tomorrow.” “You’re old enough for this now.” Grandpa gives rusty pocket knife. Joseph rises in the night and buries Jacob’s new knife forever. Looks up at the stars, imagines what it must be like on Jupiter (unnamed).
 
 PART TWO:
 
-(3000) 8: Car breaks down. Something more serious this time. Jacob comes over to take a look. Will cost more to fix than the car is worth. Offers to take her to work until it is fixed. Joseph sees Jacob kissing his mother. Becomes angry. Mother tells hims his father is not coming back.
+(3000) 8: Car breaks down. Something more serious this time. Jacob comes over to take a look. Will cost more to fix than the car is worth. “With the money we have raised we can buy you a new car also.” Joseph sees Jacob kissing his mother. Becomes angry. Mother tells hims his father is not coming back.
 
 (4000) 9: Joseph and Lizzie track down the dog in the old barn in a field. The boys are there already, preparing to hang it. Joseph tries to stop them. Fights Jesse with non-resistance. They save the dog. Are told Jacob paid them to do it.
 
@@ -299,10 +298,41 @@ PART TWO:
 
 (4000) 11: Joseph ties up dog but it runs off across the field. Joseph follows it past the point where he’s forbidden to go. Follows it into the woods. Is chased by a horse, deeper. Comes upon a lake. Grandfather there on a log. Tells grandfather what happened with Jacob. Mother wakes Joseph to tell him grandfather has passed away.
 
-(3000) 12: Falling snow. They bury grandfather next to his wife in the backyard. Hires the boys from the trailer park. They respect Joseph now. Margaret from church comes to tell them not to come around (in a nice way), tell about Jacob’s suicide at a Motel 6 outside Birmingham.
+(3000) 12: Falling snow. They bury grandfather next to his wife in the backyard. Hires the boys from the trailer park. They respect Joseph now. Margaret from church comes to tell them not to come around (in a nice way), tell about Jacob’s suicide in a rest area bathroom stall outside Birmingham.
 
 (3000) 13: Mother crying after putting Lizzie to bed. Joseph consoles her, stokes fire, and they fall asleep in one another’s arms.
 
 EPILOGUE:
 
 (1500) 14: Will returns in the middle of the night and rekindles the fire, awaits his family to awaken.
+
+
+
+
+There is a mystery in the everyday. Your responsibility is to reveal that. It should not come from the flow of words, or the kind of words you use, but from the actions and words of the characters. Forget the metaphors, symbols. Evoke the scenes as if they really happened. Put yourself there. Don’t explain too much. Trust the reader to read between the lines. In fact, expect them to. It is compelling when the reader must engage like that. Also plant seeds throughout the story that sprout at different times and in different forms later. This compels the reader.
+
+You know by this point what your strengths are. Embrace those strengths. If what you can do does not resemble what people normally consider a novel then so be it. Don’t conform to an expectation of how a story should be told. This is not arrogance if you keep humble and stay critical of what you write. If it works for you then it will work for others. Put simply, have faith. There is an invisible boundary that keeps you inside its walls. Those are the boundaries of convention and expectation. Escape. You feel them constraining what you are able to do, conceive of.
+
+Create rounded characters. Suggest their character through description and dialogue. But do not define them to the reader.
+
+Make it so real
+
+The dirt road
+The barn
+The old house (like a tomb)
+Trailer park
+Field with horse / lake
+Southern Baptist Church
+Jacob’s Farm
+
+The dinner: Meatloaf, corn on the cob, mashed potatoes, green beans, mac and cheese. Mother whistles as she prepares meal. Wears dark red lipstick.
+
+Beth works as cashier at the Piggly Wiggly
+
+Unnamed North Georgia town. Will left last year. Had to move in with grandpa when he got sick. Water on the brain. No money. Just a pager number.
+
+Kelly and Steven Echols
+Jacob Brumbalow
+Beth, Joseph, Lizzie, Will, Kenneth Hight
+Margaret Foy
+Jesse Black
