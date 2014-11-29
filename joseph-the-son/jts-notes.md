@@ -267,6 +267,7 @@ TODO:
 
 Work out all scenes / beats at least to the point where the plot follows.
 
+
 JOSEPH THE SON
 
 (1500) Prologue:
@@ -275,16 +276,22 @@ JOSEPH THE SON
 PART ONE:
 
 (4000) 1: Walking home from school, dog, minister Jacob, censure.
+    Introduction to Joseph, boys from trailer park (Jesse), Jacob
 
-(3000) 2: Going home with Jacob, speak with mother, invitation to fall festival. Flirtations. Car broken down, something simple but out of price range to fix. Jacob offers to fix. Drives it back to his place. “What a kind-hearted man.”
+(3000) 2: Going home with Jacob, speak with mother, invitation to fall festival. Flirtations. Car broken down, something simple but out of price range to fix. Jacob offers to fix. Drives it back to his place. “What a kind-hearted man.” Joseph runs to his room and weeps into the pillow.
+  Introduction to Beth, Kenneth, and Lizzie (you're bald)
 
-(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy).
+(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?"
 
 (4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Margaret weeps out loud.
 
-(4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. Tell no one. Maybe it will come in handy.
+(4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
 
-(4000) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room.
+(4000) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room. "Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
+
+"Respectfully sir, you are mistaken. And I've dedicated my life to sharing the Good News that has been revealed to us through the life and death of our Savior, Jesus Christ. That is my belief."
+
+"Respectfully sir, it doesn't matter what you believe. And it doesn't matter what I believe. It only matters what is."
 
 (4000) 7: Hunting for clues with Lizzie on Jacob’s farm. Uses knife for something. Onto road. Back home, grandpa takes to feed horses, Joseph breaks fence. “We’ll fix it tomorrow.” “You’re old enough for this now.” Grandpa gives rusty pocket knife. Joseph rises in the night and buries Jacob’s new knife forever. Looks up at the stars, imagines what it must be like on Jupiter (unnamed).
 
@@ -294,7 +301,7 @@ PART TWO:
 
 (4000) 9: Joseph and Lizzie track down the dog in the old barn in a field. The boys are there already, preparing to hang it. Joseph tries to stop them. Fights Jesse with non-resistance. They save the dog. Are told Jacob paid them to do it.
 
-(3000) 10: As they walk the dog home, at the church they see police cars, firefighters putting out a fire, a crowd. Arrive home to learn (somehow) that Jacob stabbed the youth minister to death, ran off with the youth minister’s wife and the $8700 dollars raised. Mother crying behind a door. (not sure how they find out)
+(3000) 10: As they walk the dog home, at the church they see police cars, firefighters putting out a fire, a crowd. Arrive home to learn (somehow) that Jacob stabbed the youth minister to death, ran off with the youth minister’s wife and the $8700 dollars raised. Mother crying behind a door.
 
 (4000) 11: Joseph ties up dog but it runs off across the field. Joseph follows it past the point where he’s forbidden to go. Follows it into the woods. Is chased by a horse, deeper. Comes upon a lake. Grandfather there on a log. Tells grandfather what happened with Jacob. Mother wakes Joseph to tell him grandfather has passed away.
 
@@ -329,10 +336,23 @@ The dinner: Meatloaf, corn on the cob, mashed potatoes, green beans, mac and che
 
 Beth works as cashier at the Piggly Wiggly
 
-Unnamed North Georgia town. Will left last year. Had to move in with grandpa when he got sick. Water on the brain. No money. Just a pager number.
+Unnamed North Georgia town. Will left last year. Had to move in with grandpa when he got sick. Water on the brain (Hydrocephalus) No money. Just a pager number.
 
 Kelly and Steven Echols
 Jacob Brumbalow
 Beth, Joseph, Lizzie, Will, Kenneth Hight
 Margaret Foy
 Jesse Black
+
+The knife: "It's awesome. It's just like the ones they sell at the flea market."
+
+A story that on the surface seems ordinary, dull even, but as you look closer you see things aren't quite put together like you thought. There is a strangeness to it, a mystery to it all.
+
+Keep theological discussions somewhat generic. It almost shouldn't matter that Jacob is Christian. It is more about a belief in faith, eternal life, universal brotherhood. You should be able to map theological discussions to any of the major religions. Jacob is more of a Christian Mystic, in this way. Even though the church is a Southern Baptist.
+
+Grandpa is not well educated. Do not make him a mouthpiece for your ideas. Keep him real.
+
+
+This is not a Christian story even though it deals with a Christian minister.
+
+The fact that you are afraid to write this book is a good thing. It means you are in a strange land. The best work comes from exploration of the unknown. You know this from past experience. Do not fear being afraid. Fear not being afraid.
