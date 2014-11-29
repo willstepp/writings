@@ -353,6 +353,6 @@ Keep theological discussions somewhat generic. It almost shouldn't matter that J
 Grandpa is not well educated. Do not make him a mouthpiece for your ideas. Keep him real.
 
 
-This is not a Christian story even though it deals with a Christian minister.
+This is not a Christian story even though it deals with a Christian minister. You should be able to easily transplant the same story to Iran (Islam), India (Hinduism), or Japan (Buddhism). The fact Jacob is a Christian minister is not unimportant, but its more about his being a community moral leader, like ministers are in small southern towns. His beliefs should mostly fall into Christian mysticism.
 
 The fact that you are afraid to write this book is a good thing. It means you are in a strange land. The best work comes from exploration of the unknown. You know this from past experience. Do not fear being afraid. Fear not being afraid.
