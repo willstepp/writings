@@ -366,7 +366,9 @@ Joseph uses rusty knife
 
 What happens now 12-2-2014
 
-Pack of boys get off school bus and walk up dirt road. One of the boys is apart from the others. A dog appears on the road. They pressure him to place a clip on the dog’s tail. Get sticks and scare it as it runs around in circles. The pastor who lives nearby is feeding his chickens and stops them. Asks the boy his name. Joseph. “All of you, Jesse, Micah, Ryan. Got time to waste torturing this poor animal you got time to help the church prepare for Cornucopia. Tell your folks you need to be at my place tomorrow eight am sharp. That clear?”
+Pack of boys get off school bus and walk up dirt road. One of the boys is apart from the others. A dog appears on the road. They pressure him to place a clip on the dog’s tail. “Hey boy. Hey I said.” “Hey.” “Why you scared?” “I ain’t.” “Prove it then, chicken shit.” Get sticks and scare it as it runs around in circles. The pastor who lives nearby is feeding his chickens and stops them. Asks the boy his name. Joseph. “All of you, Jesse, Micah, Ryan. Got time to waste messing with this poor animal you got time to help get ready for Cornucopia. Tell your folks you need to be at my place tomorrow eight am sharp. Gonna stop by on my way back so you be sure to tell them. We clear?”
+
+“Clear.”
 
 “What’s your name, son?”
 
