@@ -356,3 +356,32 @@ Grandpa is not well educated. Do not make him a mouthpiece for your ideas. Keep 
 This is not a Christian story even though it deals with a Christian minister. You should be able to easily transplant the same story to Iran (Islam), India (Hinduism), or Japan (Buddhism). The fact Jacob is a Christian minister is not unimportant, but its more about his being a community moral leader, like ministers are in small southern towns. His beliefs should mostly fall into Christian mysticism.
 
 The fact that you are afraid to write this book is a good thing. It means you are in a strange land. The best work comes from exploration of the unknown. You know this from past experience. Do not fear being afraid. Fear not being afraid.
+
+
+
+What happens now 12-1-2014
+
+Grandpa and Joseph repair broken fence
+Joseph uses rusty knife
+
+What happens now 12-2-2014
+
+Pack of boys get off school bus and walk up dirt road. One of the boys is apart from the others. A dog appears on the road. They pressure him to place a clip on the dog’s tail. Get sticks and scare it as it runs around in circles. The pastor who lives nearby is feeding his chickens and stops them. Asks the boy his name. Joseph. “All of you, Jesse, Micah, Ryan. Got time to waste torturing this poor animal you got time to help the church prepare for Cornucopia. Tell your folks you need to be at my place tomorrow eight am sharp. That clear?”
+
+“What’s your name, son?”
+
+“Joseph.”
+
+“Where you live at?”
+
+“Up on the hill. Past the trailers.”
+
+“That old farmhouse? Thought that place was abandoned. You sure you live there?”
+
+“Yes, sir.”
+
+“Well, let’s walk. I want to speak to your daddy.”
+
+“Yes, sir.”
+
+“You lead the way.”
