@@ -387,3 +387,6 @@ Pack of boys get off school bus and walk up dirt road. One of the boys is apart 
 “Yes, sir.”
 
 “You lead the way.”
+
+
+Action and Dialogue. Action and Dialogue. That is where the story shines. Avoid narration, exposition. Avoid creating a space where *you* can express *your* ideas. If you need internal thoughts, temporarily allow the character to take control of the narrative.
