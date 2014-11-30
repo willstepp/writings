@@ -390,3 +390,7 @@ Pack of boys get off school bus and walk up dirt road. One of the boys is apart 
 
 
 Action and Dialogue. Action and Dialogue. That is where the story shines. Avoid narration, exposition. Avoid creating a space where *you* can express *your* ideas. If you need internal thoughts, temporarily allow the character to take control of the narrative.
+
+Write about places and people and situations that speak to you. Don't be bored with it or else the reader will also be bored.
+
+Take care to explore various locations, lead the reader through a world they don't yet know. Avoid repetition.
