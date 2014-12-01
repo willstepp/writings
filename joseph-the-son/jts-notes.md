@@ -394,3 +394,6 @@ Action and Dialogue. Action and Dialogue. That is where the story shines. Avoid 
 Write about places and people and situations that speak to you. Don't be bored with it or else the reader will also be bored.
 
 Take care to explore various locations, lead the reader through a world they don't yet know. Avoid repetition.
+
+
+A large hole in the roof, from a dead fallen tree. Grandpa has been trying to repair, but so far unsuccessful. Jacob suggests putting a tarp over it. Grandpa will not hear it.
