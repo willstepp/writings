@@ -362,7 +362,12 @@ The fact that you are afraid to write this book is a good thing. It means you ar
 What happens now 12-1-2014
 
 Grandpa and Joseph repair broken fence
-Joseph uses rusty knife
+Joseph uses rusty knife to some purpose
+split rail fence
+posts
+rails
+
+Cuts down tree, Splits log, drags it over on a tarp, its too long, trim it, chip down end, post slot, figure eight with twine. Joseph cuts it with the rusty blade.
 
 What happens now 12-2-2014
 
