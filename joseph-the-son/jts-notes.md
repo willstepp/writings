@@ -275,7 +275,7 @@ JOSEPH THE SON
 
 PART ONE:
 
-(4000) 1: Walking home from school, dog, minister Jacob, censure.
+(3000) 1: Walking home from school, dog, minister Jacob, censure.
     Introduction to Joseph, boys from trailer park (Jesse), Jacob
 
 (3000) 2: Going home with Jacob, speak with mother, invitation to fall festival. Flirtations. Car broken down, something simple but out of price range to fix. Jacob offers to fix. Drives it back to his place. “What a kind-hearted man.” Joseph runs to his room and weeps into the pillow.
@@ -287,7 +287,7 @@ PART ONE:
 
 (4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
 
-(4000) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room. "Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
+(4500) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room. "Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
 
 "Respectfully sir, you are mistaken. And I've dedicated my life to sharing the Good News that has been revealed to us through the life and death of our Savior, Jesus Christ. That is my belief."
 
@@ -303,7 +303,7 @@ PART TWO:
 
 (3000) 10: As they walk the dog home, at the church they see police cars, firefighters putting out a fire, a crowd. Arrive home to learn (somehow) that Jacob stabbed the youth minister to death, ran off with the youth minister’s wife and the $8700 dollars raised. Mother crying behind a door.
 
-(4000) 11: Joseph ties up dog but it runs off across the field. Joseph follows it past the point where he’s forbidden to go. Follows it into the woods. Is chased by a horse, deeper. Comes upon a lake. Grandfather there on a log. Tells grandfather what happened with Jacob. Mother wakes Joseph to tell him grandfather has passed away.
+(4500) 11: Joseph ties up dog but it runs off across the field. Joseph follows it past the point where he’s forbidden to go. Follows it into the woods. Is chased by a horse, deeper. Comes upon a lake. Grandfather there on a log. Tells grandfather what happened with Jacob. Mother wakes Joseph to tell him grandfather has passed away.
 
 (3000) 12: Falling snow. They bury grandfather next to his wife in the backyard. Hires the boys from the trailer park. They respect Joseph now. Margaret from church comes to tell them not to come around (in a nice way), tell about Jacob’s suicide in a rest area bathroom stall outside Birmingham.
 
@@ -359,7 +359,7 @@ The fact that you are afraid to write this book is a good thing. It means you ar
 
 
 
-What happens now 12-1-2014
+What happens now 12-1-2014 (1650)
 
 Grandpa and Joseph repair broken fence
 Joseph uses rusty knife to some purpose
@@ -369,7 +369,28 @@ rails
 
 Cuts down tree, Splits log, drags it over on a tarp, its too long, trim it, chip down end, post slot, figure eight with twine. Joseph cuts it with the rusty blade.
 
-What happens now 12-2-2014
+What happens now? 12-2-2014
+
+Old Hight Farm
+Boys walking home from school
+Jesse Black, Ignacio Gomez, Maurice Mayes
+Dirt road up to the trailer park
+New Calvary Baptist Church
+Oakwood Estates
+
+The long dirt road to Oakwood Estates
+Dippin
+“Pussy ass pussy.”
+One boy apart from the pack
+New Calvary / Pastor Jacob feeding the chickens
+The dog
+Pick up sticks and bang them to keep it in a circle
+Maurice has a paper clip, really strong grip
+They want Joseph to put it on the dog’s tail
+He does
+Dogs yelps and they keep it around, runs in circles. Boys laugh
+Joseph laughs
+Jacob runs up and removes the clip from the dog, tosses the sticks the boys carry.
 
 Pack of boys get off school bus and walk up dirt road. One of the boys is apart from the others. A dog appears on the road. They pressure him to place a clip on the dog’s tail. “Hey boy. Hey I said.” “Hey.” “Why you scared?” “I ain’t.” “Prove it then, chicken shit.” Get sticks and scare it as it runs around in circles. The pastor who lives nearby is feeding his chickens and stops them. Asks the boy his name. Joseph. “All of you, Jesse, Micah, Ryan. Got time to waste messing with this poor animal you got time to help get ready for Cornucopia. Tell your folks you need to be at my place tomorrow eight am sharp. Gonna stop by on my way back so you be sure to tell them. We clear?”
 

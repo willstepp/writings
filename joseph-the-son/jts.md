@@ -18,9 +18,9 @@ In them he placed a newly-sharpened ax, some length of twine, and a rolled up ta
 
 “Yes sir.”
 
-“Good boy. Want a biscuit?”
+“Biscuit?”
 
-He did.
+“Yes.”
 
 Grandpa buttered one of the drop biscuits Beth had made the day before, hardened now, but still edible. As Joseph could not carry the biscuit his grandfather placed it in his mouth.
 
@@ -56,7 +56,7 @@ Thirty minutes passed and the morning light shone through the bare branches. The
 
 And then it cracked. Joseph stood back and his grandfather put his boot on the chopped side and pushed.
 
-“Give it push, Joseph.”
+“Give it a push, Joseph.”
 
 They both pushed the tree hard and finally gave it enough momentum to tear. The tree cracked and fell slow and hard onto the ground, just missing a nearby oak.
 
@@ -88,10 +88,161 @@ Once finished, grandpa took a step back and asked Joseph to stand with him. They
 
 “Yeah,” Joseph agreed, without really knowing what he was agreeing to, so numb from the work.
 
-Grandpa laughed and put his arm around Joseph and hugged him tight.
-
-The sun was high overhead and it was even warm where they stood. The snow was beginning to melt. It never stayed in these parts. Joseph and his grandfather walked back to the house, where his mother had prepared a large breakfast for them both.
+Grandpa put his arm around Joseph and hugged him tight. The sun was high overhead and it was even warm where they stood. The snow was already beginning to melt. Snow never lasted more than a few days around those parts.
 
 
 JOSEPH THE SON
 Daniel Stepp
+
+
+PART ONE
+
+One
+
+Four boys got off a school bus at the end of the dirt road that led a quarter mile back to Oakwood Estates, a trailer park that had been built on the abandoned Hight Farm property decades ago. The bus used to drive all the way to the mailboxes, but it had been years since anyone had bothered to gravel the road and there were deep ruts in many spots and hollowed out places with standing water, some a few feet deep.
+
+Three of the boys walked together in a pack. The last followed behind at a distance that seemed conspicuously far.
+
+It was a cool day but not cold. There was a field to their left which connected to several pastures fenced off from the others. Horses and cows. Some bales of hay. A distant barn. On their right a line of pine packs and tall grass obscured what lay beyond, but it was no mystery to them. 
+
+At the corner of state road 53 and the dirt road was the local church, New Calvary Baptist Church. It was a plain brick and mortar building painted white. All church-going residents of Oakwood Estates attended New Calvary, which held services on Sunday morning and Wednesday evening. 
+
+Behind the church itself was a small house and farm where the Pastor lived, a man named Jacob Brumbalow. He had been the pastor here for the last few years, an Alabamian by birth, a fact he could never quite live down. He was out in the yard behind his house this afternoon walking among his chickens. He fed them handfuls from a small burlap bag and they pecked greedily at his feet. Jacob waved to the boys but none of the pack of three acknowledged his wave and the last only nodded.
+
+As soon as they were were sure Pastor Jacob could not see them, one of the boys in the pack of three pulled a round green can from his back pocket. He pinched off a plug of tobacco and passed the can around to the others. Soon after that he turned behind him and spit in the direction of the lone boy, giving him a hostile glare.
+
+One of the others noticed and looked back. He stopped momentarily. The other two stopped also.
+
+“Yo, want some dip?” The boy said. His name was Maurice Mayes, “It’s legit. Red Man Special.”
+
+“He don’t want no dip,” one of the others said, “Look at him. Fuckin mamas boy.”
+
+The boy looked at the ground and did not answer. He kept walking and when he reached the others he went wide around them. Now he was in front of them.
+
+The others grinned at one another and kept walking. The oldest boy, a fair-haired and lanky teen named Jesse Black picked up a rock and hurled it. The rock bounced off his heal, cutting him, but he did not, could not, acknowledge the pain.
+
+“Better watch out Jesse,” said the Mexican kid, Ignacio Gomez, “He’s liable to knock your ass out.”
+
+“He know better than that. He don’t wanna die.”
+
+The others laughed.
+
+“Pussy ass pussy,” Jesse spit on the ground.
+
+The lone boy, Joseph, kept walking at an even pace. Slowly the others caught up to him. They made fun of his jacket, his hair, the way he walked. Jesse in particular antagonized him with threats and got even angrier when Joseph did not respond.
+
+“Hey boy, I’m talking to you!” Jesse said, “Hey!”
+
+“Hey,” Joseph said at last, but that was all.
+
+Jesse stood in front of Joseph and both of them stopped. The others turned to watch.
+
+“You a smart ass or something? I’ll break your fuckin jaw.”
+
+Jesse took steps closer to Joseph, who continued to look at the ground in silence. He could smell a mixture of tobacco and body odor coming from Jesse and it made him want to wretch.
+
+“Look at me boy.”
+
+Joseph looked up and their eyes met. Jesse was taller, stronger, and his eyes meaner than his. They said nothing in words until the tension was unbearable.
+
+“Yo check out that dog, man,” Maurice suddenly said, breaking the tension, “Goddamn that’s an ugly dog. Where he came from I wonder?”
+
+The other boys, including Joseph, looked at what Maurice had found. There on the road, limping along, was a mutt of some kind. Mangy. About half dead.
+
+Jesse turned away from Joseph altogether and joined Maurice and Ignacio. They approached the dog from different angles, curious and cautious.
+
+“Here boy,” Ignacio said, holding out his hand, “You’re good. You’re good.”
+
+“Nice boy,” Maurice said.
+
+The dog was afraid of them. It tried to creep into the high grass to hide but was too slow. Jesse jumped behind it and scared it in the other direction. Towards Joseph.
+
+“Don’t let him get away!” Maurice shouted at Joseph.
+
+Joseph, not knowing what to do, blocked the dog from sneaking around him. It was too weak to bite. You could see its ribs on the underbelly.
+
+Now the others encircled the mutt in each direction. It turned to see that it was trapped. Ignacio grabbed some sticks from a pile of brush and tossed them to the others, to Joseph.
+
+“Keep him still,” Maurice said, “Don’t let him get past you.”
+
+“That’s the game,” Ignacio said, laughing.
+
+“If he gets by you,” Maurice hesitated, a loss of words.
+
+“If he gets by you what?” Jesse said.
+
+“If he gets by you, you gotta suck Pastor Jacob’s dick.”
+
+The boys all laughed.
+
+“And his chickens,” Ignacio said.
+
+As the mutt approached any one of them he batted his stick on the ground and that frightened it in the opposite direction. After a few minutes of this it became clear they would be there for a long time if that was the only game to be played. But no boy wanted to be the one to let the dog get away.
+
+Joseph caught eyes with Jesse and saw hostility. They were not friends. Their confrontation from minutes ago was not forgotten in his eyes. He felt strange. Outside himself. But laughed along with them as if he were one of them.
+
+At that point Ignacio let his guard down and the dog slipped by him and scurried further down the road.
+
+“Get him!”
+
+“Shit, don’t let him get away!”
+
+One of the dog’s feet was injured so it wasn’t hard to get around in front of him and block the way. Joseph and Jesse ran the fastest. Maurice grabbed his book bag and stood behind, while Ignacio came around the side. Before long they had the dog encircled once again.
+
+Maurice said, “This game old man. How bout we do something else? I got an idea.”
+
+“What you got?”
+
+Maurice reached behind him and unzipped the small pouch on his bag. He pulled out a small binder clip.
+
+“Okay,” he said, “This is the game. One of you has to put this clip on that dogs tail. Whoever does that is the bravest motherfucker out here.”
+
+“Man, you’re crazy,” Ignacio said, “that dog will bite the shit out of you, if you get that close. Look how mad he is already. Fuck that.”
+
+“Pussy,” Jesse said, taunting him.
+
+“You do it,” Ignacio said.
+
+“I ain’t stupid.”
+
+“Look,” Maurice said, “I got five dollars whoever do it.”
+
+“Quit lyin.”
+
+“For real. Mom gave me cash for meal tickets this week but I didn’t buy them yet.”
+
+“No, I know,” Jesse said, “let this new guy do it. He has to do it. Neighborhood code.”
+
+“Oh,” Ignacio said, nodding, “Yeah, neighborhood code. New guy has to do it. Initiation.”
+
+Joseph looked at the others, at the clip, and at the dog.
+
+“No way. I can’t do that.”
+
+“Why not?” Jesse said, “You chickenshit?”
+
+“I ain’t chickenshit.”
+
+“Then prove it, son,” Maurice said.
+
+“Yeah prove it,” Ignacio repeated.
+
+Joseph looked down the road. He was still far from the old farmhouse where his family lived. Those boys could catch him for sure if he bolted now. And he felt sure they would chase him. Something in their eyes told him. And a part of him wanted to belong, wanted to show them he wasn’t chickenshit.
+
+He took the clip from Maurice as the others circled tighter around the dog. He had to squeeze with most fingers against his palm to apply enough force to open the clip. The dog looked up in fear at each of them. Joseph took a cautious step forward, awaiting the right moment when the dog’s tail was nearest to him.
+
+“Damn, shit’s about to get real.”
+
+“Do it pussy.”
+
+It only took a second for him to reach down and clip the tail, and it caught somewhere in the middle. Gripped it good. The dog immediately panicked and yelped in a high pitch that echoed across the empty field. They boys jumped backwards and stood there watching. Laughing.
+
+Round and round the dog spun, biting at its tail, but it was no good. The clip had a good five pounds of pressure on it, and the dog could not reach it as high up as it was. It growled and yelped until it wore itself out, and then it kept going.
+
+Joseph looked at the dog in horror. He wanted to help it but as fast as it was spinning there was nothing to be done. It would bite for sure now, and bite hard. For survival. So he did nothing except laugh along with the others.
+
+Then somewhere up the road they heard a voice shouting, the pastor Jacob had heard the dog in pain and ran up to meet them.
+
+“What’s going on here? What have you done?”
+
+As soon as he saw the dog he knelt beside it on one knee and gripped it hard around the torso, removing the clip and releasing the dog in one movement. And just like that, the dog was gone. Disappeared into the grass and trees.
