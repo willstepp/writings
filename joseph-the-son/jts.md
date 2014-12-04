@@ -1,4 +1,4 @@
-It was still dark when grandpa Ken came to wake him. 
+It was still dark when grandpa came to wake him. 
 
 “Be sure and put on your long johns,” he whispered, “and try not to wake up Lizzie, hear?”
 
@@ -88,16 +88,13 @@ Once finished, grandpa took a step back and asked Joseph to stand with him. They
 
 “Yeah,” Joseph agreed, without really knowing what he was agreeing to, so numb from the work.
 
-Grandpa put his arm around Joseph and hugged him tight. The sun was high overhead and it was even warm where they stood. The snow was already beginning to melt. Snow never lasted more than a few days around those parts.
+The sun was high overhead and it was even warm where they stood together, admiring the morning’s work. The snow was already beginning to melt, cold drops of moisture glistening in the winter sunlight.
 
 
 JOSEPH THE SON
 Daniel Stepp
 
-
-PART ONE
-
-One
+Chapter One
 
 Four boys got off a school bus at the end of the dirt road that led a quarter mile back to Oakwood Estates, a trailer park that had been built on the abandoned Hight Farm property decades ago. The bus used to drive all the way to the mailboxes, but it had been years since anyone had bothered to gravel the road and there were deep ruts in many spots and hollowed out places with standing water, some a few feet deep.
 
@@ -115,19 +112,17 @@ One of the others noticed and looked back. He stopped momentarily. The other two
 
 “Yo, want some dip?” The boy said. His name was Maurice Mayes, “It’s legit. Red Man Special.”
 
-“He don’t want no dip,” one of the others said, “Look at him. Fuckin mamas boy.”
+“He don’t want no dip,” one of the others said, “Look at him. He a mamas boy.”
 
 The boy looked at the ground and did not answer. He kept walking and when he reached the others he went wide around them. Now he was in front of them.
 
 The others grinned at one another and kept walking. The oldest boy, a fair-haired and lanky teen named Jesse Black picked up a rock and hurled it. The rock bounced off his heal, cutting him, but he did not, could not, acknowledge the pain.
 
-“Better watch out Jesse,” said the Mexican kid, Ignacio Gomez, “He’s liable to knock your ass out.”
+“Better watch out Jesse,” said the Mexican kid, Ignacio Gomez, “He’s liable to knock you out.”
 
 “He know better than that. He don’t wanna die.”
 
 The others laughed.
-
-“Pussy ass pussy,” Jesse spit on the ground.
 
 The lone boy, Joseph, kept walking at an even pace. Slowly the others caught up to him. They made fun of his jacket, his hair, the way he walked. Jesse in particular antagonized him with threats and got even angrier when Joseph did not respond.
 
@@ -137,7 +132,7 @@ The lone boy, Joseph, kept walking at an even pace. Slowly the others caught up 
 
 Jesse stood in front of Joseph and both of them stopped. The others turned to watch.
 
-“You a smart ass or something? I’ll break your fuckin jaw.”
+“You a smart alec or something? I’ll break your fuckin jaw.”
 
 Jesse took steps closer to Joseph, who continued to look at the ground in silence. He could smell a mixture of tobacco and body odor coming from Jesse and it made him want to wretch.
 
@@ -145,7 +140,7 @@ Jesse took steps closer to Joseph, who continued to look at the ground in silenc
 
 Joseph looked up and their eyes met. Jesse was taller, stronger, and his eyes meaner than his. They said nothing in words until the tension was unbearable.
 
-“Yo check out that dog, man,” Maurice suddenly said, breaking the tension, “Goddamn that’s an ugly dog. Where he came from I wonder?”
+“Yo check out that dog, man,” Maurice suddenly said, breaking the tension, “That’s an ugly dog. Where he came from I wonder?”
 
 The other boys, including Joseph, looked at what Maurice had found. There on the road, limping along, was a mutt of some kind. Mangy. About half dead.
 
@@ -171,11 +166,9 @@ Now the others encircled the mutt in each direction. It turned to see that it wa
 
 “If he gets by you what?” Jesse said.
 
-“If he gets by you, you gotta suck Pastor Jacob’s dick.”
+“If he gets by you, you gotta lick a cat’s butthole.”
 
 The boys all laughed.
-
-“And his chickens,” Ignacio said.
 
 As the mutt approached any one of them he batted his stick on the ground and that frightened it in the opposite direction. After a few minutes of this it became clear they would be there for a long time if that was the only game to be played. But no boy wanted to be the one to let the dog get away.
 
@@ -185,7 +178,7 @@ At that point Ignacio let his guard down and the dog slipped by him and scurried
 
 “Get him!”
 
-“Shit, don’t let him get away!”
+“Don’t let him get away!”
 
 One of the dog’s feet was injured so it wasn’t hard to get around in front of him and block the way. Joseph and Jesse ran the fastest. Maurice grabbed his book bag and stood behind, while Ignacio came around the side. Before long they had the dog encircled once again.
 
@@ -195,11 +188,11 @@ Maurice said, “This game old man. How bout we do something else? I got an idea
 
 Maurice reached behind him and unzipped the small pouch on his bag. He pulled out a small binder clip.
 
-“Okay,” he said, “This is the game. One of you has to put this clip on that dogs tail. Whoever does that is the bravest motherfucker out here.”
+“Okay,” he said, “This is the game. One of you has to put this clip on that dogs tail. Whoever does that is the bravest one.”
 
-“Man, you’re crazy,” Ignacio said, “that dog will bite the shit out of you, if you get that close. Look how mad he is already. Fuck that.”
+“Man, you’re crazy,” Ignacio said, “that dog will bite the hell out of you, if you get that close. Look how mad he is already.”
 
-“Pussy,” Jesse said, taunting him.
+“Scared,” Jesse said, taunting him.
 
 “You do it,” Ignacio said.
 
@@ -227,13 +220,13 @@ Joseph looked at the others, at the clip, and at the dog.
 
 “Yeah prove it,” Ignacio repeated.
 
-Joseph looked down the road. He was still far from the old farmhouse where his family lived. Those boys could catch him for sure if he bolted now. And he felt sure they would chase him. Something in their eyes told him. And a part of him wanted to belong, wanted to show them he wasn’t chickenshit.
+Joseph looked down the road. He was still far from the old farmhouse where his family lived. Those boys could catch him for sure if he bolted now. And he felt sure they would chase him. Something in their eyes told him. And a part of him wanted to belong, wanted to show them he wasn’t afraid.
 
 He took the clip from Maurice as the others circled tighter around the dog. He had to squeeze with most fingers against his palm to apply enough force to open the clip. The dog looked up in fear at each of them. Joseph took a cautious step forward, awaiting the right moment when the dog’s tail was nearest to him.
 
-“Damn, shit’s about to get real.”
+“This about to get real.”
 
-“Do it pussy.”
+“Do it, chickenshit.”
 
 It only took a second for him to reach down and clip the tail, and it caught somewhere in the middle. Gripped it good. The dog immediately panicked and yelped in a high pitch that echoed across the empty field. They boys jumped backwards and stood there watching. Laughing.
 
@@ -241,8 +234,161 @@ Round and round the dog spun, biting at its tail, but it was no good. The clip h
 
 Joseph looked at the dog in horror. He wanted to help it but as fast as it was spinning there was nothing to be done. It would bite for sure now, and bite hard. For survival. So he did nothing except laugh along with the others.
 
-Then somewhere up the road they heard a voice shouting, the pastor Jacob had heard the dog in pain and ran up to meet them.
+Then somewhere up the road they heard a voice shouting. The pastor Jacob had heard the dog in pain and ran up to meet them.
 
-“What’s going on here? What have you done?”
+“What’s going on here?” Jacob shouted, “What have you boys done?”
 
-As soon as he saw the dog he knelt beside it on one knee and gripped it hard around the torso, removing the clip and releasing the dog in one movement. And just like that, the dog was gone. Disappeared into the grass and trees.
+As soon as he saw the dog, he knelt beside it on one knee and gripped it hard around the torso, removing the clip and releasing the dog in one movement. And just like that the dog was gone, vanishing into the high yellow grass. The pastor held up the binder clip and showed it to them. He then heaved it into the tree packs where it could never be found.
+
+Jacob stood tall. His eyes lifted towards those gray November skies. And then he shut them as if in prayer. At the horizon a mid-afternoon sunlight fell sharply across the landscape and lit everything unnaturally bright. The pastor’s hands were covered in grime and there was a wound on his left palm. Blood from it intermingled with the grease and dirt and ran a thin river up his forearm. He wrung both hands together, unaware of the injury he had sustained. His breathing was slow, but deep. He did not address the boys right away. He only stood there in a kind of reverie.
+
+A small wind rustled the leaves on the ground and swept across the field grass.
+
+None of the boys dared to speak. Not amongst themselves and not to pastor Jacob. The wild mood from before was gone and it had been replaced with a certain kind of silence. A stillness. Joseph caught eyes with Jesse who immediately looked away. The others stared at the ground.
+
+Then Pastor Jacob opened his eyes and looked at each one of them. Then he spoke.
+
+“Augustine, the Saint, wrote that if it were possible for every sound to become silent and for every movement to become still, in all of creation, then the truth of our existence would be revealed to us. Everything would speak at once, in the same voice. We did not create ourselves. We were made by Him who abideth in Eternity.”
+
+“Creation. You. Me. This dirt road at our feet. The grass. The clouds. The sun. Those chickens. That poor dog. There is a kinship here. It is deeper than species. It is deeper than blood. There is an understanding of life that cannot be taught. It must be understood. You Jesse and you Maurice, you Ignacio, and you, what is your name, son?”
+
+“Joseph.”
+
+“You Joseph, all of you boys are a part of this world. And you share a kinship with everything you meet under the one Creator. And what is your duty towards your kin?”
+
+None of the boys would speak, and after a long period of silence Jacob continued.
+
+“Your duty to your kin is to protect them. To shelter them from harm. Human beings have powerful, powerful minds and we have constructed elaborate systems in the forms of laws and religions to convince ourselves we are not responsible for all, only those of our own species, family, race, culture, religion, society. But that is the lie. That is the lie and each man knows it from the bottom of his heart. And it is a great sin.”
+
+Jacob was breathless for a moment, lost in another world somewhere. As he returned to the dirt road beside the field, among the four boys, he looked around, stupefied. Unaware of his surroundings.
+
+The boys all looked at the ground. All but one. Joseph was looking right into his eyes and they connected.
+
+“I understand you.”
+
+The pastor kneeled beside Joseph and gazed sincerely at him. Joseph did not look away.
+
+“Yes,” Jacob smiled, clasping one hand around his shoulder and gently squeezing, “I see by your eyes that you do.”
+
+“You boys,” Jacob said, rising from his knee, “there is work to be done for Cornucopia and I think it would be a good thing in light of what happened today for each of you to come work on the church grounds this weekend, at my farm. Tell your folks I said so. I’ll be coming around your houses this evening to make sure you told.”
+
+The tone of Jacob’s voice had returned to normal. He came back from the place of inspiration from which he had just been speaking from. The boys noticed and respected his sincerity and the authority he commanded. They nodded in unison and turned down the road towards Oakwood Estates. Joseph followed them but the pastor stopped him.
+
+“Joseph, wait just a minute, please.”
+
+“Sir?”
+
+“I don’t know your folks, I don’t believe. Do you live in Oakwood? Are you new to the area?”
+
+“I live in the house on the hill, past the trailer park. We moved there a couple months ago.”
+
+“The old Hight Farm house? I didn’t think that place was habitable anymore. Looks abandoned.”
+
+“Yes sir. It needs work.”
+
+“I suppose so. Don’t think anyone’s lived there for years.”
+
+Jacob looked past the trailer park and saw the old farmhouse up on the rise.
+
+“Well,” he said, “I’d like to introduce myself to your folks and tell them about what I saw today. I’d like to speak to your daddy. Do you mind if I walked with you home?”
+
+“Yes sir. I mean, no sir. I don’t mind.”
+
+Jacob smiled. He ruffled the hair on Joseph’s head. Joseph smiled back at him.
+
+“You lead the way then.”
+
+They both set off in the direction of the trailer park and the old farmhouse, not too far behind the other boys.
+
+
+
+Chapter Two
+
+
+A woman came to the screen door and was surprised to see her son standing there with a strange man in work clothes. Jacob nodded to her and Joseph tried not to make eye contact. She opened the door part way and motioned for Joseph to come to her side. Not wanting her to get the wrong impression, Jacob spoke first.
+
+“Ma’am, I’m sorry to interrupt your day. I was wondering if I might speak to the boy’s father for just a moment. There was an incident on the road just now and Joseph-“
+
+“I’m the boy’s mother and you may speak with me if you like. His father is not around, I’m afraid.”
+
+Jacob frowned. He placed his hands deep in both pockets and looked at his shirt.
+
+“Ma’am, I feel like an utter fool. It was presumptuous of me to bypass your authority. Please forgive me.”
+
+Joseph’s mother opened the door further. She looked at the man and then at Joseph, trying to make sense of things.
+
+“I’m Beth. Beth Hight.”
+
+“Jacob Brumbalow. Pastor in residence at New Calvary Baptist Church, right at the end of the road.”
+
+“Oh yes, New Calvary. Of course I know the place. My co-worker Elise goes there.”
+
+“Elise Mullins?”
+
+“That’s right.”
+
+“A good family, the Mullins.”
+
+“She’s a sweet lady.”
+
+“Yes ma’am.”
+
+A moment of reflection and their attention returned to Joseph. Beth opened the door and came out onto the porch.
+
+“Ma’am, about your son. I don’t want to keep you, but I felt compelled to let you know what happened.”
+
+“Please do, Pastor. I hope nothing serious.”
+
+She gave Joseph a stern glance and Joseph shrugged.
+
+“Your son and a few other boys from Oakwood Estates were torturing a stray dog there on the road. I saw them from my farm while I was feeding my chickens. They had sticks and one of the boys had put one of those clip binders on its tail. Thing was spinning in circles trying to get it loose. It was in a lot of pain.”
+
+“Oh my Lord,” Beth said, turning to Joseph, “You are not raised like that, young man. We don’t torture animals. You are better than that. You hear me?”
+
+Joseph did not answer. Beth was visible upset and faced Jacob.
+
+“Mr. Brumbalow, I am so sorry. I want to thank you for stopping them and for taking the time to walk up here and let me know. He  really is not like that. I don’t know what to say exactly.”
+
+“Ma’am, please don’t feel you have to say anything. I will be honest. After talking with Joseph I think he just fell in with the wrong group of boys this time. Joseph has a good heart. He’s not like those other boys, Jesse Black and his gang. He has a heart that walks with God. Anybody can see that.”
+
+Beth blushed at his sincerity. She pulled Joseph closer to her, but he pulled away.
+
+“Thank you for saying that, Mr. Brumbalow.”
+
+“Please call me Jacob.”
+
+“Thank you, Mr. Jacob.”
+
+Silence, then she said, “May I get you something to drink before you go? We have coffee and tea. Maybe coke.”
+
+“I never turn down a cup of coffee, especially on days like this. It’s not cold per se but if you stay outdoors long enough the chill gets inside your bones.”
+
+“I know just what you mean. It’s colder than a witches titty around here lately.”
+
+Joseph laughed and looked embarrassed. Jacob laughed too. Beth went inside while Joseph and Jacob lingered on the porch. 
+
+Jacob admired the build of the house, a depression era architecture, simple wood frame, not much changed from its original materials. Much that was not painted was dry-rotted and what was painted was chipped and flaking off. The years of neglect were apparent. On the porch was a strange rocking chair with tire treads for rockers and a two-person swing that had fallen, a rusty single-gear bicycle, and some coffee tins that had been obviously been used for target practice a long time ago.
+
+Beth called out from the kitchen, “How do you take it, Mr. Jacob?”
+
+“Two sugars, no cream.”
+
+A minute later Beth emerged with two mugs, steaming. She handed one to Jacob and set the other on a nearby window ceil. Turning to Joseph, who was not paying attention to their conversation anymore, “Why don’t you go mind Lizzie for awhile.”
+
+Joseph nodded and headed indoors, but his mother stopped him.
+
+“Tell Mr. Jacob you are sorry.”
+
+Joseph went to Jacob and met his expectant eyes.
+
+“I’m sorry for what I did.”
+
+“You are forgiven, Mr. Joseph. I will see you bright and early tomorrow?”
+
+“Tomorrow for what?” Beth asked.
+
+“Forgive me again, Ms. Hight. We need some help to prepare for our Fall Festival upcoming and I figured some manual labor could do these boys some good.”
+
+“Say no more. Joseph will be there. Won’t you Joseph?”
+
+“Yes, ma’am.”

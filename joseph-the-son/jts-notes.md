@@ -275,11 +275,14 @@ JOSEPH THE SON
 
 PART ONE:
 
-(3000) 1: Walking home from school, dog, minister Jacob, censure.
+(2500) 1: Walking home from school, dog, minister Jacob, censure.
     Introduction to Joseph, boys from trailer park (Jesse), Jacob
 
 (3000) 2: Going home with Jacob, speak with mother, invitation to fall festival. Flirtations. Car broken down, something simple but out of price range to fix. Jacob offers to fix. Drives it back to his place. “What a kind-hearted man.” Joseph runs to his room and weeps into the pillow.
-  Introduction to Beth, Kenneth, and Lizzie (you're bald)
+	On the Porch
+	Speak with Mother
+  Introduction to house, Kenneth, and Lizzie (you're bald)
+	The Car
 
 (4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?"
 
@@ -287,7 +290,7 @@ PART ONE:
 
 (4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
 
-(4500) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room. "Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
+(5000) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room. "Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
 
 "Respectfully sir, you are mistaken. And I've dedicated my life to sharing the Good News that has been revealed to us through the life and death of our Savior, Jesus Christ. That is my belief."
 
@@ -423,3 +426,17 @@ Take care to explore various locations, lead the reader through a world they don
 
 
 A large hole in the roof, from a dead fallen tree. Grandpa has been trying to repair, but so far unsuccessful. Jacob suggests putting a tarp over it. Grandpa will not hear it.
+
+Action and Dialogue, some description. Avoid narration and exposition! You haven’t been doing that and the story is sucking because of it. As punishment you are going to sit down this weekend and revise the first week’s work. Don’t be disheartened. There are moments of good. Your writing should be solid. True.
+
+What happens now? 12-3-2014
+
+Jacob censures the boys. He expresses something from the heart, that all life is our brothers. You are the caretaker of every thing you meet. We did not make ourselves. We were made by Him that abideth in Eternity. Silence. A kinship that is deeper than blood, deeper than species. What does the silence tell us? Distraction. I don’t talk plainly, I know.
+
+“I understand you.”
+
+“I see by your eyes that you do.”
+
+Wants to speak with Joseph’s father. Tells the other boys to get home, he’ll visit them afterwards.
+
+Punishment work off
