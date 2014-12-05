@@ -273,7 +273,7 @@ JOSEPH THE SON
 (1500) Prologue:
 	Joseph and grandfather repair fence on a snowy day.
 
-PART ONE:
+PART ONE (28000):
 
 (2500) 1: Walking home from school, dog, minister Jacob, censure.
     Introduction to Joseph, boys from trailer park (Jesse), Jacob
@@ -283,10 +283,15 @@ PART ONE:
 	Speak with Mother
   Introduction to house, Kenneth, and Lizzie (you're bald)
 	The Car
+	Joseph helps to get the car down to Jacob’s farm
+	“You’re bald.”
+	“That’s why I grow this long beard.”
+	“What a kind-hearted man.”
+	Hugs Joseph. He pulls away.
 
-(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?"
+(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?" Comes home and sees his family playing together. Realizes its something he cannot possess. Sadness.
 
-(4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Margaret weeps out loud.
+(4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Elise Mullins weeps out loud.
 
 (4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
 
@@ -298,7 +303,7 @@ PART ONE:
 
 (4000) 7: Hunting for clues with Lizzie on Jacob’s farm. Uses knife for something. Onto road. Back home, grandpa takes to feed horses, Joseph breaks fence. “We’ll fix it tomorrow.” “You’re old enough for this now.” Grandpa gives rusty pocket knife. Joseph rises in the night and buries Jacob’s new knife forever. Looks up at the stars, imagines what it must be like on Jupiter (unnamed).
 
-PART TWO:
+PART TWO (22000):
 
 (3000) 8: Car breaks down. Something more serious this time. Jacob comes over to take a look. Will cost more to fix than the car is worth. “With the money we have raised we can buy you a new car also.” Joseph sees Jacob kissing his mother. Becomes angry. Mother tells hims his father is not coming back.
 
@@ -440,3 +445,14 @@ Jacob censures the boys. He expresses something from the heart, that all life is
 Wants to speak with Joseph’s father. Tells the other boys to get home, he’ll visit them afterwards.
 
 Punishment work off
+
+
+What happens now? 12-4-2014
+
+Beth shows Jacob the farm house, outside, the oak tree that has fallen through the roof. Tells him the history of the farm, Ken being sick, Will leaving for work in North Dakota. Joseph watches from the windows. Single. Jacob expresses concern how the place is warmed. The car.
+
+Purpose of this scene is to show their poverty, desperate living conditions. That Joseph is fatherless.
+
+Will left last year. Had to move in with grandpa when he got sick. Water on the brain (Hydrocephalus). No money. Just a pager number. Beth works at Piggly Wiggly.
+
+THE FIRE THAT JACOB SETS BURNS OUT BEFORE BURNING DOWN THE CHURCH

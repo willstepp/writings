@@ -94,6 +94,7 @@ The sun was high overhead and it was even warm where they stood together, admiri
 JOSEPH THE SON
 Daniel Stepp
 
+
 Chapter One
 
 Four boys got off a school bus at the end of the dirt road that led a quarter mile back to Oakwood Estates, a trailer park that had been built on the abandoned Hight Farm property decades ago. The bus used to drive all the way to the mailboxes, but it had been years since anyone had bothered to gravel the road and there were deep ruts in many spots and hollowed out places with standing water, some a few feet deep.
@@ -321,13 +322,13 @@ Joseph’s mother opened the door further. She looked at the man and then at Jos
 
 “Jacob Brumbalow. Pastor in residence at New Calvary Baptist Church, right at the end of the road.”
 
-“Oh yes, New Calvary. Of course I know the place. My co-worker Elise goes there.”
+“Oh yes, New Calvary. Of course I know the place. My co-worker Margaret goes there.”
 
-“Elise Mullins?”
+“Margaret Foy?”
 
 “That’s right.”
 
-“A good family, the Mullins.”
+“A good family, the Foys.”
 
 “She’s a sweet lady.”
 
@@ -365,7 +366,7 @@ Silence, then she said, “May I get you something to drink before you go? We ha
 
 “I know just what you mean. It’s colder than a witches titty around here lately.”
 
-Joseph laughed and looked embarrassed. Jacob laughed too. Beth went inside while Joseph and Jacob lingered on the porch. 
+Joseph was embarrassed. Jacob laughed. Beth disappeared inside while Joseph and Jacob lingered on the porch. They did not speak.
 
 Jacob admired the build of the house, a depression era architecture, simple wood frame, not much changed from its original materials. Much that was not painted was dry-rotted and what was painted was chipped and flaking off. The years of neglect were apparent. On the porch was a strange rocking chair with tire treads for rockers and a two-person swing that had fallen, a rusty single-gear bicycle, and some coffee tins that had been obviously been used for target practice a long time ago.
 
@@ -387,8 +388,153 @@ Joseph went to Jacob and met his expectant eyes.
 
 “Tomorrow for what?” Beth asked.
 
-“Forgive me again, Ms. Hight. We need some help to prepare for our Fall Festival upcoming and I figured some manual labor could do these boys some good.”
+“Forgive me again, Ms. Hight. We need some help to prepare for our Fall Festival upcoming and I figured some manual labor might do these boys some good. I’m sorry if I’m overstepping my boundaries.”
 
-“Say no more. Joseph will be there. Won’t you Joseph?”
+“Say no more. He’ll be there. Won’t you Joseph?”
 
 “Yes, ma’am.”
+
+Joseph went indoors, leaving Jacob and Beth on the porch. With him gone neither seemed sure where to take the conversation. Jacob studied the porch as if he were a carpenter. Beth watched him and nervously looked to see if Joseph was still in the kitchen, but he wasn’t.
+
+“Boy I tell you-“ Jacob began.
+
+“What’s that?”
+
+“Well I was just going to say,” Jacob started again, not put off by the interjection, “They sure don’t build them like this anymore.”
+
+“I guess not.”
+
+“This is something else. Like looking at history. Like time travel. In this country our buildings are tore down and rebuilt so often its rare to see a place that’s been around like this one. This must be from the depression, at least.”
+
+“I don’t really know. It looks it for sure.”
+
+Jacob laughed, “Well, that’s to be expected. Would you mind if I took a walk around to check it out?”
+
+“Well, okay. I’ll walk with you.”
+
+The pastor stepped aside to allow Beth to descend the steps first and then followed, still admiring the porch framework.
+
+They walked around the East side where a small shed sat close to the woods. There was an old Ford tractor half-covered with a canvas tarp under a makeshift work area. Jacob took off in that direction.
+
+“Do you know what this is?”
+
+“I don’t guess.”
+
+“This is a Ford 9N. From the forties. Does it run?”
+
+“I have no idea. My guess would be no.”
+
+Jacob returned, glancing back at it. They continued around. He kept close to the house, admiring it, inspecting the little details. The wood around the base of the house was overgrown with lichens, clearly rotted away. The once white paint was cracked all over, dried into tiny shards that peeled off with your fingernail. The windows covered in a milky haze.
+
+“Not sure why you’re so impressed with this place.”
+
+Jacob stopped to consider her words and then replied, “I guess I’ve always been attracted to places like this. Abandoned factories, ruins of old towns, deserted Main Streets. You know? It seems a strange thing to love them. But I do. It makes me feel connected to the transience of all worldly things. In that way I feel closer to God.”
+
+Beth had no reply. Jacob seemed embarrassed to have revealed it to her. They continued walking.
+
+In the back of the house there was a small porch area with an iron table and chairs and some brick steps leading to the back entryway. But what stood out was a massive Water Oak tree that rested against the side of the house, collapsing the upper side where wall met roof. The tree was dried and rotted through. Clearly this had occurred years ago. A few small branches lay in a pile next to the tree, recently cut. Against the house was an ax.
+
+“Would you look at that.”
+
+“I guess you’re wondering why on Earth we’d move into a house in this condition?”
+
+“Among other things,” said Jacob, ducking under the trunk and walking the length of the tree to the exposed roots.
+
+She joined him there and they both looked up the length of the tree where it spread into a fan of dead limbs and twigs, leaves. It almost seemed to be a part of the roof whose shingles were peeled off in places, as dry and old as the tree.
+
+“Why do you live here?” Jacob asked.
+
+“Necessity. This is my father-in-law’s farm. Ken Hight. He sold off this land in pieces throughout the sixties and seventies, then moved out all together in the late eighties. After my husband Will left for an oil field job in North Dakota last year and never came back, Mr. Hight became sick, so sick he couldn’t care for himself anymore. Water on the brain, you know. There is a name for it, but I don’t remember-”
+
+“Hydrocephalus,” Jacob said, “my uncle had it. There is treatment though, if I remember right.”
+
+“If you are a sensible person, sure. But I guess you haven’t met Mr. Ken Hight.” 
+
+Beth laughed, but there was no joy in it. Jacob smiled kindly, his eyes drawn down.
+
+“Drafty?”
+
+“Like you wouldn’t believe. There is a wood stove in the kitchen. I think we’ll do okay through the winter. I hope we do okay. Mr. Hight has his days where he is good and speaks clearly, has energy. He’ll take Joseph and cut firewood. Make plans to patch the roof. We had to move here. It was the only place Mr. Ken still owned after his other house foreclosed. We had to move out of ours too. I just couldn’t make the bills with only my paycheck. Not with mouths to feed too.”
+
+“You live here with Mr. Hight and Joseph?”
+
+“And Lizzie, my four year old. And she’s a handful all by herself.”
+
+“I bet. I know how that is.”
+
+“How old are your kids?”
+
+“Oh, I don’t have children. So far in life I am married to the church, as they say. Not that Southern Baptist Pastors can’t marry and have kids. We aren’t Catholic praise Jesus.”
+
+“I see,” Beth giggled. She avoided continuing down that line of conversation and returned to the house, “So, we’re making it work, I guess. Doing the best with what we got.”
+
+“Yes, ma’am. Jacob nodded. 
+
+Beth tried not to make eye contact with him, her eyes wet. She rubbed them and then laughed again unexpectedly.
+
+“I think we might have eavesdroppers.”
+
+Jacob looked to where Beth was pointing and saw Joseph and a little girl staring out of a small window on the corner of the house. The girl waved. Joseph only watched.
+
+“Is that Lizzie then?”
+
+“That’s my little monster.”
+
+“She’s a cutie.”
+
+“Thank you.”
+
+Beth waved back at them and then turned to the fence and a large field that went back for acres. She gestured to it and Jacob followed with his eyes.
+
+“All of this was Hight Farm. And more. Hundreds of acres. If Mr. Ken hadn’t sold off this property there’s not telling how much it’d be worth nowadays the way the prices are shooting up. Now all that’s left is from here to that fence and then in front down to the trailer park. A good piece of land I suppose, but a lot of work to be done to get it back in shape.”
+
+“That it is.”
+
+Next to the roots was a small marker stone, faded and covered with dry dirt, grass high obscuring the words.
+
+“Who is buried here?”
+
+“That is Mr. Hight’s first wife, Carol. She died from breast cancer in nineteen sixty three. I always remember the date because that’s when I was born. I’m sure it says on the marker there, but you can’t see it.”
+
+They continued around the house and Jacob briefly caught a glimpse into the den, where he saw an old man in a robe on a recliner. The man was not doing anything. Not reading. Not watching television. Not even thinking from all appearances. He just stared into space. His gray hair disheveled, his whiskers long skin papery and pale. Alone in the dim room.
+
+When they came around again to the front Jacob did not walk onto the porch. He started towards the drive where a beat up old car sat uneven, one of the tires low.
+
+“Ms. Hight, thank you for taking the time to talk with me today and for showing me your house. I don’t want to take up any more of your time.”
+
+“Oh, its not a bother. I like the company. And please call me Beth. I don’t deserve that formality.”
+
+Jacob smiled.
+
+“Even so, ma’am. I mean Beth. Please tell Joseph to be at my place at eight am. Just behind the church there. I’m gonna go see about those other boys too, before it gets too dark.”
+
+Beth nodded. Jacob did not quite know how to end the conversation gracefully, so he glanced over to the car and decided to make small talk about it.
+
+“Chevy Vega. I haven’t seen one of these in years. Run good?”
+
+“Don’t run at all, at the moment. You don’t know anything about cars do you? That’s my only transportation. Gave out a week ago. Been hitching rides to work since then.”
+
+“I know a little bit,” Jacob grinned, “Mind if I pop the hood?”
+
+He opened the door and reached in to unlatch the hood, then walked over and propped it open. He leaned inside and did some quick diagnostic work, checked the fluids, belts, hoses.
+
+“Mr. Ken looked and thought it might be the water pump. Whatever he thought was expensive, a few hundred dollars to fix and we don’t have that kind of money.”
+
+“Yeah, water pump’ll run you. Might get a good deal at a junk yard though. Hard to tell right off. Does it run at all?”
+
+“It starts but don’t run well, kind of sputters then dies. Overheats too. Crank it up if you want to. Keys should be in it.”
+
+He got in and turned it over. It did start after a few attempts but the engine sounded weak, sick and once Jacob took his foot off the gas it died out. He tried a few more times with the same result.
+
+“Hard to say what it is,” Jacob admitted, “But I tell you what Ms. Beth, I think I might be able to get it down to my place - got a work shelter there I can park it under, and my tools. I’d be happy to see what I can do.”
+
+Beth lit up.
+
+“You don’t have to do that, really.”
+
+“Ma’am, I want to do it.”
+
+“Well, thank you very much. I can pay you something for your time.”
+
+The pastor shook his head very sternly. He gazed up at Beth on the porch and said with the utmost sincerity, “The opportunity to help another soul is a gift from God. I won’t accept your money.”
+
