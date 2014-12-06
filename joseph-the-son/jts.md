@@ -306,7 +306,7 @@ They both set off in the direction of the trailer park and the old farmhouse, no
 Chapter Two
 
 
-A woman came to the screen door and was surprised to see her son standing there with a strange man in work clothes. Jacob nodded to her and Joseph tried not to make eye contact. She opened the door part way and motioned for Joseph to come to her side. Not wanting her to get the wrong impression, Jacob spoke first.
+A woman came to the screen door and was shocked to see her son standing there with a strange man in work clothes. She was dressed in a house dress and slippers, her hair held up above her neck in bobby pins. From within the smell of roast chicken and vegetables. Jacob nodded to her politely but Joseph would not make eye contact. She parted the door and motioned for Joseph to come to her side. He did so. Not wanting her to get the wrong impression, Jacob spoke first.
 
 “Ma’am, I’m sorry to interrupt your day. I was wondering if I might speak to the boy’s father for just a moment. There was an incident on the road just now and Joseph-“
 
@@ -314,9 +314,9 @@ A woman came to the screen door and was surprised to see her son standing there 
 
 Jacob frowned. He placed his hands deep in both pockets and looked at his shirt.
 
-“Ma’am, I feel like an utter fool. It was presumptuous of me to bypass your authority. Please forgive me.”
+“Ma’am, already I feel like an utter fool. It was presumptuous of me to bypass your authority without understanding the situation. Please forgive me.”
 
-Joseph’s mother opened the door further. She looked at the man and then at Joseph, trying to make sense of things.
+Joseph’s mother opened the door further. She looked at the man and then at Joseph, trying to make sense of things. The low sunlight beamed across the porch onto her face. She shielded herself with one hand.
 
 “I’m Beth. Beth Hight.”
 
@@ -334,37 +334,37 @@ Joseph’s mother opened the door further. She looked at the man and then at Jos
 
 “Yes ma’am.”
 
-A moment of reflection and their attention returned to Joseph. Beth opened the door and came out onto the porch.
+A moment of reflection on both parts and then their attention returned to Joseph. Beth opened the door and came out onto the porch. Joseph followed behind. His eyes never left the ground.
 
 “Ma’am, about your son. I don’t want to keep you, but I felt compelled to let you know what happened.”
 
 “Please do, Pastor. I hope nothing serious.”
 
-She gave Joseph a stern glance and Joseph shrugged.
+“Well, I hate to say, but your son and a few other boys from Oakwood Estates were just now torturing a stray dog there on the road. I saw them from my farm while I was feeding my chickens. They had sticks and one of the boys had put one of those clip binders on its tail. Thing was spinning in circles trying to get it loose. It was in a lot of pain. That was clear.”
 
-“Your son and a few other boys from Oakwood Estates were torturing a stray dog there on the road. I saw them from my farm while I was feeding my chickens. They had sticks and one of the boys had put one of those clip binders on its tail. Thing was spinning in circles trying to get it loose. It was in a lot of pain.”
+“Oh my goodness,” Beth said, turning to Joseph, “You were not raised like that, young man. We don’t torture animals. You are better than that. You hear me?”
 
-“Oh my Lord,” Beth said, turning to Joseph, “You are not raised like that, young man. We don’t torture animals. You are better than that. You hear me?”
-
-Joseph did not answer. Beth was visible upset and faced Jacob.
+Joseph did not answer. Beth was visibly upset and faced Jacob with an apologetic expression.
 
 “Mr. Brumbalow, I am so sorry. I want to thank you for stopping them and for taking the time to walk up here and let me know. He  really is not like that. I don’t know what to say exactly.”
 
-“Ma’am, please don’t feel you have to say anything. I will be honest. After talking with Joseph I think he just fell in with the wrong group of boys this time. Joseph has a good heart. He’s not like those other boys, Jesse Black and his gang. He has a heart that walks with God. Anybody can see that.”
+“Ma’am, please don’t feel you have to say anything. I will be honest. After speaking with Joseph I think this is just a case where he fell in with the wrong group of boys, unfortunately. Joseph has a good heart. He’s not like those other boys, Jesse Black and his gang. He has a heart that walks with God. Anybody can see that.”
 
-Beth blushed at his sincerity. She pulled Joseph closer to her, but he pulled away.
+Beth blushed at his uncommon sincerity. She pulled Joseph closer to her but he flinched and stood over by the porch railing.
 
 “Thank you for saying that, Mr. Brumbalow.”
+
+Jacob shrugged.
 
 “Please call me Jacob.”
 
 “Thank you, Mr. Jacob.”
 
-Silence, then she said, “May I get you something to drink before you go? We have coffee and tea. Maybe coke.”
+Silence passed between them, and then she said, “May I get you something to drink before you take off? We have coffee and tea. Maybe some coke.”
 
-“I never turn down a cup of coffee, especially on days like this. It’s not cold per se but if you stay outdoors long enough the chill gets inside your bones.”
+“I never turn down a cup of coffee, especially on days like this. Not cold per se but if you stay outdoors long enough that chill gets inside your bones.”
 
-“I know just what you mean. It’s colder than a witches titty around here lately.”
+“I know just what you mean. It’s colder than a witches titty around here lately. That’s what we say in Georgia.”
 
 Joseph was embarrassed. Jacob laughed. Beth disappeared inside while Joseph and Jacob lingered on the porch. They did not speak.
 
@@ -438,27 +438,39 @@ In the back of the house there was a small porch area with an iron table and cha
 
 “I guess you’re wondering why on Earth we’d move into a house in this condition?”
 
-“Among other things,” said Jacob, ducking under the trunk and walking the length of the tree to the exposed roots.
+“Among other things,” said Jacob, ducking under the trunk and walking the length of the tree to the exposed roots, all tangles and clods of earth spiraling in a hundred different directions.
 
-She joined him there and they both looked up the length of the tree where it spread into a fan of dead limbs and twigs, leaves. It almost seemed to be a part of the roof whose shingles were peeled off in places, as dry and old as the tree.
+Beth joined him there and they both looked up the length of the tree where it spread into a fan of dead limbs and twigs, leaves. It almost seemed to be a part of the roof whose shingles were peeled off in places, as dry and old as the tree. From here you could see into the attic space where they tree had broken through, water-damaged cardboard boxes, a lamp stand, somebody’s old wig.
 
 “Why do you live here?” Jacob asked.
 
-“Necessity. This is my father-in-law’s farm. Ken Hight. He sold off this land in pieces throughout the sixties and seventies, then moved out all together in the late eighties. After my husband Will left for an oil field job in North Dakota last year and never came back, Mr. Hight became sick, so sick he couldn’t care for himself anymore. Water on the brain, you know. There is a name for it, but I don’t remember-”
+“Necessity. This is my father-in-law’s farm. Ken Hight. He sold off this land in pieces throughout the sixties and seventies, then moved out all together in the late eighties. After my husband Will left for an oil field job in North Dakota last year and never came back, Mr. Hight became sick, so sick he couldn’t care for himself anymore. Water on the brain. You ever heard of that? There is a name for it, but I don’t remember-”
 
-“Hydrocephalus,” Jacob said, “my uncle had it. There is treatment though, if I remember right.”
+“Hydrocephalus,” Jacob said, “my uncle had that at one time. There is treatment though if I remember right.”
 
-“If you are a sensible person, sure. But I guess you haven’t met Mr. Ken Hight.” 
+“If you are a reasonable person, sure. But I guess you haven’t met Mr. Ken Hight.” 
 
-Beth laughed, but there was no joy in it. Jacob smiled kindly, his eyes drawn down.
+Beth laughed but there was no joy in her laughter. Jacob smiled kindly, his eyes drawn down. His hands clenched nervously together.
 
-“Drafty?”
+“I imagine that big gaping hole doesn’t help the insulation. Has it been cold for you this fall?”
 
-“Like you wouldn’t believe. There is a wood stove in the kitchen. I think we’ll do okay through the winter. I hope we do okay. Mr. Hight has his days where he is good and speaks clearly, has energy. He’ll take Joseph and cut firewood. Make plans to patch the roof. We had to move here. It was the only place Mr. Ken still owned after his other house foreclosed. We had to move out of ours too. I just couldn’t make the bills with only my paycheck. Not with mouths to feed too.”
+“Like you wouldn’t believe. There is a wood stove in the kitchen that can warm the house okay. I think we’ll do alright through the winter. I hope we do. Mr. Hight has days where he is good and speaks clearly, has energy. He’ll take Joseph and cut firewood. We got a whole stockpile ready. And we’re making plans to patch the wall and roof.”
 
-“You live here with Mr. Hight and Joseph?”
+“Could at least get it covered with a tarp, something like.”
 
-“And Lizzie, my four year old. And she’s a handful all by herself.”
+“That’s true. I wish we didn’t have to move here. It was the only place Mr. Ken still owned after his other place was lost to  foreclosure. We lost our place too. I just couldn’t make the bills with only my paycheck. Not with mouths to feed. Piggly Wiggly don’t pay cashiers those kind of wages.”
+
+“Oh you work there, I like that old place. But I go to the Krogers most often now, since it opened up.”
+
+He looked at Beth with a guilty expression.
+
+“It is closer. I know how that is.”
+
+Jacob nodded.
+
+“So you live here with Mr. Hight and Joseph?”
+
+“And Lizzie, my four year old. She’s a handful all by herself, let me tell you.”
 
 “I bet. I know how that is.”
 
@@ -494,17 +506,17 @@ Next to the roots was a small marker stone, faded and covered with dry dirt, gra
 
 “Who is buried here?”
 
-“That is Mr. Hight’s first wife, Carol. She died from breast cancer in nineteen sixty three. I always remember the date because that’s when I was born. I’m sure it says on the marker there, but you can’t see it.”
+“That is Mr. Hight’s first wife. Ms. Carol. She died from breast cancer in nineteen sixty three. I always remember the year cause that’s when I was born. I’m sure it says on the marker there but its covered up with grass.”
 
-They continued around the house and Jacob briefly caught a glimpse into the den, where he saw an old man in a robe on a recliner. The man was not doing anything. Not reading. Not watching television. Not even thinking from all appearances. He just stared into space. His gray hair disheveled, his whiskers long skin papery and pale. Alone in the dim room.
+Beth and Jacob continued around the house, stopping at a stone bird feeder filled with leaves. Admiring it, Jacob briefly caught a glimpse into the big window on that side, perhaps the den area where he saw an old man in a robe sitting on a recliner. The man was not doing anything. Not reading. Not watching television. Not even thinking the way it looked. Just staring into empty space. His gray hair was disheveled, his whiskers long and skin papery pale. Alone in the dim room.
 
-When they came around again to the front Jacob did not walk onto the porch. He started towards the drive where a beat up old car sat uneven, one of the tires low.
+When they came around again to the front Jacob did not walk onto the porch. He started towards the drive where a beat-up old jalopy sat uneven, one of the tires low. Olive green in color.
 
-“Ms. Hight, thank you for taking the time to talk with me today and for showing me your house. I don’t want to take up any more of your time.”
+“Ms. Hight,” Jacob turned to her, “thank you for taking the time to talk with me today and for showing me your house. I don’t want to take up any more of your time.”
 
-“Oh, its not a bother. I like the company. And please call me Beth. I don’t deserve that formality.”
+“Oh, its no bother. I like the company. And please call me Beth. I don’t deserve that formality.”
 
-Jacob smiled.
+He smiled.
 
 “Even so, ma’am. I mean Beth. Please tell Joseph to be at my place at eight am. Just behind the church there. I’m gonna go see about those other boys too, before it gets too dark.”
 
@@ -514,7 +526,7 @@ Beth nodded. Jacob did not quite know how to end the conversation gracefully, so
 
 “Don’t run at all, at the moment. You don’t know anything about cars do you? That’s my only transportation. Gave out a week ago. Been hitching rides to work since then.”
 
-“I know a little bit,” Jacob grinned, “Mind if I pop the hood?”
+“I know a little bit,” Jacob admitted sheepishly, “Mind if I pop the hood?”
 
 He opened the door and reached in to unlatch the hood, then walked over and propped it open. He leaned inside and did some quick diagnostic work, checked the fluids, belts, hoses.
 
@@ -534,7 +546,35 @@ Beth lit up.
 
 “Ma’am, I want to do it.”
 
-“Well, thank you very much. I can pay you something for your time.”
+“Well, thank you very much,” Beth said. She did not know what to say to that, “I can pay you something for your time.”
 
-The pastor shook his head very sternly. He gazed up at Beth on the porch and said with the utmost sincerity, “The opportunity to help another soul is a gift from God. I won’t accept your money.”
+The pastor shook his head sternly and said with the utmost sincerity, “The opportunity to help another living soul is a gift from God above. I won’t accept your money, no ma’am.”
+
+With some help from Joseph, who sat inside the car and pumped the gas and turned the ignition when Jacob gave the signal, they finally got the car started and in gear and eased it down the dirt driveway. The engine sputtered and jerked even taking it easy like he was, sounding like it might die at any moment. By the time it reached the trailer park it had sputtered out again.  Some neighbors poked their head out of small windows, watching him. Jacob popped the hood again and tinkered around and it started again. This happened twice more before he was on the road down to his place.
+
+“What a decent man,” smiled Beth, who stood with arms crossed on the porch, Joseph and Lizzie beside her, watching him, “An uncommonly decent man, Mr. Jacob.”
+
+Beth reached out to squeeze her son around the shoulder but he shirked away and opened the screen door, going inside without a word. Lizzie took his place beside their mother and their hands intertwined. Both watched as the pastor drove their car until it  disappeared beyond the row of trees that lined the drive to Oakwood Estates, then they too went inside.
+
+
+Chapter Three
+
+
+A frigid morning wind blew through the tree tops and shook what few leaves remained in the maples and oaks that surrounded Pastor Jacob’s farm house. The leaves fell in lazy arcs from those high places and landed next to the woodshed where Jacob and Joseph were standing. There were rakes and shovels, shears propped up against the shed. Every few seconds the pastor came out with another tool and handed it to Joseph, whose job it was to arrange them outside. The last thing Jacob brought out was a bag of feed. He handed the burlap sack to Joseph, walked out of the shed, and closed the door.
+
+Behind the Pastor Joseph followed until they reached the crude pen where all the chickens were. There was a mesh wire to keep them in and a small wooden shelter for them all to nest in at night, filled with straw. Jacob stepped over the fence and Joseph did the same. The chickens came swarming around, expectant, eager.
+
+“My little angels,” the pastor said, “here you are. Enjoy your breakfast.”
+
+He took the bag of feed from Joseph and tossed handfuls of the corn feed. The chickens scattered at each toss in a panicked dash for the morsels. There were birds of every color. Brown, white, black. One had a limp, withered leg and Jacob tossed a handful specifically in close range to it.
+
+“Suppose I could just get a feeder,” Jacob admitted to Joseph, “but I like to do it myself. It does a heart good to serve the small creatures of this world. Even them.”
+
+Jacob’s gaze went to the horizon where the mountains were. He handed the bag to Joseph and asked him to spread a few more handfuls around, which he did.
+
+“Do you think I speak strangely?” Jacob asked, “I know I do. Folks don’t talk like me. I’ve known that for a long time. I get a lot of strange looks from strangers. They think I carry a soapbox around with me.”
+
+“I like the way you talk.”
+
+Their eyes met and they smiled without saying anything else until the chickens were fed. After, they walked back to the shed and Jacob put up the feed and grabbed a handful of the tools. Joseph did the same and they walked up to the church, where by now the other boys were waiting for them.
 
