@@ -456,3 +456,16 @@ Purpose of this scene is to show their poverty, desperate living conditions. Tha
 Will left last year. Had to move in with grandpa when he got sick. Water on the brain (Hydrocephalus). No money. Just a pager number. Beth works at Piggly Wiggly.
 
 THE FIRE THAT JACOB SETS BURNS OUT BEFORE BURNING DOWN THE CHURCH
+
+
+What happens now? 12-6-2014
+
+Joseph and Jacob feed the chickens. “I like to feed them myself. It does my heart good to serve them. Even them.”
+
+“Do you understand me? I know I don’t speak like other people. I tend to get up on a soapbox.”
+
+Is tasked to tear up the garden. The other boys work at the church, carrying hay bales, doing harder work.
+
+They resent him for it. On the break they make fun of him, call him a bastard. Say Pastor Jacob told them you don’t have a daddy no more.
+
+“When will you learn? When? I am ashamed.”
