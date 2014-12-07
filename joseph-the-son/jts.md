@@ -552,7 +552,7 @@ The pastor shook his head sternly and said with the utmost sincerity, “The opp
 
 With some help from Joseph, who sat inside the car and pumped the gas and turned the ignition when Jacob gave the signal, they finally got the car started and in gear and eased it down the dirt driveway. The engine sputtered and jerked even taking it easy like he was, sounding like it might die at any moment. By the time it reached the trailer park it had sputtered out again.  Some neighbors poked their head out of small windows, watching him. Jacob popped the hood again and tinkered around and it started again. This happened twice more before he was on the road down to his place.
 
-“What a decent man,” smiled Beth, who stood with arms crossed on the porch, Joseph and Lizzie beside her, watching him, “An uncommonly decent man, Mr. Jacob.”
+“What a decent man,” smiled Beth, who stood with arms crossed on the porch, Joseph and Lizzie beside her, watching him, “An uncommonly decent man, Jacob Brumbalow.”
 
 Beth reached out to squeeze her son around the shoulder but he shirked away and opened the screen door, going inside without a word. Lizzie took his place beside their mother and their hands intertwined. Both watched as the pastor drove their car until it  disappeared beyond the row of trees that lined the drive to Oakwood Estates, then they too went inside.
 
@@ -560,11 +560,11 @@ Beth reached out to squeeze her son around the shoulder but he shirked away and 
 Chapter Three
 
 
-A frigid morning wind blew through the tree tops and shook what few leaves remained in the maples and oaks that surrounded Pastor Jacob’s farm house. The leaves fell in lazy arcs from those high places and landed next to the woodshed where Jacob and Joseph were standing. There were rakes and shovels, shears propped up against the shed. Every few seconds the pastor came out with another tool and handed it to Joseph, whose job it was to arrange them outside. The last thing Jacob brought out was a bag of feed. He handed the burlap sack to Joseph, walked out of the shed, and closed the door.
+A morning wind blew through the tree tops and shook what few leaves remained in the oaks that enshrined Pastor Jacob’s farm house. The leaves fell in lazy arcs from those high places and landed next to the woodshed where Jacob and Joseph were standing. There were rakes and shovels, shears propped up against the shed. Every few seconds the pastor came out with another tool and handed it to Joseph whose job it was to arrange them outside. The last thing Jacob brought out was a bag of feed. He handed the burlap sack to Joseph, walked out of the shed, and closed the door.
 
 Behind the Pastor Joseph followed until they reached the crude pen where all the chickens were. There was a mesh wire to keep them in and a small wooden shelter for them all to nest in at night, filled with straw. Jacob stepped over the fence and Joseph did the same. The chickens came swarming around, expectant, eager.
 
-“My little angels,” the pastor said, “here you are. Enjoy your breakfast.”
+“My little angels,” the pastor said, “enjoy your breakfast.”
 
 He took the bag of feed from Joseph and tossed handfuls of the corn feed. The chickens scattered at each toss in a panicked dash for the morsels. There were birds of every color. Brown, white, black. One had a limp, withered leg and Jacob tossed a handful specifically in close range to it.
 
@@ -572,9 +572,115 @@ He took the bag of feed from Joseph and tossed handfuls of the corn feed. The ch
 
 Jacob’s gaze went to the horizon where the mountains were. He handed the bag to Joseph and asked him to spread a few more handfuls around, which he did.
 
-“Do you think I speak strangely?” Jacob asked, “I know I do. Folks don’t talk like me. I’ve known that for a long time. I get a lot of strange looks from strangers. They think I carry a soapbox around with me.”
+“Do you think I speak strangely?” Jacob asked, “I know I do. Folks don’t normally talk like me. I’ve known that for a long time. I get a lot of strange looks from strangers. They think I carry a soapbox around with me.”
 
 “I like the way you talk.”
 
 Their eyes met and they smiled without saying anything else until the chickens were fed. After, they walked back to the shed and Jacob put up the feed and grabbed a handful of the tools. Joseph did the same and they walked up to the church, where by now the other boys were waiting for them.
+
+“Well now, Jesse, Maurice, Ignacio, glad you could join us on this fine morning.”
+
+The Oakwood Estate boys had been lounging on a stack of spare tires next to the garage. They rose when Jacob and Joseph appeared. None looked happy to be there.
+
+“So what do you want us to do?”
+
+“Now that doesn’t sound too enthusiastic, Jesse. We got a lot of work to do for Cornucopia. Mainly with the church. There’s kiosks and tents to set up, hay bales to arrange for the games and sitting areas, tables for the food vendors. And a few other things that escape me at the moment. We got a few days to take care of it all, but I want to get as much done as possible.”
+
+Jesse and Maurice shuffled reluctantly towards the church. Ignacio was still half asleep, but when he saw Jacob and Joseph head that way he jumped to it and followed close behind. When they reached the church there was a red long-bed pickup truck loaded with bales of hay.
+
+“Want you boys to start there. All them bales need to come down off that truck first thing. Then we need to arrange them according to Ms. Margaret’s diagram. I’ll go get that.”
+
+Maurice heaved himself onto the truck bed and stood on a bale.
+
+“Now wait a minute,” Jacob said, “Before we start the work today, I want you boys to reflect a minute on why you’re here the next few days.”
+
+“Yes sir.”
+
+“Jesse,” Jacob said, singling him out, “Why are you here today?”
+
+“Cause that dog, I guess.”
+
+“What about that dog, I guess?”
+
+“Cause we was giving it a hard time I guess. Hell, I don’t know.”
+
+The boys snickered. Jacob grew angry.
+
+“Son, that ain’t a word we use around here. You watch that mouth or I’ll watch it for you, hear?”
+
+“Sir.”
+
+“Now what about that dog? Ignacio, what you got to say for yourself?”
+
+“We treated that dog unkindly. That is not how we should treat animals who are our kin under God.”
+
+“Amen to that. Thank you, Ignacio.”
+
+Jacob pointed to the recreation area where there was a basketball goal and some tables set up.
+
+“Set you boys up with some water over there on the table. And since its cold out, I had Ms. Margaret whip you up some cocoa. You just tell her when you’re ready for a cup. And that’s after you’ve unloaded this truck first. Got to get this thing back to Jeremy before the end of the day.”
+
+They all stood around.
+
+“Well, what you waiting for? Christmas? Hop to it.”
+
+The boys started heaving bales of hay one after the other. Maurice and Ignacio were on the truck, while Jesse and Joseph caught them from below and started stacking them on the ground.
+
+“Hold up, Joseph. I have another job for you, son. Follow me please.”
+
+The other boys exchanged significant glances and from the corner of their eyes glared at Joseph, whom they felt was getting special treatment. Joseph felt their malice and rushed to catch up with Jacob who was headed back to his house.
+
+Around the back of Jacob’s house there was a fenced in vegetable and flower garden. There were stone decorations, gnomes and bird feeders. The vegetation dried up from the season. All in all it was a nice garden.
+
+“Pastor before grew this garden, set up all these statues and stuff. Thing is, I don’t have no use for it myself. And it just looks awful with no upkeep. My thumbs are missing the green if you know what I mean?”
+
+Joseph had never heard the expression before so he just nodded.
+
+“Anyway, I want you to work on tearing this thing out of here. By the time you’re through the whole twenty square foot area should be one big patch of dirt. Think you can handle that?”
+
+“Where should I put the decorations?”
+
+“Over there on the junk pile. I’ll break em up with the sledgehammer later, unless I can talk you into doing that too.”
+
+“Can I?”
+
+Jacob grinned.
+
+“I thought you might be into something like that. I set that sledge over by the shed. Just put it back when you’re done.”
+
+“Where should I put all the plants and vegetable stalks, weeds.”
+
+“Anything you tear out of the ground just put over there in the burn pile. I’m gonna rake some leaves this afternoon once I get through fixing your mom’s car. I’ll burn everything this evening in the bonfire. We’ll have some hot dogs ready at lunchtime too.”
+
+“Okay.”
+
+“Be sure and take a break every now and then.”
+
+“Yes, sir.”
+
+Once Jacob was gone Joseph took a moment to survey the work to be done. Across the yard he saw the other boys working and cutting up. A part of him wanted to join in with them. He wasn’t sure why Jacob had given him to this job, but he was determined to do it well. So he set to work.
+
+He figured the best way to approach it would be to first empty the garden of all the decorations and stone statues. So he picked the largest one, an obnoxious looking stone garden gnome, and hefted up on one shoulder and took it to the junk pile over by the garage. After that he grabbed them all, one by one, the bird feeder, the cherubs, the boy sitting on a bench. Then he grabbed the stained glass flowers, red, purple, orange. There was a faded nylon kite of a butterfly and he took that too. All in all it took a good forty five minutes to get everything non-green onto the junk pile.
+
+Sweating and dirty he stopped for a quick break. Thought about grabbing a cold cup of water but didn’t feel like encountering the other boys at the moment. 
+
+It felt good to work this way. To use his body and strength to some good purpose. Like how it ought to be.
+
+He walked to the shed to grab the sledge hammer, a ten pounder that was well worn. He grasped the polished wooden handle with both arms and heaved the metal head over his shoulders and brought it down with all his force onto the garden gnome. It shattered into a dozen pieces of various sizes. Joseph felt the thrill of it. He continued to smash everything that was smash able and by the end of it there lay a patch of rubble at his feet.
+
+Now it was time to start clearing the green things. Again he decided to start with the largest and work his way down. That seemed the most logical way to do it. Jacob had set a pair of work gloves out with the rest of the tools that day and he donned them now to make his work easier. Already he had a few blisters from the sledge.
+
+He began by pulling up all the plants and small trees which lined the garden. At first it was easy to grab ahold at the base and lift with his back. But fatigue set in quick and it became harder and harder. He kept going though and soon the area around the fence was all cleared away, the remains lay in a pile nearby. 
+
+Joseph took another break. He saw there was nobody at the table with the water cooler. Those other boys he heard on the other side of the church. They must be laying out those hay bales. Quickly he went over to it and filled the paper cup set out for them. He drank the water down and felt his energy return. Then he drank another three cups before his thirst was quenched.
+
+He grabbed the long machete that lay next to the sledge hammer by the shed and commenced to attack the high weeds and tomato plant vines. He swung the blade like some primitive being. Fun was not the right word to describe it, but it was close. More like ecstasy. A meditative destruction. There was a rhythm to it and once he was in tune with it the time passed like water.
+
+Before he knew it the garden was clear, at least from a few inches up. There was still the knee-work of pulling roots. He stopped with the machete and carried all the brush and weeds over to the burn pile, which was already large, stacked with busted wooden furniture, piles of leaves, shredded office documents. There was even an old doll in there burned up.
+
+For the last bit of work he got down on his knees and set to pulling up the small rooted vegetable stalks, weeds sprouted from neglect. As he pulled the dark earth tilled and he could smell the life in the dirt, the decayed organics, fertile. 
+
+It took awhile to pull the roots. There were some rocks set purposefully in places and he lifted them up to expose the worms and bugs. He brushed them off the rock and heaved them over the fence. A game he played was to see how close he could get one rock to the previous.
+
+By this point he was famished and cold, his back aching. He thought it might be close to lunch time but had no way to tell the time. Not much left to do here. Once the roots were pulled the area could use a good raking and it would be just as Jacob had asked him. Lost in this idea he sat back on his feet and looked towards the garage. His mother’s Vega was there, up on two hydraulic jacks. He saw the pastor’s legs poking out. He then thought of his mother and Jacob walking together from the day before. His blood boiled at the thought. Why he asked. Why did they walk together.
 

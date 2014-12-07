@@ -469,3 +469,24 @@ Is tasked to tear up the garden. The other boys work at the church, carrying hay
 They resent him for it. On the break they make fun of him, call him a bastard. Say Pastor Jacob told them you don’t have a daddy no more.
 
 “When will you learn? When? I am ashamed.”
+
+
+First Day at Jabob’s Farm
+
+1) Feed Chickens (400)
+2) Divvy the Tasks (750)
+3) Joseph at Work (650)
+	alone in the garden
+	breaking up the statues
+	family of black widows
+	hot cocoa break
+4) Fight with Jesse (1400)
+5) Jacob breaks up Fight (400)
+6) Joseph walks Home (400)
+
+
+Story purpose of this scene is to:
+
+1) establish feelings Joseph has about being left by his father
+2) allow Joseph to fail when using violence (getting his butt kicked)
+3) show minister jacob sees connection between love to animals and love towards all (all life is our kin)
