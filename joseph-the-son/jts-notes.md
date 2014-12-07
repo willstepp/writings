@@ -490,3 +490,16 @@ Story purpose of this scene is to:
 1) establish feelings Joseph has about being left by his father
 2) allow Joseph to fail when using violence (getting his butt kicked)
 3) show minister jacob sees connection between love to animals and love towards all (all life is our kin)
+
+
+What happens now? 12-7-2014
+
+770
+Joseph finds the family of black widows
+Joseph has a hot dog lunch
+
+1650
+Joseph fights with Jesse
+Minister Jacob breaks up fight
+The bonfire at dusk. Jacob does not speak
+Looking at home through window
