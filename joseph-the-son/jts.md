@@ -1,10 +1,10 @@
 It was still dark when grandpa came to wake him. 
 
-“Be sure and put on your long johns,” he whispered, “and try not to wake up Lizzie, hear?”
+“Slip on your long johns,” he whispered with a finger held to his mouth, “and try not to wake Lizzie, savvy?”
 
 At that he left the room.
 
-Joseph rolled from under the warmth of his sleeping bag onto the cold wood. Wobbling in place for nearly a minute he finally became conscious enough to feel how cold it was in the room. He kicked his legs in place and rubbed his bare arms together to get some circulation going. Once his eyes had become adjusted to what little light there was he crept over to the chest of drawers. He pulled open the middle drawer but it creaked despite his most cautious movement. He winced and went utterly still, but his sister didn’t stir. After a moment he slid on his long johns and then a few more layers of pants, shirts, a sweater. He grabbed his survival knife from its place on the nightstand and joined his grandfather in the main room.
+The boy rolled from under the warmth of his sleeping bag onto the cold wood. Wobbling in place for nearly a minute he finally became conscious enough to feel how cold it was in the room. He kicked his legs in place and rubbed his bare arms together to get some circulation going. Once his eyes had become adjusted to what little light there was he crept over to the chest of drawers. He pulled open the middle drawer but it creaked despite his most cautious movement. He winced and went utterly still, but his sister didn’t stir. After a moment he slid on his long johns and then a few more layers of pants, shirts, a sweater. He grabbed his survival knife from its place on the nightstand and joined his grandfather in the main room.
 
 Heat from the stove in the kitchen enveloped him as he came up behind his grandfather at the table and stood there, not fully awake.
 
@@ -241,7 +241,7 @@ Then somewhere up the road they heard a voice shouting. The pastor Jacob had hea
 
 As soon as he saw the dog, he knelt beside it on one knee and gripped it hard around the torso, removing the clip and releasing the dog in one movement. And just like that the dog was gone, vanishing into the high yellow grass. The pastor held up the binder clip and showed it to them. He then heaved it into the tree packs where it could never be found.
 
-Jacob stood tall. His eyes lifted towards those gray November skies. And then he shut them as if in prayer. At the horizon a mid-afternoon sunlight fell sharply across the landscape and lit everything unnaturally bright. The pastor’s hands were covered in grime and there was a wound on his left palm. Blood from it intermingled with the grease and dirt and ran a thin river up his forearm. He wrung both hands together, unaware of the injury he had sustained. His breathing was slow, but deep. He did not address the boys right away. He only stood there in a kind of reverie.
+Jacob stood tall. His eyes lifted towards the gray November skiy. And then he shut them as if in prayer. At the horizon a mid-afternoon sunlight fell sharply across the landscape and lit everything unnaturally bright. The pastor’s hands were covered in grime and there was a wound on his left palm. Blood from it intermingled with the grease and dirt and ran a thin river up his forearm. He wrung both hands together, unaware of the injury he had sustained. His breathing was slow, but deep. He did not address the boys right away. He only stood there in a kind of reverie.
 
 A small wind rustled the leaves on the ground and swept across the field grass.
 
@@ -695,3 +695,121 @@ When Joseph was sure there were no more he flipped the flat stone onto its side 
 Afterwards he made his way over to the recreation area where Ms. Margaret had set out a few paper plates with some hot dogs under tin foil, then another plate with chopped onions, and two bottles of mustard and ketchup. A bag of Lays too.
 
 Joseph bit into a hot dog and realized how wore out he really was. He could literally feel the energy return to his shoulders and arms. He scarfed down the rest in two more bites and made another. Then he sat down against the side of the brick building and rested. He took his time with the second dog, savoring its salty greasiness that contrasted nicely with a sprinkle of chopped onions and a dollop of mustard.
+
+As he finished the other boys wandered up and helped themselves to the lunch. They were covered in sweat and grime. Bits of hay clung to their clothes, and bands of sweat soaked through their shirts at the collar and pits. They did not look happy to be there.
+
+Joseph watched them, wanting to make conversation, but not sure where to start. Instead he went over and sat against the brick wall of the building. He bowed his head against his knees and closed his eyes, resting.
+
+Jesse, Maurice, and Ignacio joked with one another and chatted about the usual things. Cars they would like to have one day, the store where the Indian owner would sell cigarettes to minors, girls who were easy. Joseph was comfortable when they talked about those things because the attention was not on him and he preferred it that way. But then a lull came.
+
+Something pinged against his left leg. Then another. He lifted his eyes and saw pieces of onions on the ground. Then another hit him in the forehead. He looked up and glared. Maurice was close to him with a handful.
+
+“Stop that.”
+
+“Just making sure you ain’t asleep,” Maurice said. His laughter turned to anger, “some of us got to work today.”
+
+“Some of us working our ass off while others get to kick back and relax,” Jesse added.
+
+“I been working. I been working all morning. Look at my hands.”
+
+“What you been doing?”
+
+“Tearing out the garden at Jacob’s farm.”
+
+“Bullshit,” Jesse said, “Show me.”
+
+Jesse rose from the table and walked towards Joseph.
+
+“I don’t got to show you nothing.” 
+
+Joseph spit his words.
+
+“You don’t want to show cause you ain’t been doing nothing.”
+
+Jesse walked closer and did not stop until he was right at his feet. He then kicked them hard and mashed his toe into the concrete. Joseph squirmed free and rose He stared square at Jesse.
+
+“Why don’t you cut it out, Jesse?”
+
+“What you gonna do about it? Bastard boy.”
+
+Joseph flinched at the insult even though he tried to not show it. His eyes watered at the corners.
+
+“That’s what Pastor Jacob told us. Said your daddy was sorry. Left yall. And now he ain’t never coming back. What he said.”
+
+“Fuck you. You fucking liar.”
+
+“Ain’t that what he said?” Jesse turned to his friends.
+
+“He said you daddy left and no come back no more.” 
+
+Ignacio made like he was crying and wiped his eyes, and the others laughed.
+
+“Now you’re just a bastard,” Jesse repeated, and with emphasis, “Boy.”
+
+He then shoved Joseph in the chest with both hands at full force and the smaller one fell back against the brick wall and banged his head. He saw black then white and felt a cold sting on the back side of his head.
+
+“Come on you fuckin bastard! You come at me and I’ll kick your sorry ass up and down the churchyard.”
+
+Jesse was red in the face. His eyes fierce. Joseph had a very serious look on his face, but it was not anger. Jesse raised his hands in front of his face like a boxer, his fists clenched and bowed up. Joseph heard him muttered “bastard boy” under his breath, over and over again.
+
+“Quit saying that.”
+
+“Fucking bastard boy. I hate your goddamn guts. You just a little pussy and I can’t stand pussies.”
+
+There was a brief moment as Joseph swung that he seemed to be watching himself from the outside, disconnected from the trouble, just observing, but the pain of that first contact with Jesse’s jaw brought him back to his body. And then he swung again. And again.
+
+Jesse shielded himself from each subsequent blow, only the first one really connecting, but it did burst his lip and there were now a few droplets of blood on the basketball court at their feet.
+
+Maurice and Ignacio circled around them and watched but the two others were oblivious, each boy locked into his rage. 
+
+Jesse was taller and stronger so when he took his first swing it connected hard against Joseph’s jaw. He felt a piercing jolt and a tooth inside came loose in his mouth. He fell back on one hand and covered his face with the other. Jesse fell down on top of him. They rolled over and over, each boy fighting to be the one on top. Joseph grabbed the back of Jesse’s jacket and tried to pull it off and the arm tore in a single loud rip. Each one uttered obscenity after obscenity at the other.
+
+Joseph had never felt so much hatred for anything in his life. If he had had the strength he would have killed Jesse Black for sure. Jesse connected one time in Joseph’s right eye and grazed his forehead. A red rash immediately appeared and his eye closed in pain.
+
+They ended up on the ground. Their feet thrashed for traction and slung mud everywhere. Their jeans were covered in grass stains and mud. At that point Joseph turned the wrong way and Jesse caught a hold of him from behind, with one arm pulled against his back. He immediately stopped the struggle and collapsed in pain. Jesse knew he could break the arm with this leverage. He inched the arm up his back and felt Joseph shrivel each time.
+
+“My arm. Let go of my fucking arm,” Joseph pleaded.
+
+“Tell me you’re a bastard boy!”
+
+“I ain’t saying that.”
+
+Jesse inched up his arm a bit more and Joseph screamed.
+
+“Say it now!”
+
+Again he pushed the arm. This time the agony was too much for Joseph to bear.
+
+“Bastard boy. Bastard boy.”
+
+“Who’s a bastard boy?”
+
+“Me,” Joseph submitted, “Now let me go. I’m the bastard boy. Me.”
+
+Jesse released him with a final angry shove. Joseph caught himself and looked to make sure Jesse wasn’t going to attack again. But when Jesse looked at his jacket and jeans, Joseph was overcome with the dark anger. He saw his vision darken and charged at unsuspecting Jesse and tackled him into the mud. This time Jesse used his strength to roll over on top of Joseph and got one knee against his throat. Joseph flailed his arms helplessly while Jesse beat his head into the ground. Joseph tried to breathe in but couldn’t draw in enough air. He gasped and tried to push Jesse off but Jesse was too heavy and much too strong.
+
+A hand from above grabbed Jesse by the collar of his jacket and swung him roughly to one side. Then he got between them both, his arms stretched in both directions. Each boy watched the other through the pastor, though neither would attempt to restart the fight now. Slowly their heart rates returned to normal and they felt around for the wounds on their faces and arms.
+
+Joseph looked at Jacob and saw tears in reddened eyes. He felt a deep shame like he was sinking into a bottomless pit of mud. He wanted to escape into its darkness and stay there forever. Jacob said nothing to any of them except for once when he whispered, “Why don’t they understand?” to no one specific.
+
+After some time Jacob told Maurice and Ignacio to return to the front of the church to finish up laying out the hay bales and start helping with the apples. Then he took Jesse inside to have Ms. Margaret tend to the cuts on his face and lip. When he emerged out carried a first aid kit and a bottle of Bactine.
+
+Jacob then knelt in front of Will and dressed the cuts on his neck and forehead. There were other bruises on his face and arms but there was nothing to be done about those. Joseph accepted the pain of the antiseptic as punishment and wanted very badly for Jacob to look at him or say something to him, but he never did. When he finished he turned immediately to head back inside, but turned half around and spoke at him, but not to him.
+
+“Go ahead and clean up the garden area, what you finished. Rake up them leaves and loose dirt, put it in the pile. After that head on back home for the day.”
+
+Then he walked inside.
+
+Joseph shuffled back to the garden and mechanically went to work. But there was no joy in it like there was before. He started crying and hid behind the wall in case anyone walked by and saw him. All the bottled up emotions poured out of him. He sobbed into his hands like he had not done since he was a baby. There was a darkness in his heart, the bottomless pit of mud. Every time he moved he felt a guilt sucking the energy from his limbs.
+
+When the garden was raked and cleaned he put up all the tools and carried the remaining weeds and twigs over to the burn pile. Standing at the edge was Pastor Jacob. He had lit the pile with a gallon of gasoline and it was just now lighting up. In the fading light of the afternoon it was beautiful to see.
+
+Joseph went over and threw the rest of the weeds into the pile. They immediately smoked and caught aflame. The smaller ones curled up into ashen embers almost right away.
+
+He went and stood beside the Pastor Jacob who still had not spoken to him. They both watched the fire burn in silence. Its flames whipped against the cold wind. Heat radiated outward and warmed their faces and bathed them in an amber glow.
+
+“I feel like a failure,” Jacob said at last. It was completely unlike what Joseph had been expecting, so much so that he didn’t know what to say.
+
+“It was me who failed,” Joseph said.
+
+In silence they continued to watch the fire burn. The fire grew so large they had to stand back and Joseph felt he heat on his face and simultaneously the cold of the evening on his back.

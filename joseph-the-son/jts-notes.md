@@ -503,3 +503,5 @@ Joseph fights with Jesse
 Minister Jacob breaks up fight
 The bonfire at dusk. Jacob does not speak
 Looking at home through window
+
+“I feel like a failure.”
