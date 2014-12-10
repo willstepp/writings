@@ -263,6 +263,9 @@ Lizzie has a cold, perhaps pneumonia. She won’t eat.
 
 Watches his family from outside the window. It was like five hundred years had passed. He then realized a moment in time was not something he could possess. But he felt a strong desire to possess it — to keep it with him always. H	is hand reached up to the glass. The motion caught Lizzie’s attention and she laughed and raced over to the glass and placed her hand over his, with only the pane between them.
 
+
+A longing deep within. Something so far away from him. Tears came to his eyes. He somehow knew it would always be so. That it was not something he could possess. And it filled his heart with sadness. At least that was how his mind understood it.
+
 TODO:
 
 Work out all scenes / beats at least to the point where the plot follows.
@@ -289,9 +292,9 @@ PART ONE (28000):
 	“What a kind-hearted man.”
 	Hugs Joseph. He pulls away.
 
-(4000) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?" Comes home and sees his family playing together. Realizes its something he cannot possess. Sadness.
+(4500) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?" Comes home and sees his family playing together. Realizes its something he cannot possess. Sadness.
 
-(4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Elise Mullins weeps out loud.
+(3500) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Elise Mullins weeps out loud.
 
 (4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
 
@@ -505,3 +508,28 @@ The bonfire at dusk. Jacob does not speak
 Looking at home through window
 
 “I feel like a failure.”
+
+
+What happens now? 12-8-2014
+
+250
+Joseph returns home in the dusk light. There is a light on at his house on the hill. Before he enters he stands outside watching his mother, Lizzie, and grandpa play a game. They are all laughing. He realizes he cannot possess this. An aching from the bottom of his soul to keep this.
+
+1160
+Joseph, Beth, and Lizzie prepare to go to Cornucopia
+The car breaks down on the road. Joseph tries to push it off the road and Beth gets mud on her jeans. They walk the rest of the way in the freezing cold. “Just a ten minute walk to the end of the road.”
+
+1160
+At Cornucopia they have a feast, play games run by the youth leader and his wife. Jacob is there, seems to be a different person, happy, lively. Apologizes profusely when he learns the car is still broken.
+
+1160
+Jacob takes the stage after the band gets off and makes a plea of inspiration to help the Hight family, who are in dire straits indeed. People walk up and drop money into the cornucopia horn.
+
+
+Purpose of this scene:
+
+1) Establish Pastor Jacob wants the church to raise money for the Hights to rebuild their farmhouse.
+
+2) Meet the youth pastor and his wife.
+
+3) Show car broken down again

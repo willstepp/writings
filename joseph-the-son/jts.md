@@ -813,3 +813,149 @@ He went and stood beside the Pastor Jacob who still had not spoken to him. They 
 “It was me who failed,” Joseph said.
 
 In silence they continued to watch the fire burn. The fire grew so large they had to stand back and Joseph felt he heat on his face and simultaneously the cold of the evening on his back.
+
+It was that time of day when the shapes of things become indistinct and fade into shadows or even disappear. Joseph stared into the fire one moment and the next he was on the road to his house. He wasn’t sure Jacob even saw him go. Before leaving the yard he looked back and saw the pastor’s silhouette against the leaping flames, silent and rigid.
+
+Joseph zipped up and thrust his hands in his coat pockets but the cold quickly penetrated his jacket’s thin material. He was shivering. There was a wind that blew through the limbs in the trees above. Against his face it was like a sting. He hurried up the road halfway between a walk and a jog. When he came to the entryway to Oakwood Estates he looked inside all the trailers to the warmth within. Now up the hill he could see the farm house and the lights from the living room window a beacon to him in the darkness.
+
+As he came to the front porch his gait slowed and instead of going straight in he went over to the living room window and peered in. There was his mother and Lizzie reading Curious George out loud on the couch. Grandpa was there too, on the recliner listening. None of them saw him, so he continued to watch. Mother turned the page and Lizzie grew excited and shouted something and raised her arms like a monkey and grandpa erupted into a spontaneous fit of laughter.
+
+In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He didn’t fully grasp what he was feeling at that moment but he had understood something for the first time in his life. Tears welled in his eyes. He understood that a moment in time was not something he could ever possess, and yet he felt a strong desire to possess this moment — to keep it with him always. Joseph took his hands out of his coat pocket and pressed one of his palms against the cold window. That caught Lizzie’s attention and she jumped from her mother’s lap and raced over to place her hand over his, laughing. Only a pane of glass was between them.
+
+
+Chapter Four
+
+
+They were late so Beth handed Joseph the keys to the car and asked him to go warm it up.
+
+“How do I do it?”
+
+“You put the key in the switch, crank it up, and let it run.”
+
+“Do I press any pedals?”
+
+“Do not press any pedals.”
+
+“Okay.”
+
+“Or touch the steering wheel. Just key, switch, turn.”
+
+“Yes ma’am.”
+
+“And turn the heater on.”
+
+Joseph already had on his good clothes and ran out the door. He had never been entrusted to start the car before. The seats were icy cold, the vinyl hard. He carefully put the key his mother handed him (not any of the others) into the switch and turned it. The engine turned over then died. He remembered his mother usually pumped the gas a few times but was forbidden to do that, so he tried again this time holding the ignition so it kept turning over. After a few sections the engine rumbled and went into idle. He turned on the heater and went back inside to wait on everybody.
+
+Beth asked Grandpa Ken if he’d like to go to the Cornucopia Festival one more time, and getting the expected answer of no, round up Lizzie and her doll, picked up her purse and an apple pie she made, and they all headed out the door.
+
+The car pulled down the drive and made it just past the entrance to Oakwood Estates when it started to rattle like something was loose in the engine compartment and then shut off completely. It rolled to a stop and Beth tried to force the wheel over but it wouldn’t budge.
+
+Lizzie looked around confused. Beth tried to restart the ignition but it didn’t even try to turn over. Joseph watched his mother.
+
+“Why did we stop?”
+
+“Quiet, Lizzie,” Joseph said.
+
+“Baby, hold on a minute.”
+
+After it was clear the car was not going to start, Beth considered their options. She looked up the hill, then down the road. Either way it was a good walk, especially in this weather. After the sun went down the temperature dropped below freezing. Single digits coming sometime in the night. They had signs at the trailer park that told people to leave their faucets dripping.
+
+Beth zipped up her coat and made sure Lizzie had on her coat. She did. But her mittens they had left in the rush.
+
+“Do you have your gloves?”
+
+“No ma’am.”
+
+Beth was upset but she tried not to show it.
+
+“Do you want to run back up to the house and fetch your gloves and Lizzie’s mittens?”
+
+Joseph nodded and started to get out.
+
+“No, nevermind. Don’t do that.”
+
+Joseph stopped, awaiting direction.
+
+“Let’s just try to get this car off the road a bit. It’s kind of in a dangerous spot. A car not paying attention could run into it.”
+
+“Okay.”
+
+“Look here. Climb out and get in the back. When I yell start pushin. I’m going to put it in neutral and steer.”
+
+“Yes ma’am.”
+
+“Push hard.”
+
+“Alright.”
+
+Joseph got out and went behind the car. The metal body was so cold he could feel his hands try to stick to it. Beth put the car in neutral and shouted for Joseph to push. Joseph dug his feet into the dirt road and heaved his entire weight against the trunk, but he only succeeded in rocking against the wore-out shocks. It bounced a few times but didn’t budge.
+
+“Ain’t going no where.”
+
+“I can see that.”
+
+“What should we do now?”
+
+Beth got out of the car and walked back to where Joseph stood.
+
+“Here, why don’t you get in and steer us onto the side of the road, this way.”
+
+She made a gesture like turning the wheel to the right ever so slightly. Joseph nodded and got in. He put both hands on the wheel to guide it. He saw his mother in the side mirror lean into the trunk with all her strength. Puffs of her breath floated into the night air as she groaned. It started to move.
+
+“It’s going, mama!”
+
+“I see that baby,” Beth said, her voice straining, “now steer us to the side of the road.”
+
+“Okay.”
+
+The car gained momentum and it wasn’t long before they were on the grass. But there was a frozen mud puddle and just as they got to a good place Beth slipped on it and fell on her knees. The bottom of the dress was soaked. She rose and cursed, then walked angrily to the driver’s door.
+
+“Scootch over.”
+
+Joseph slid into the passenger seat. Beth got in and put the car in park, turned on the emergency lights. She turned on the dome light and looked at her dress.
+
+“Knew I shouldn’t have worn this thing. Now look at it.”
+
+“Ain’t your fault, mama,” Joseph said.
+
+“Well,” Beth sighed, “do you guys want to try to go to the fall festival, or go back to the house?”
+
+“Festival!” Lizzie shouted.
+
+Joseph wanted to go to the festival, but he knew his mother probably didn’t now. He kept quiet.
+
+“Let’s go then,” Beth said.
+
+It was about three quarters of a mile to New Calvary from where the Vega broke down. Beth took Lizzie out of her car seat and set her down. Joseph zipped up his coat and put his hands in his pocket. They started walking.
+
+The sky was clear and the stars were out, shining brightly. Lizzie gazed up at them as they walked together. Then she got tired and asked for her mother to hold her, so Beth picked her up and continued. Joseph walked along the edge of the woods and breathed in rhythms that he thought sounded like a train.
+
+In the distance they could see car lights in the church parking lot and more lights beyond the tree line of colors orange, yellow, and green. There was some kind of music playing but they were too far to place it.
+
+“I sure hope they have apple cider,” Joseph said.
+
+“Hot apple cider,” Beth added.
+
+“I’ll have a gallon.”
+
+They laughed and quickened their pace. 
+
+By now they were starting to see people. Families walking together in the light. A tractor was pulling up with a load of kids in the back. The hay ride.
+
+“Can we do the hay ride mama?” Joseph asked.
+
+“If you want, baby.”
+
+“Mama, I don’t want to do the hay ride.” Lizzie said.
+
+“Me neither hon. We’ll leave that to the boys, what do you say?”
+
+“It’s too cold out here!”
+
+“That’s right.”
+
+As they came up to the end of the road they saw a large paper banner that had been strung across two trees at the turn. It said, “Welcome to the Cornucopia”. They passed under it as they headed towards the main entrance of the big building. There must have been a hundred or so people there from the looks of it, both congregation and those just out for the entertainment.
+
+They didn’t know anyone at New Calvary, but the people seemed friendly, walking around together with red faces in their puffy jackets and coats, carrying cups of steaming coffee and cider.
+
+The music they had heard from the road was a live bluegrass band playing on a small stage set up in the basketball court area. They were playing a song when they arrived that Joseph liked. A few couples danced in front of the band. One of the banjo players took a break and blew into his hands for warmth.
