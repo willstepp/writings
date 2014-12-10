@@ -1,4 +1,4 @@
-==Writings
+##Writings
 
 * Trinidad: A Voyage
 * The Dogs of Santiago
