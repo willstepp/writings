@@ -820,7 +820,7 @@ Joseph zipped up and thrust his hands in his coat pockets but the cold quickly p
 
 As he came to the front porch his gait slowed and instead of going straight in he went over to the living room window and peered in. There was his mother and Lizzie reading Curious George out loud on the couch. Grandpa was there too, on the recliner listening. None of them saw him, so he continued to watch. Mother turned the page and Lizzie grew excited and shouted something and raised her arms like a monkey and grandpa erupted into a spontaneous fit of laughter.
 
-In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He didn’t fully grasp what he was feeling at that moment but he had understood something for the first time in his life. Tears welled in his eyes. He understood that a moment in time was not something he could ever possess, and yet he felt a strong desire to possess this moment — to keep it with him always. Joseph took his hands out of his coat pocket and pressed one of his palms against the cold window. That caught Lizzie’s attention and she jumped from her mother’s lap and raced over to place her hand over his, laughing. Only a pane of glass was between them.
+In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He didn’t fully grasp what he was feeling at that moment but he had understood something for the first time in his life. Tears welled in his eyes. He understood that a moment in time was not something he could ever possess, and yet he felt a strong desire to possess this moment — to keep it with him always. He took his hands out of his coat pocket and pressed one of his palms against the cold window. That caught Lizzie’s attention and she jumped from her mother’s lap and raced over to place her hand over his, laughing. Only a pane of glass was between them.
 
 
 Chapter Four
@@ -958,4 +958,150 @@ As they came up to the end of the road they saw a large paper banner that had be
 
 They didn’t know anyone at New Calvary, but the people seemed friendly, walking around together with red faces in their puffy jackets and coats, carrying cups of steaming coffee and cider.
 
-The music they had heard from the road was a live bluegrass band playing on a small stage set up in the basketball court area. They were playing a song when they arrived that Joseph liked. A few couples danced in front of the band. One of the banjo players took a break and blew into his hands for warmth.
+The music they had heard from the road was a live bluegrass band playing on a small stage set up in the basketball court area. On the stage was a large cornucopia made of straw and filled with flowers and dried ears of corn. The bands was playing a song that Joseph liked, something you might call foot-stomping. A few couples danced in front of the band. One of the banjo players took a break and blew into his hands for warmth. 
+
+The family went inside and were greeting by two elderly women in matching sweaters with black cats on them. Good food lined the buffet table. Traditional southern fare. They were told to help themselves. Joseph dished himself a slab of ham, mac and cheese, turnip greens and two dinner rolls with butter. To go with that he poured a cup of steaming apple cider. They sat at one of the empty plastic tables that had been set up in the open space.
+
+Everyone who passed by smiled at them. Lizzie waved at total strangers and tried to talk to the little kids who walked by, but they were too afraid to talk back. It was warm inside. There was a tall fireplace at the far corner burning bright. A stack of fuel logs were piled up in a stand next to it.
+
+“This food is delicious!” Beth said. She made eye contact with the of the women at the door and indicated she approved of the food. The ladies nodded and smiled.
+
+“Mama, I want to look at the horsies.”
+
+“We’ll go out there in a minute, hon. Let mama finish her food.”
+
+A young couple then approached their table. They were attractive, dressed a little nicer than everyone else, and acted somewhat ashamed of their boldness. The woman spoke first.
+
+“Sorry to bother y’all. By any chance are you Beth Hight and family?”
+
+Beth held out her hand. She shook hands with the woman and then the man.
+
+“Well, yes we are. I’m Beth and this is my son Joseph and my daughter Lizzie.”
+
+Lizzie waved to them and Joseph nodded. The woman and man both beamed and exchanged glances.
+
+“Pastor Jacob told us all about y’all. Said y’all might be coming tonight. We just wanted to stop by and introduce ourselves. My name is Kelly and this is my husband Steven. We’re the Echols. Steven is the youth pastor here at New Calvary and I work in the office part time. We live just down the road.”
+
+“Well, that’s awfully nice of you to come by. I didn’t know Jacob was going to make a fuss. He just invited us the other day you know.”
+
+“Oh its no fuss. We’re just like that around here. Gossip spreads like wild fire. Jacob can’t stop talking about meeting you and Joseph and your house on the hill.”
+
+She laughed in a charming way and pushed the hair off her shoulders. Steven leaned in close to Lizzie and spoke to her in a small voice.
+
+“Ms. Lizzie, have you ever tried bowling with a pumpkin?”
+
+“Bowling with a pumpkin?”
+
+“That’s right. And if you knock down all the pins you can win a prize!”
+
+Lizzie turned to her mother.
+
+“I know darlin, we can go pumpkin bowling. Hold on just a minute.”
+
+“Oh, no, what did you do Steven?”
+
+“I just couldn’t help myself.”
+
+Everyone laughed. Joseph and Beth got up. Beth handed Joseph the plates to throw away which he did in the nearest container. Beth wiped the crumbs from her lap drawing attention to her stained dress. Kelly gasped.
+
+“Oh my dear Lord, what happened to your dress?”
+
+“Our car broken down on the drive over. It was dark and I slipped in a mud puddle. Not a big deal.”
+
+“Well we need to treat it while its still fresh. Let’s go to the wash room.”
+
+Beth looked confused but Kelly place her hand on her shoulder to assure her.
+
+“It’s no trouble at all, darlin. Won’t take but a minute. Just follow me.”
+
+Joseph took Lizzie’s hand and they all went together through a hallway to the back of the building. The lights were off but she switched them on as they walked through the rooms. They came to a small laundry area, which surprised Beth to see in a church building, but she didn’t say anything.
+
+“The only reason I insist is I had a dress that stained in the mud last year and I like to never forgave myself for not treating it right off. That thing never looked the same again.”
+
+“You’re probably right.”
+
+Kelly looked in the cabinets over the washing machine and pulled out a green bottle of Clorox treatment solution. She knelt at Beth’s feet and took a scrub brush that lay on the ground and lightly patted the area while spritzing with the treatment. Joseph and Lizzie wandered in place, looking at the office equipment.
+
+“Y’all stay close. Don’t touch anything, you hear me?”
+
+“Yes, ma’am.”
+
+After a minute of treatment the stain was noticeably less intense. Kelly rose. She looked proud of herself.
+
+“There are you, ma’am. I think that’ll do it. Next time you put that thing in the wash the rest of the stain is gonna come right out.”
+
+“You are an angel,” Beth said, “thank you so much.”
+
+“I just consider it atonement for my own dress.”
+
+“Okay,” Steven said, “I’ve think we’ve had enough boring old housekeeping. Let’s go have some fun.”
+
+“Yeah!” Lizzie and Joseph both agreed.
+
+In the front of the building, facing the main road were several games set up. There was ring toss where you tried to loop a metal ring over some set up milk bottles, guess the number of dry pinto beans in a glass jug, and over on the end pumpkin bowling, where you got to pick your pumpkin and try to knock over five bowling pins. The alley was formed from bales of hay.
+
+Steven picked up a tiny pumpkin and handed it to Lizzie. She admired it and carefully stepped up to the alley. With both hands she threw the pumpkin overhead and it went over the hay bales into the ring toss area, knocking over some milk jugs.
+
+Steven and Joseph started laughing. Beth gasped and put her hand over her mouth. Kelly shouted, “Oh, no!” The boy tending the game gave an annoyed glare and tossed the pumpkin back to Steven.
+
+“Thanks, Kenneth. Sorry about that.”
+
+“Did I win it?” Lizzie asked.
+
+“No,” Steven said, “I’m afraid not yet. Do you want to try again?”
+
+“I want Joseph to do it now. It’s his turn.”
+
+Joseph took a turn and being a game designed for kids he easily knocked over the pins. Still, everyone cheered for him. The girl tending the game handed Joseph a small pumpkin with a smiley face painted on it as a prize. He handed it to Lizzie who was ecstatic to receive it.
+
+“Oh,” Kelly said, turning to them as if she had just remembered something, “you have to try Ms. Margaret’s ginger bread. You never had anything like it in your life. Come on.”
+
+Each one of them got a small slice of the gingerbread on a paper plate and a Dixie up of hot cider to go with it. The cake was moist and spicy, kept warm in the heating tray. They all agreed it was much better than they expected it to be. Kelly looked proud.
+
+“I wouldn’t lie to y’all, was that not the best thing you ever tasted?”
+
+“It was really good.” Joseph agreed.
+
+While drinking the cider and having a couple more pieces of the gingerbread they talked about the church and Pastor Jacob, and Steven was in the middle of a story about the time Jacob tried to bake an apple pie for a fundraiser when a hand clasped onto his shoulder from behind.
+
+“What’s that now, Steven? My ears were burning over there so I had to come over.”
+
+Steven turned red. Everyone else laughed.
+
+“Now brother Jacob, you know I wouldn’t talk bad about your cooking.”
+
+“I suppose not. That apple pie was the best door stopper we ever had around here. Ain’t that right, sweet pea?”
+
+Jacob leaned over and poked Lizzie in the belly, who laughed even though she didn’t get the joke. He rose and greeted Joseph with a hand extended.
+
+“Nice of you to make it, Mr. Hight.”
+
+Joseph smiled big and shook his hand.
+
+“Yes, sir.”
+
+He then turned to Beth and gave her a hug.
+
+“Miss Beth, so happy you could make it to our little festival. Have you had any of Miss Margaret’s gingerbread yet?”
+
+“Oh yes, Kelly brought us over here.”
+
+They stood around and talked and then the band got back on stage after taking a short break. The erupted into a lively song that got a few young couples out on the dance area. Steven extended his arm to Kelly and she winked and they took off to the floor and joined the others. They were very good dancers. Then Jacob extended his arm to Beth who looked taken aback. She even blushed a little but smiled. She took his arm and they hopped off to the dance floor. When Steve and Kelly saw them they clapped and made a space for them to join in.
+
+Joseph and Beth watched from the games area, hand in hand. Jacob led her in the dance and was graceful on his feet as well. He spun their mother and dipped her at one point. Beth laughed. It had been a long time since he saw his mother so happy. He was happy too.
+
+When the song was over they returned to where Joseph and Lizzie were and rested. The band started playing another song but they all agreed one song was enough.
+
+Jacob noticed the stain on Beth’s dress and remarked to her.
+
+“Did we just do that out there?”
+
+Beth blushed and seemed reluctant to tell him how it happened, but then Kelly broke in.
+
+“Their dang car broke down on the way over here tonight, would you believe that? Luckily they don’t live far.”
+
+Jacob’s expression darkened and his light-hearted mood faded. They all saw him turn and became concerned themselves.
+
+“What’s wrong, pastor?” Steven asked.
+
+“Mr. Jacob thankfully fixed my car problem the other day,” Beth said, “I think something else is wrong with it now.”

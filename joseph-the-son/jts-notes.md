@@ -294,7 +294,7 @@ PART ONE (28000):
 
 (4500) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?" Comes home and sees his family playing together. Realizes its something he cannot possess. Sadness.
 
-(3500) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Elise Mullins weeps out loud.
+(4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Elise Mullins weeps out loud.
 
 (4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
 
@@ -308,7 +308,7 @@ PART ONE (28000):
 
 PART TWO (22000):
 
-(3000) 8: Car breaks down. Something more serious this time. Jacob comes over to take a look. Will cost more to fix than the car is worth. “With the money we have raised we can buy you a new car also.” Joseph sees Jacob kissing his mother. Becomes angry. Mother tells hims his father is not coming back.
+(3000) 8: Car catches on fire. Something more serious this time. Jacob comes over to take a look. Will cost more to fix than the car is worth. “With the money we have raised we can buy you a new car also.” Joseph sees Jacob kissing his mother. Becomes angry. Mother tells hims his father is not coming back.
 
 (4000) 9: Joseph and Lizzie track down the dog in the old barn in a field. The boys are there already, preparing to hang it. Joseph tries to stop them. Fights Jesse with non-resistance. They save the dog. Are told Jacob paid them to do it.
 
