@@ -1105,3 +1105,86 @@ Jacob’s expression darkened and his light-hearted mood faded. They all saw him
 “What’s wrong, pastor?” Steven asked.
 
 “Mr. Jacob thankfully fixed my car problem the other day,” Beth said, “I think something else is wrong with it now.”
+
+Jacob took off his hat, exposing his balding head, twisting the brim in both hands.
+
+“Mr. Beth, I do apologize I was not able to repair your car properly.”
+
+“It’s not your fault, Mr. Jacob. Really.”
+
+“Well, now. I can’t help but think it is. You’re kind to say that but the truth is you entrusted me and I let you down. That weighs on me.”
+
+“Don’t be so hard on yourself, Jacob,” Steven said, seeing how upset he was. He placed a hand on his shoulder.
+
+“Well, I don’t know what to say except to repeat the words of Jesus Christ, if a man compels thee to go a mile, go with him twain.”
+
+With that, Jacob left the group and walked towards the stage. The band was in between sets and was preparing to go into another song, but Jacob walked onto the stage under the bright light and whispered something to the leader of the band, who nodded and instructed the other members to put up their instruments. Then they departed from the stage leaving Jacob there alone. He still carried his hat in his hands which lent him a reverential air.
+
+The people at the festival had seen him walk on stage and over a period of a minute had all but quieted to a whisper.
+
+“Friends,” Jacob began, “I was inspired just now to come up here and speak to you all, concerning a matter very close to my heart these last few days.”
+
+The pastor spoke quietly into the microphone. It created an intimate setting. Families moved closer to the stage in unison. Jacob paused between thoughts, staring at the stage floor. The lights from above shone down onto his crown and you could see the beads of sweat forming there.
+
+“I met a family recently. The Hight family. Yes, that Hight family, whose farm land this all used to be. The Hights of the Hight Farm that sits abandoned up on the hill. Except, Hight Farm is not abandoned. Not anymore. I met the boy Joseph there and then had the fortune to meet his mother Beth and the little one Lizzie. Misfortune has brought them back to that old house on the hill. And the key word here is ‘old’ praise Jesus name.”
+
+The crowd laughed. Beth, Joseph, and Lizzie stood there unsure what to do. Beth did not make eye contact with those eyes she felt looking at her family. She kept her eyes on the stage.
+
+“I had a tour of their house the other day. It’s a miracle really. An old house from the depression era, probably built in the twenties or thereabouts. Wouldn’t you say so Beth?”
+
+Beth nodded, shy.
+
+“But time has not been kind to this house. This home. A large Water Oak has fallen on the roof creating a draft and other structural problems. The only heating in the place is the wood stove in the kitchen.”
+
+Jacob walked over to a stack of hay bales that were on the stage and sat down upon one of them. He seemed to struggle to find the right words for what he wanted to say.
+
+“Before I get on with it, I’d like to make a confession to you all here tonight. If you’ll let me.”
+
+He looked up at that point as if asking for permission from the crowd.
+
+“I said, if you let me I’ll confess to you here tonight, is that okay with everybody? Please say amen.”
+
+“Amen, brother Jacob.”
+
+“Amen, Pastor.”
+
+A few people shouted. Others followed. Jacob seemed pleased. He continued.
+
+“When I was a young man, living in Birmingham, boy I was full of verve and spit. Whatever it was young men were full of back in those days. Working as a mobile car doctor. I bet you all don’t even know what that is. Well, I’ll spare you the trouble to ask. It’s a mechanic that makes house calls. I went around all over the city fixing folks cars. Good money. Steady paycheck. And I had plans with that money. Had a girl. Noreen. We were to be married. But what I was most excited about was building a house. And not just any house. The house of my dreams. That I would build with my own two hands and where I would raise a family and live out the rest of my days on this Earth. I had blueprints drawn up. How many rooms. A large foyer. The wrap-around porch. I scouted parcels of land just outside the city limits. Found a perfect spot on five acres with a creek in the back. It was perfect in my mind. Everything perfect. Yes sir.”
+
+He lifted his hands to his face and wiped away the sweat that trickled into his gleaming eyes. There was not a sound to be heard in the crowd. Adults and children alike were captivated by his speech. There was something in the tone of it that went beyond just the words that were spoken. A mesmerizing cadence he had that sucked you into the world of his story, no matter what it was.
+
+“And I guess at this moment you might be asking yourself, why are you not living in that magnificent house right now, Pastor Jacob? Why are you living in the modest, but practical pastor in residence accommodations of the New Calvary Baptist Church, And you’d be right to ask yourself that.”
+
+“I wish as your pastor I could tell you I had a vision from the Lord. I wish I could tell you it was my road to Damascus moment, where I cast off all worldly treasures and decided to dedicate my heart to Jesus.”
+
+“Amen, pastor,” a lone voice shouted.
+
+“Amen to you brother. But let me tell you. That was not it. Like I told you before I began telling it, this is a confessional, and I wanted to you all to hear it told. The simple reason I am not living in that magnificent house, raising my kids, growing old with my fiancé Noreen, is because I never built it in the first place. I never had kids. I never married Noreen.”
+
+“You see, I knew as a young man. Boy I thought I was so clever back then. I could see the future. I could see it all. And I knew in my heart that the house I could build would never be as magnificent as it was in my mind, in my dreams of it. And I guess that goes for any children I would raise there, and for my wife too. Nothing could every be as perfect in the real world as in my dreams of it. And, sorry to say, that paralyzed me. And I never built that house. Noreen left years later when my fortune changed and had no more money to build a house and start a family anyway. I never built the house of my dreams. And that was a sin. A great sin. Not that the house wasn’t built. But that I let fear prevent me from manifesting a vision. The Lord speaks to us in so many ways, and he spoke to me and gave me that vision of the house and the family, but I was afraid. I lived in fear of the possibility it could never live up to what I imagined that I never even tried. And that was a sin. A great sin against God.”
+
+Jacob rose and paced the stage. No one in the crowd spoke. It was quiet for a minute and felt like a shock when his voice range out again.
+
+“So when I see the Hight family, returning to their family home, trying to restore it again to the glory of the past. My heart goes out to them, you know. My heart cries out for them to succeed, praise Jesus.”
+
+“Amen.”
+
+“My heart cries out and more than that I want to help. I want to help them to make it. To restore that old farm house. To fulfill their own dream, that dream that comes from God above. You believe it, yes sir!”
+
+“Praise the Lord!”
+
+“And I know you too want to help them, the flock of New Calvary. We can help this family in their time of need. Let’s raise the money they need to rebuild the farm. Let’s raise the money to fix their roof. Heat their home for the coming winter. It’s liable to be a mighty cold winter this year.”
+
+Jacob walked to the large cornucopia and picked it up. He toss the flowers and fruit onto the ground and held it up for all to see.
+
+“Let’s fill this horn with the good will of the Lord’s community. Let’s help the Hight family and know that help will come our way, should we ever need it. Praise Jesus for me one more time.”
+
+“Praise Jesus!” many cried out.
+
+Joseph reached into his pocket and dumped the contents of his wallet into the cornucopia horn, a wad of bills and some coins. Then he passed it over to the nearest crowd member. That person dropped in some money and passed it to the next, and around it went.
+
+Joseph placed the microphone back in its stand and walked off stage to join the others. He was covered in sweat and seemed to be in a daze. He donned his hat and shook hands with some of the crowd. Then he came over to where Kelly, Steven and the Hight family stood and smiled at them, and had a look of surprise when Beth leapt into his arms and hugged him hard around the neck.
+
+
+Chapter Five
