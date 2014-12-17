@@ -1188,3 +1188,100 @@ Joseph placed the microphone back in its stand and walked off stage to join the 
 
 
 Chapter Five
+
+
+Twenty three degrees this morning according to the rusty thermostat nailed by the front door. The coldest morning yet this year. Joseph tiptoed back into his room, avoiding certain noisy slats in the floor, and pulled his long johns from the bottom dresser drawer. As he struggled to pull them on his breath escaped in rapid puffs that rose to the ceiling. Frost covered the windows so that the sunlight came through muted and soft. He tried not to wake Lizzie as he layered on his thermals and then jeans and a sweatshirt on top of that.
+
+Grandpa Ken did not rise this morning to light the stove. His door was shut, as was mother’s, but Joseph knew what must be done. He picked up the empty basket and went outside.
+
+But when he reached the woodpile near the shed he could see there was only a few more logs remaining. Grandpa Ken took care of filling the wood basket each morning and always let Joseph know when they would have to go chop wood again. He grabbed the few remaining logs and carried them back to the house. They would burn through these by evening for sure.
+
+He set down the basket and opened the stove door. Ashes from the night before he swept with a tiny whisk broom into a tin can and set it aside. Then he placed two of the logs inside, the smaller one resting at an angle on top of the larger. Then he grabbed some old newspaper and magazines from the pile and tore it into tinder, then placed it all around the crooks and under and over top of the logs. He took one of the long stem matches from the box and ran it slowly against the striker, taking pleasure in the crackling sound it made as the phosphorous ignited and the flame whipped in the air. He lit the tinder and made sure it caught well enough to light the smaller fuel log. Then he closed the door and waited.
+
+Twenty minutes and there was enough heat coming off the stove to heat the kitchen and living area. His mother came out in a bathrobe rubbing her arms for warmth.
+
+“Grandpa didn’t get up again?”
+
+“No, ma’am.”
+
+“How many logs you got in there?”
+
+“Two. A small one and a big one.”
+
+She saw the basket with only one log remaining.
+
+“How come you didn’t get more wood? We’re gonna need it today.”
+
+“There ain’t no more.”
+
+His mothers eyes widened.
+
+“What do you mean there ain’t no more?”
+
+“I went out to the woodpile and there was only a few logs left. I guess we used them all up.”
+
+Beth sat down at the kitchen table, her eyes not focused on nothing particular.
+
+“Grandpa Ken must have forgot to say something about it.”
+
+“I can go chop some wood now.”
+
+“Why don’t you walk to Pastor Joseph’s farm, ask if he can spare a few logs just for today, then we’ll worry about that. I need to go see if Grandpa is alright. You had breakfast?”
+
+“No, ma’am.”
+
+“Eat you some leftover biscuits with jelly. I’ll have something hot for you to eat once you get back.”
+
+“Yes, ma’am.”
+
+Joseph grabbed a hard biscuit from the bowl on the counter. He spread some strawberry jelly on it and scarfed it down with a glass of water from the tap. His mother checked on grandfather, who was still asleep. Joseph took the only log from the basket and set it on the floor, then he headed out, but he mother stopped him.
+
+“Be sure to thank the pastor and ask if he can come to dinner one night soon, say Monday. We need to do what we can to thank him properly for all he’s done for us these last few days.”
+
+“Yes, ma’am.”
+
+Joseph ran out the door. The biscuit and jelly had given him strength to face the cold of the day. He walked at a brisk pace down the drive towards Oakwood Estates.
+
+Nebulous clouds hung low in the orange-gray sky, moving slowly to the East. A few bright rays of sunlight scattered through them and every once in awhile a spot of blue appeared. Rain and sleet was forecast for later and possibly snow by nightfall.
+
+As he came around the bend to the first row of trailers he saw Jesse Black and gang at the far end of the Estates. They were playing next to the sign at the entrance. Ignacio was swinging a long stick like a sword at Maurice. Jesse was looking at something in the ground. He decided right then he wanted no part of whatever they were up to this morning.
+
+He turned to walk along the row of trailers on the perimeter of the Estates, cutting across the gravel road onto the grass, and then into the small packs of pine trees that connected to the woods behind Pastor Jacob’s farm house and the church. It would take longer by this route but he would try his luck.
+
+There were thick bushes with briars at every line through the pine trees. But he had on his winter boots and gloves and stomped them down the best he could. Eventually he fought through the thickest of them and made good progress. He kept close to the tree line so that he wouldn’t get lost. These woods went back for acres, maybe miles, up the mountain.
+
+As he walked he watched Jesse and the others, hoping to keep out of their line of sight. The basket got hung on twigs and limbs every fifteen feet or so and he had to stop and untangle it. As he went he became more and more agitated.
+
+Once he had been walking for fifteen minutes the cold had penetrated the cap that insulated his ears and he felt them turning numb. His fingers and toes also were beginning to sting from the exposure.
+
+Now he was clear on the other side of the road, coming down to where Jesse, Maurice, and Ignacio were, so he went deeper into the woods. It was clear enough here but that worried him because he could clearly seem them from where he was and he knew that meant they could see him too. If they spotted him here they would know for sure he was trying to avoid them and cause trouble just to spite him.
+
+Then he ran into a fallen pine and tripped over it hard and landed against another tree. A loud *uummppphh* escaped him and the sound echoed to the place where he didn’t want it to go.
+
+The boys stopped what they were doing and looked at the pines, unsure what they were seeing. As Joseph rose to his feet they recognized him and instantly sprinted in that direction.
+
+Joseph cursed and started running as fast as he could through the pines. He darted over and under the hanging limbs, quickly determining they would gain ground on him this way, so he made the decision to actually go deeper into the woods, in the most direct path away from them he could go.
+
+His feet carried him deeper and deeper into those woods. The light grew dimmer as the canopy of trees fell thicker overhead. He did try to keep a little in the direction of Jacob’s farm. His hope was that he would eventually come out the back side of his land.
+
+“Bastard boy! Bastard boy!” He heard them shouting through the trees.
+
+“I saw him go that way.” Ignacio said.
+
+Their voices were closer overtime they spoke. Joseph began to fear what they would do to him out here in the woods where nobody could see. Where Jacob was not around to stop them. He remembered the dead glare that Jesse had given him the last time they fought. It was a look of blood. Of murder.
+
+He came to a place where a large overgrowth of kudzu and vines had enveloped some rotting fallen trees. Without thinking he leapt into the patch of leaves and was instantly hidden.
+
+Soon the pack of boys followed him into the same space. Joseph did not seem to draw even one breath while they were in his line of sight. He watched them approach from the far wood line. But from where he was they could not see him, tucked down between two fallen trees and covered with the kudzu.
+
+They walked nearby and argued amongst themselves where he could have gone. And then, just like that, they were gone again. This time headed back to the road. Or the direction he thought the road was. To be honest he was lost at this point.
+
+Joseph waited there in the kudzu for ten minutes or more. When enough time had passed since the last time he heard their voices or footsteps. Then he came out, still holding the basket. Cuts and scrapes on his face.
+
+He took off in what he thought was the right direction and walked at a pace right before a jog.
+
+Minutes passed and he was concerned he had gotten completely turned around. He almost had decided to turn back the way he came when he emerged onto a paved road winding around a curve.
+
+He recognized it as a bend in the state road that ran by the road to their house. He followed the road and stayed out of the way of cars until he saw the familiar sign for New Calvary Baptist Church. There were no cars in the lot. He took a shortcut through the parking lot and headed back to Jacob’s farm house. 
+
+When he reached the porch he took a moment to rest and then knocked on the door. Jacob came to the door after some time, the warmth from inside hitting him in the face and freshening the scratches on his face.

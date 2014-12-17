@@ -294,9 +294,9 @@ PART ONE (28000):
 
 (4500) 3: At work on Jacob’s farm Tearing up garden. Preparing for festival. Jacob at work on car for Beth. Fight with Jesse (calls him bastard boy). "What will it take for you boys to learn?" Comes home and sees his family playing together. Realizes its something he cannot possess. Sadness.
 
-(4000) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Elise Mullins weeps out loud.
+(4500) 4: Cornucopia: Drives car. Meet youth minister and wife, apple bobbing, pumpkin rolling, apple cider. Minister Jacob moved to help Joseph’s family. Elise Mullins weeps out loud.
 
-(4000) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
+(3500) 5: At work on Jacob’s farm, the dead chickens found. Other boys absent. Asked to find culprit. Invitation to dinner. You did good today, I’m proud of you. Gives pocket knife here. "Tell no one."
 
 (5000) 6: Dinner with Jacob, dancing with mother, argument with grandpa. Sent to bed, making noise (telling stories about their father, a sailor), grandfather whips Lizzie. Joseph cleans room. "Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
 
@@ -533,3 +533,20 @@ Purpose of this scene:
 2) Meet the youth pastor and his wife.
 
 3) Show car broken down again
+
+
+What happens now? 12-15-2014 (3500)
+
+Joseph carries in the daily fuel logs
+Joseph walks to Jacobs farm in order to invite him to dinner.
+Joseph avoids the boys in Oakwood Estates by taking the long way around.
+Jacob asks if he wants to feed the chickens
+Jacob gives him a knife asking him to tell nobody
+They discover the chickens killed
+Jacob asks Joseph to track down the killer
+
+
+Purposes of this scene
+To set up plot for dinner scene
+To introduce the knife subplot
+To increment dog/chicken story
