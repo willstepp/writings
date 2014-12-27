@@ -249,7 +249,7 @@ None of the boys dared to speak. Not amongst themselves and not to pastor Jacob.
 
 Then Pastor Jacob opened his eyes and looked at each one of them. Then he spoke.
 
-“Augustine, the Saint, wrote that if it were possible for every sound to become silent and for every movement to become still, in all of creation, then the truth of our existence would be revealed to us. Everything would speak at once, in the same voice. We did not create ourselves. We were made by Him who abideth in Eternity.”
+“Augustine the Saint wrote that if it were possible for every sound to become silent and for every movement to become still, in all of creation, then the truth of our existence would be revealed to us. Everything would speak at once, in the same voice. We did not create ourselves. We were made by Him who abideth in Eternity.”
 
 “Creation. You. Me. This dirt road at our feet. The grass. The clouds. The sun. Those chickens. That poor dog. There is a kinship here. It is deeper than species. It is deeper than blood. There is an understanding of life that cannot be taught. It must be understood. You Jesse and you Maurice, you Ignacio, and you, what is your name, son?”
 
@@ -1284,4 +1284,118 @@ Minutes passed and he was concerned he had gotten completely turned around. He a
 
 He recognized it as a bend in the state road that ran by the road to their house. He followed the road and stayed out of the way of cars until he saw the familiar sign for New Calvary Baptist Church. There were no cars in the lot. He took a shortcut through the parking lot and headed back to Jacob’s farm house. 
 
-When he reached the porch he took a moment to rest and then knocked on the door. Jacob came to the door after some time, the warmth from inside hitting him in the face and freshening the scratches on his face.
+When he reached the porch he took a moment to rest and then knocked on the door. Jacob came to the door after some time, the warmth from inside like the blast from a furnace, warming the fresh scratches on his cheeks.
+
+“Joseph.”
+
+“Pastor,” Joseph huffed, still out of breath. All of a sudden he felt ashamed to be there, ashamed to be carrying the empty basket. He couldn’t say why.
+
+Jacob waited for him to speak but when he didn’t he pushed open the screen door and stood aside.
+
+“Well, would you like to come in for a moment. Its awfully cold out this morning.”
+
+Joseph held tightly onto the basket and walked inside.
+
+The place was nothing like he imagined. The first thing he saw was the large fireplace in the next room, a den. The hearth was made from pale marble that stood out from the otherwise wooden interior walls. It was dark, cave-like. No light from outside came in through the windows, which were covered by a layer of plastic and thin sheets of various colors. Jacob showed him to the couch where he sat, placing the basket beside him as if it were a guest too. The couches were old leather, cracked, and as he sunk into it his feet raised up in the air.
+
+Jacob closed the door behind them and then disappeared down a hallway that went straight back into darkness, but a few seconds later he saw lights in the kitchen flicker on and then heard cabinets open and close, silverware clanking.
+
+The stucco walls and ceiling in the living room area were covered in suit and grime. They had once been white he supposed but not for many years. For decoration there were several paintings of religious themes on the walls. The largest was a black velvet painting of Jesus kneeling in prayer beside a rock, his gaze fixed on a bright star just out of frame, its rays beaming down onto his serene face. Smaller paintings lined the walls around the room in something like a chronology of the life of Jesus: birth in the manger, baptism by John, trials in the desert, sermon on the mount, miracles, last supper, but missing was the crucifixion.
+
+Jacob returned carrying two mugs with steam rising from them. He handed one to Joseph and sat in the recliner underneath the velvet Jesus. They sipped in silence.
+
+“Cider.”
+
+“Yes, sir,” Joseph agreed, “its very good hot.”
+
+“I always like during the winter. I’m not a coffee drinker.”
+
+Joseph nodded.
+
+“So, what do I owe the pleasure this fine morning?”
+
+“We ran out of wood. Grandpa usually takes care of the wood but he hasn’t been himself lately. He usually lights the stove in the morning to heat the house but this morning he didn’t get up, so I got up to do it, but saw there was no more wood in the pile. Well, except for a few pieces, but that won’t last the day.”
+
+Jacob nodded thoughtfully, and then smiled.
+
+“That won’t be a problem, Mr. Joseph. The church has a large stockpile behind the storage building. We keep it up all year round. I don’t use much myself and the church only uses its fireplace on special occasions. Tell you what. After we finish our cider I’ll get the pickup truck and we’ll load up as much as we can carry and take it to your place. Sound good?”
+
+Joseph smiled. Now he wouldn’t have to lug a basket of wood past Jesse Black and his gang, but he didn’t tell the pastor that. He nodded and took another sip of the cider, then after some time he felt like he ought to say something to break the silence.
+
+“It sure is cold.”
+
+“That it is,” Jacob agreed, “but, no sense in staying that way when we have the know-how to build a fire. Yall’s place doesn’t have a furnace?”
+
+“Yes, sir, it does. But grandpa said its give out and we need to replace the entire thing. So we’ve been making due with that old wood burning stove. It’s enough for the downstairs, if we keep the doors open at night. Wasn’t bad when we first moved in, but now that winter is here.”
+
+“Lord,” Jacob said, “so you are in need of a roof and a furnace.”
+
+“Yes, sir.”
+
+“Well, we’re working on that, Mr. Joseph.”
+
+“I know you are, sir. And my mama wanted to thank you for all you’ve done. She asked me to invite you to dinner sometime this week, if you are able.”
+
+“Well sure.”
+
+They finished the cider. Jacob took the cups into the kitchen and washed them out. Then he asked Joseph if he wanted to help feed the chickens before they got started with the wood. Joseph agreed. Jacob put on his heavy black coat and wrapped a green scarf around his neck. Then he slid on some boots, stomping them on the hard wood to get his foot all the way in. 
+
+At the shed Jacob did his normal routine of handing the feed outside for Joseph to carry but when he was finished this time he brought out a black case of some kind and shut the door with a shove of his shoulder.
+
+“Put that feed down for a second. I have something I want to show you.”
+
+Joseph set the feed next to the shed. Jacob knelt beside him on the ground, his knee crunching into the frost. He held out the black case and gestured for Joseph to take it from him, which he did. The case was heavier than it looked. New but with no markings to indicate what it contained.
+
+“What’s inside?”
+
+“Open it and find out.”
+
+It did not take him long to figure out how to unlatch the leather tab and flip open the case. Inside he found a brand-new pocket survival knife. It had a stainless steel serrated edge blade, black anodized, and had two other components, a marlin spike and a compass on the end. The body had a red rubber grip.
+
+“This is awesome! Just like the ones they sell at the flea market.”
+
+“I know,” Jacob beamed, “so you like it?”
+
+“It’s awesome.”
+
+He flipped open the blade, locking it into place, and brandished it through the air like a sword.
+
+“Think you could use something like that?”
+
+Joseph’s eyes widened.
+
+“Are you serious?”
+
+“If you want it, yeah. It’s yours. I bought it for you.”
+
+“I love it,” Joseph exclaimed, “It’s the best thing anybody’s ever given me. But why do you want me to have it?”
+
+“You should never ask why a gift is given. It just is. Accept it for the blessing it is, for the receiver and the giver too.”
+
+Jacob smiled and then rose. He feathered Joseph’s hair and picked up the feed. They headed towards the barn. Because the weather had gone below freezing, Pastor Jacob had started putting the chickens inside a coop in the barn at night, only letting them out if it was not too cold. But he still liked to feed them by hand.
+
+The reached the barn and Jacob flipped open the wooden catch and swung open the large doors. From inside an earthy smell of hay and manure emerged. It was dark in the corner where the chickens were cooped, but you could still see enough to find your way back there.
+
+“It’s too cold to let them out today, let’s just toss some feed through the pen and be done with it.”
+
+But there was a silence in the barn they both noticed as they walked inside. At each footstep Jacob became more concerned. Then when they reached the coop both of them stopped.
+
+There on the dirt floor of the coop, among the droppings and scattered pieces of hay, were all the chickens, pulled apart and bleeding onto the ground. Feathers strewn all over the ground, the wire. There had been some kind of struggle here. On the back end of the coop a large opening was in the wire, dug under and pulled up. It was such a mess that it was hard to tell exactly how many chickens there were. The chaos of feathers of all different colors were intermingled with body pieces, a head here, feet here, guts everywhere.
+
+“My God,” Jacob said. For some time that was the only thing he said, “My God. My God.”
+
+He and Joseph opened the pen and looked around for any chicken still alive, but there wasn’t any. At some point it was obvious there wasn’t anything left to do except clean the carnage and Jacob dropped to his knees inside the pen, a look of distraught come over his face. A hopeless look.
+
+Joseph went back to the shed to get the shovel and wheelbarrow, anything else he thought they might need to clean up. When he returned Jacob was in the same spot looking into the distance.
+
+“What did this?” Joseph finally got the courage to ask. His voice brought Jacob ought of his thoughts and he turned to Joseph.
+
+“Hard to say,” Jacob said, “but we have to find out. Are you up to the task? Can you do me the favor of tracking it down?”
+
+Joseph saw the seriousness in Jacob’s expression and nodded. Jacob rose to his feet and walked over to Joseph, his eyes never leaving him.
+
+“I will,” Joseph agreed. At that Jacob took a shovel and walked back to the pen. Joseph pushed the wheelbarrow to the scene and they both started to work, taking turns with the shovel.
+
+An hour later they were finished. They took the remains of the chickens to the fire pit, where Jacob said he would burn them later that night. When they took the tools back to the shed Jacob turned to him and placed both hands on his shoulders, speaking to him in a voice more stern than anything he had yet heard from the Pastor.
+
+“Tell no one about the knife I gave you, Joseph. Keep it between you and me.”

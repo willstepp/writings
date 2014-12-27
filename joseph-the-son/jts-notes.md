@@ -535,18 +535,23 @@ Purpose of this scene:
 3) Show car broken down again
 
 
-What happens now? 12-15-2014 (3500)
+What happens now? 12-15-2014 (1650)
 
 Joseph carries in the daily fuel logs
 Joseph walks to Jacobs farm in order to invite him to dinner.
 Joseph avoids the boys in Oakwood Estates by taking the long way around.
+
+
+What happens now? 12-26-2014 (1650)
+
 Jacob asks if he wants to feed the chickens
 Jacob gives him a knife asking him to tell nobody
 They discover the chickens killed
 Jacob asks Joseph to track down the killer
 
-
 Purposes of this scene
 To set up plot for dinner scene
 To introduce the knife subplot
 To increment dog/chicken story
+
+200 - add to previous chapter
