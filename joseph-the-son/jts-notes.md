@@ -554,4 +554,30 @@ To set up plot for dinner scene
 To introduce the knife subplot
 To increment dog/chicken story
 
-200 - add to previous chapter
+200 - add to previous chapter, mention that Joseph suspects the dog and looks for acknowledgement in Jacob’s face but doesn’t see.
+
+
+What happens now? 12-28-2014 (1650)
+
+Beth dancing as she cleans, whistling
+Joseph and Lizzie help Beth prepare dinner
+	Roast, potatoes, carrots
+	Cornbread
+	Baked Apples in vanilla ice cream
+Jacob arrives
+They thank him for fixing the car
+They thank him for raising the money
+He talks about how they’ve raised more, for the furnace
+Grandpa comes out, introduced to Jacob
+They argue from the start
+	First about food
+	Second about charity
+	Third about Eternal Life, God
+Grandpa is drinking, becomes drunk, tells him to get the hell out of his house!
+Beth apologizes, Jacob leaves.
+Joseph sees Jacob kiss Beth on the neck
+
+Purpose of scene is to establish contention between Jacob and Ken, also establish their opposing world views. Further plot of the charity funds being raised and the car being fixed, and Beth and Jacob’s romantic feelings.
+
+
+You write better about a place you have been to before so make sure each setting has something of a real place about it, so the details feel real instead of made up.
