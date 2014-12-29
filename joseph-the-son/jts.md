@@ -1458,14 +1458,60 @@ She started to brush out Joseph’s hair but he shirked away.
 
 Beth looked hurt, but handed Joseph the brush. He proceeded to pull the brush through his hair. It caught on tangle after tangle that he fought through. But eventually his hair too looked nice and brushed.
 
-The hearty aroma of the roast beef filtered through the house. Beth asked Joseph to check on it to make sure the potatoes were cooked through, and if so, to uncover and cook another fifteen minutes. Then she returned to her makeup and hair.
+The hearty aroma of the roast beef drifted through the house. Beth asked Joseph to check on it to make sure the potatoes were cooked through, and if so, to uncover and cook another fifteen minutes. Then she returned to her makeup and hair.
 
-Joseph took Lizzie to the main room where she got out all the toys they had just put up a half hour ago. Then he went to the stove to check on the roast. As he opened the door to the oven a wave of heat and the thick smell both hit him in the face. It was not unpleasant. He took the pot warmers and lifted the lid to test out a potato. It was just about done so he removed the lid completely and closed the oven door again.
+Joseph took Lizzie to the main room where she got out all the toys they had just put up a half hour ago. Then he went to the stove to check on the roast. As he opened the door to the oven a wave of heat and the thick smell both hit him in the face. He took the pot warmers and lifted the lid to test out a potato. It was just about done so he removed the lid completely and closed the oven door again.
 
 When Beth finished getting ready she came into the kitchen and started on the cornbread. She asked Joseph to go knock on Grandpa Ken’s door to make sure he knew company would be arriving soon. Beth had told him earlier but wanted to make sure he was ready to greet Jacob when he first got there.
 
-Joseph went to the door to the back room and knocked.
+Joseph walked to the door at the back room and knocked.
 
-“Is the priest here yet?”
+“Grandpa?”
 
-21300
+“What do you need, Joseph?”
+
+“Mama asked me to check on you.”
+
+“Be out shortly.”
+
+“Okay.”
+
+When he came back a light shone through the kitchen window and moved across the wall. It was the Pastor. Beth put in the cornbread and gave Lizzie a once-over, then threw a few stray toys into the box. She patted down the dress she wore and smoothed out a few wrinkles. Then she went to the door and opened it. A breath of the cold night air blew in and caused them all to shiver.
+
+Joseph heard the Pastor coming up the steps. Apparently he had come in the Vega, now repaired, and wanted to show Beth. She went out with Lizzie and Joseph watched them outside, their silhouettes visible from the car lights. A minute later they came in, complaining about the cold.
+
+Jacob came inside wearing a long dress coat and a hat of all things. He too was dressed for the evening, in a suit. Beth took his coat and hat and placed them on the dresser in Joseph and Lizzie’s room since they had no coat rack. Beth asked Jacob if he wanted some coffee and he agreed. Then they all took spots around the kitchen table and smiled at one another. Jacob turned to Joseph.
+
+“Well Mr. Joseph, I don’t think I’ve ever seen you look so sharp. You clean up nice.”
+
+Beth laughed, “That’s what I was saying. He’ll be beating off the girls pretty soon.”
+
+Joseph looked at his feet as they praised him. Then Jacob turned his attention to Lizzie who could not stop staring at the Pastor, though she said nothing.
+
+“And you, little one. I don’t think I’ve ever seen an angel quite so lovely.”
+
+Lizzie walked up to Jacob and he lifted her onto his lap. She seemed fascinated by his beard and pulled it. He played like he was hurt and made her laugh. Then she looked up at his head.
+
+“You’re bald,” she said.
+
+“What?” Jacob said, “did I leave my hair at home again? I knew I forgot something!”
+
+Then he tickled her belly and set her down. Lizzie beamed and walked over to her mother. Beth stood there, unsure what to say, happy to have brought them all together. Jacob looked at Beth and admired her.
+
+“Yook lovely tonight.”
+
+Beth blushed.
+
+“Thank you, Mister Jacob. You are quite handsome yourself. I’m glad you came. I think dinner is just about ready.”
+
+She walked to the stove and checked on the roast. It was ready so she pulled it out and set it on the burners. Steam rose from the meat and vegetables when she lifted off the lid. She asked Joseph to grab some plates and lay the table, which he did without delay.
+
+From the back of the house a door opened. A moment later Grandpa Ken emerged from the hall, dressed up in a tan suit and bolo tie. Joseph had never seen his grandfather dressed up like that. He watched as his grandfather made his way across the room to the Pastor and held out his hand.
+
+“Pastor Brumbalow, you are welcome to my home.”
+
+A solemn look fell over Jacob as he took Grandpa Ken’s hand.
+
+“Thank you, sir. Please call me Jacob. A lovely family you have. I am proud to be here tonight.”
+
+Now that dinner was ready they all took seats around the kitchen table. There was really only space for four, but Joseph had brought in a spare foldout chair from the den and set it next to  Lizzie, who sat in a booster seat next to him.
