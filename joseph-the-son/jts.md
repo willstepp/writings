@@ -1416,7 +1416,7 @@ It was evening when the sun had just dropped behind the power plant towers to th
 
 At the moment Beth was sweeping the floor. She moved around the room as if dancing with a partner, enjoying the work, humming a song that had no words or melody. Just a song. Lizzie and Joseph joined her in singing the wordless song, each involved in their own task. Joseph was peeling potatoes for the roast and Lizzie was picking up her toys and placing them in the plastic box next to the window.
 
-Joseph saw how happy his mother was. It had been a long time since she was in a mood like this. He was halfway through peeling the potatoes when he cut his thumb on the paring knife and winced. But he hid it from the rest of them and just ran water over it until the bleeding stopped. When he finished with the potatoes he chopped them in quarters and set them in the pan with the carrots and onions, all around the large roast which was salted and peppered. He showed his mother and she opened the stove door and slid it in and turned the knob on the timer for ninety minutes.
+Joseph saw how happy his mother was. It had been a long time since she was in a mood like this. It made him angry in a way he could not understand. He was halfway through peeling the potatoes when he cut his thumb on the paring knife and winced. But he hid it from the rest of them and just ran water over it until the bleeding stopped. When he finished with the potatoes he chopped them in quarters and set them in the pan with the carrots and onions, all around the large roast which was salted and peppered. He showed his mother and she opened the stove door and slid it in and turned the knob on the timer for ninety minutes.
 
 Then he helped his sister pick up toys because she was not doing a very good job. Once all the toys were in the box Beth asked Joseph to help clean up Beth and help her put on the red dress she had washed and ironed. Then Beth went to get ready.
 
@@ -1454,9 +1454,9 @@ Beth licked her thumb and rubbed out a dirt smudge on Lizzie’s cheek that Jose
 
 She started to brush out Joseph’s hair but he shirked away.
 
-“I can do it myself, mama.”
+“I can do it myself.”
 
-Beth looked hurt, but handed Joseph the brush. He proceeded to pull the brush through his hair. It caught on tangle after tangle that he fought through. But eventually his hair too looked nice and brushed.
+Beth looked hurt but handed Joseph the brush. He proceeded to pull the brush through his hair. It caught on tangle after tangle that he fought through. But eventually his hair too looked nice and smooth.
 
 The hearty aroma of the roast beef drifted through the house. Beth asked Joseph to check on it to make sure the potatoes were cooked through, and if so, to uncover and cook another fifteen minutes. Then she returned to her makeup and hair.
 
@@ -1494,24 +1494,112 @@ Lizzie walked up to Jacob and he lifted her onto his lap. She seemed fascinated 
 
 “You’re bald,” she said.
 
-“What?” Jacob said, “did I leave my hair at home again? I knew I forgot something!”
+“Did I leave my hair at home again?” Jacob asked, feigning surprise, “I knew I forgot something at the house!”
 
 Then he tickled her belly and set her down. Lizzie beamed and walked over to her mother. Beth stood there, unsure what to say, happy to have brought them all together. Jacob looked at Beth and admired her.
 
-“Yook lovely tonight.”
+“You lovely tonight.”
 
-Beth blushed.
+And Beth blushed.
 
 “Thank you, Mister Jacob. You are quite handsome yourself. I’m glad you came. I think dinner is just about ready.”
 
-She walked to the stove and checked on the roast. It was ready so she pulled it out and set it on the burners. Steam rose from the meat and vegetables when she lifted off the lid. She asked Joseph to grab some plates and lay the table, which he did without delay.
+She walked to the stove and checked on the roast. It was done so she pulled it out and set it on the burners. Steam rose from the meat and vegetables when she lifted off the lid. She asked Joseph to grab some plates and lay the table, which he did. 
 
-From the back of the house a door opened. A moment later Grandpa Ken emerged from the hall, dressed up in a tan suit and bolo tie. Joseph had never seen his grandfather dressed up like that. He watched as his grandfather made his way across the room to the Pastor and held out his hand.
+Then from the back of the house a door opened and closed again. A moment later Grandpa Ken emerged from down the hall, dressed up in a tan dress slacks, a button down shirt with pearl buttons, and bolo tie. His white-gray hair slicked back in the old fashion, slightly parted to the side. He stepped into the room with most of his weight placed on a wooden cane in his left hand. Joseph had never seen his grandfather dressed up like that before. He watched as his grandfather made his way slowly, but resolutely across the room to the Pastor and held out his hand.
 
-“Pastor Brumbalow, you are welcome to my home.”
+“Pastor.”
 
 A solemn look fell over Jacob as he took Grandpa Ken’s hand.
 
-“Thank you, sir. Please call me Jacob. A lovely family you have. I am proud to be here tonight.”
+“Pleased to me you at last, Mr. Hight. Call me Jacob. A lovely family you have. I’m proud to be invited here tonight.”
 
-Now that dinner was ready they all took seats around the kitchen table. There was really only space for four, but Joseph had brought in a spare foldout chair from the den and set it next to  Lizzie, who sat in a booster seat next to him.
+Now that dinner was ready they all took seats around the kitchen table. There was really only space for four, but Joseph had brought in a spare foldout chair from the den and set it next to  Lizzie who sat in a booster seat next to him. Joseph helped grandpa by pulling out his chair at the head of the table. This agitated him and he leaned the cane against the back of the chair and placed both hands on the back wresting it from Joseph’s control. The boy stepped away and went to the counter to help his mother bring over the plates and dishes.
+
+“What we having tonight Bethy? Smells good.”
+
+“Now Grandpa Ken, I showed you that roast beef before I put it into the oven earlier. We’re having that with some potatoes and onions, and then cornbread and butter.”
+
+“Mmm, good.”
+
+Grandpa set down in the seat uneasily and grinned at Lizzie who was watching him. Jacob waited until Grandpa had sat down before he took a seat at the opposite end of the table. He did not make much eye contact with anyone except for Lizzie.
+
+Beth brought over the roast and vegetables on a dinner platter and set it in the middle of the table. Joseph brought over a small plate with the cornbread cut into triangles and a stick of butter.
+
+“How can we afford to eat like this?” Grandpa asked, pointing at the hearty spread, “Where we got money for that?”
+
+Beth blushed and turned away to the sink to hide her embarrassment.
+
+“Nevermind about that, Mr. Ken. You know I get an employee discount at work sometimes. We can afford a meal like this for a special occasion at least.”
+
+She poured everyone tea into tupperware cups and brought them over to the table. Then she and Joseph took their places at the table. Everyone adjusted in their seats and Beth led them all by  resting both arms on the table in a gesture of prayer. They all looked down.
+
+“Lord,” Beth said, “Bless this meal we are so grateful for and bless the man in whose honor we came together this evening to celebrate and bless you Lord for the life you have given us, amen.”
+
+“Amen,” Jacob repeated.
+
+With that everyone dug in and dished themselves a plate. Beth handed Joseph the carving knife and asked him to slice a few large pieces and some smaller ones. Once everyone had a plate and started to eat, Beth spoke up one more time.
+
+“Y’all go ahead and eat but I just wanted to say a few words.”
+
+She stopped as if to collect her thoughts. Everyone turned and faced her. Jacob smiled.
+
+“Mr. Brumbalow, I don’t know how to thank you for what you have done for us over the last couple weeks and what you are still doing at the church. It’s been a hard time for us this past year and you’re the only one whose been kind enough to lend a helping hand. You are a Christian through and through and the Lord has blessed us by bringing you into our lives, and I wanted to invite you into our home tonight to thank you for that and to show you it does not go unappreciated.”
+
+When she stopped everyone was silent. Jacob was the first to respond, which he did in a quiet voice, as if speaking to Beth alone.
+
+“Ma’am, the gift of charity is a gift to the giver as much as to the receiver. I have learned that in my years as Pastor and understand it well. So thank you, ma’am. I don’t think I’ve ever seen such a lovely, gentle family as yours. It breaks my heart to see the misfortune you have had to endure and do endure today. I feel compelled from the bottom of my heart to ease your burden by whatever means the Lord has provided me. Again, thank you. Thank you from the bottom of my heart.”
+
+Joseph bowed his head as he finished and did not look up again for several moments. Beth brought up a napkin to wipe away a few tears. Even Lizzie, though not understanding the words, did understand the tone and feeling behind the words, and was silent.
+
+“Well,” Beth sighed, “I think its time to eat.”
+
+They all laughed except for Grandpa who sat in contemplation.
+
+“I know I’m starving,” Joseph said, and forked a big portion of the roast beef and took a bite.
+
+With that they all ate dinner. Joseph had several helpings. Jacob too. Beth chopped up a small mixture of beef and veggies for Lizzie and fed her before eating her own plate.
+
+The roast beef had turned out fine, pink in the center, juicy and falling apart in the mouth. The cornbread was rich. Slightly sweet which complemented the melted butter.
+
+At some point in the dinner Grandpa Ken dropped his silverware onto the plate with a loud clang. Instantly a hush came over them all, with some apprehension in the air of what was to follow. Grandpa rose from his chair, weak, shaky. He took his cane and rested upon it and stared right into Pastor Jacob’s eyes. He then spoke in the wheezing, halting voice of the elderly, but it was clear there was a powerful feeling behind it.
+
+“This wickedness, cannot stand.”
+
+Everyone at the table drew in their breaths. But they were too struck to respond. Jacob met the words with a sadness in his gaze, but he let the elder speak his mind.
+
+“I am an old man. My body is weak. My mind is weak. I know I don’t have many days left on this Earth.”
+
+Grandpa Ken paused between his words, collecting thoughts, wanting to make sure he said it the right way.
+
+“I never went to school. I am not educated. But I know about the world. I know wickedness. And you sir, are a wicked man.”
+
+Beth threw a napkin on her plate and rose violently.
+
+“Kenneth, there is no place for that here! I won’t stand for you speaking to Jacob that way. He hasn’t deserved it!”
+
+But Jacob rose with her and placed his hand on her shoulder. She turned to him and he saw her tears but gestured for her to sit back down. She did and he followed. Grandpa said nothing during all this. He only waited, and then continued.
+
+“For me there is no God. No devil either. There is only the world. The world and our survival within it. But people expect the devil. They expect the horns and the tail. They look for those markers they can see from a mile away. But there is no such thing as that. Do you follow me? Do my words make sense to your ears? It’s hard for me to tell. I used to know. But no more.”
+
+Grandpa looked at Lizzie, who was transfixed at the anger which proceeded from the mouth of her loving grandfather. He looked to Joseph who did not give any indication that he understood. Beth suppressed her anger. Jacob looked at him in pity.
+
+“How does evil come into the world? Not through war, chaos, murder, theft. Those come after. At first it is a smile. Laughter. Gifts. Seduction. This is not a spiritual matter. There is no such thing. This is mechanics plain and simple. The mechanics of evil.”
+
+“This man, Jacob Brumbalow, has invaded our family. He wants us to forget the memory of my son, your husband, and your father, Will. Don’t forget him. My son Will. Your husband and your father.”
+
+Ken pointed to Beth and then the Joseph, but they only looked at their plates in silence.
+
+“Please stop,” Beth pleaded, “you have ruined our dinner with this crazy talk. We just wanted to have a nice dinner, to thank the nice man who has helped us. And you ruined it.”
+
+“Why don’t you see? Why don’t you see what he is? He has not come to help, but to conquer, to possess. And he won’t ever stop!”
+
+Grandpa became more and more angry and his words made less and less sense. He wandered over to the couch next to the window and sat down, defeated. He could not express his thoughts clearly enough and that frustrated him. He was too old to express them with eloquence and they had come out rambling, insane. Everyone was embarrassed for him and he knew it.
+
+Everyone at the table was quiet until Jacob himself rose. He placed his hand on Beth’s shoulder and whispered something into her ear. As he came around the table he put his hand on Joseph and then Lizzie, who looked up at him. Then he walked over to Grandpa Ken.
+
+As he reached Grandpa he reached out his hand and placed it upon his forehead, pushing up the fallen gray strands of hair. There he knelt as if praying. Then it became clear he was praying. His mouth uttered words inaudible to the ears. Grandpa opened his eyes and saw Jacob there. Then he did something neither Joseph, Lizzie, or Beth had ever seen. He wept.
+
+Jacob stopped his prayer and met Grandpa Ken’s eyes. He reached out and pulled him close, wrapping both arms around him in a large embrace. And he did not let go. Grandpa wept more.
+
+Joseph felt like the floor beneath him was falling away, like all the things he had previously thought about life and the people in his life was upside down and could no longer be trusted. He watched the dinner table fall through the hole in the floor, his mother, Lizzie, the wood stove. It all spiraled downward into the dark hole that was there. It was all there was. He had looked at his grandfather as a beacon of strength and wisdom, truth. And now that illusion was shattered. Yet Jacob was there. Strong and resolute. He did not sink into the hole. And then he spoke.

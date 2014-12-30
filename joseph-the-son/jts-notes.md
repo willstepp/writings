@@ -581,3 +581,6 @@ Purpose of scene is to establish contention between Jacob and Ken, also establis
 
 
 You write better about a place you have been to before so make sure each setting has something of a real place about it, so the details feel real instead of made up.
+
+
+What happens now? 12-29-2014 (1650)
