@@ -584,3 +584,12 @@ You write better about a place you have been to before so make sure each setting
 
 
 What happens now? 12-29-2014 (1650)
+
+They argue from the start
+	First about food
+	Second about charity
+
+
+What happens now? 12-30-2014 (1650)
+
+Third about Eternal Life, God

@@ -1554,47 +1554,83 @@ Joseph bowed his head as he finished and did not look up again for several momen
 
 “Well,” Beth sighed, “I think its time to eat.”
 
-They all laughed except for Grandpa who sat in contemplation.
+They all laughed except for Grandpa who sat to himself.
 
-“I know I’m starving,” Joseph said, and forked a big portion of the roast beef and took a bite.
+“I’m starving,” Joseph said, and forked a big portion of the roast beef and took a bite.
 
-With that they all ate dinner. Joseph had several helpings. Jacob too. Beth chopped up a small mixture of beef and veggies for Lizzie and fed her before eating her own plate.
+With that they all dug in. The roast beef had turned out fine, pink in the center, juicy and falling apart in the mouth. The cornbread was rich and slightly sweet which contrasted with the melted butter inside.
 
-The roast beef had turned out fine, pink in the center, juicy and falling apart in the mouth. The cornbread was rich. Slightly sweet which complemented the melted butter.
+Joseph had several helpings. Jacob too. Beth chopped up a small mixture of beef and veggies for Lizzie and fed her before eating her own plate. Grandpa ate little. He poked at his plate with his fork. Somewhere in thought.
+
+“We had replace the alternator,” Jacob explained, “I got Stephen  Echols to help out. He’s good with that kind of stuff. We borrowed Dan Riley’s garage for the tools and the space to work in. It’s heated inside.”
+
+“Well that’s nice,” Beth said.
+
+“What happens is the alternator recharges the battery and if it goes bad your battery slowly drains. So usually you end up replacing it and the battery both. Luckily your battery was still good. Just had to replace the fluid.”
+
+Jacob cut another portion of beef and took a slice of onion. Beth handed him the plate of cornbread and he chose one of the top. She got up to refill his tea and asked everyone else if they needed a refill.
+
+“But so much about the car. Should run good now. Surprised it’s in the shape its in. You don’t see too many of those around.”
+
+“That was my daddy’s car,” Joseph said.
+
+“Oh, I see,” Jacob said, “well its a good one. Anyway its fixed now. But that ain’t the news I’m most excited to tell y’all about.”
+
+Beth sat back down. Jacob smiled from ear to ear.
+
+“As of this afternoon, I know because I had Margaret tally it all, the church of New Calvary Baptist has raised seventy eight hundred dollars for the purposes of repairing the Hight farm roof and to replace the furnace.”
+
+“I can’t believe it!” Beth leaned over and kissed Jacob on the cheek. Lizzie copied her mother and did the same thing. Jacob picked her up on his knee and she gave him a wet slobbery one.
+
+“I don’t know what to say, Pastor. We are indebted to you and the congregation at New Calvary. How can you raise so much money?”
+
+“Well, a portion of that comes directly from an allotment of the church’s income we dedicate to acts of charity in the community. The rest from individual donors who give in secret. Margaret had a bake sale the other day at the Bingo game. Together we can accomplish a lot. You’d be surprised.”
+
+“I feel like I want to thank every last person. I feel like I owe them so much. You don’t know how much that will mean to us this Winter. The draft from that hole, the furnace. The car. I just don’t know.”
+
+Beth began to cry but got up and walked to the kitchen counter. She took a rag and wiped her face.
+
+“I better put in the dessert.”
+
+She took a pan of cinnamon spiced apples from the refrigerator. She covered it up with some foil and slid it into the oven. Then she returned to her seat, placing a hand on Joseph’s shoulder, but he shrugged her off.
+
+“Baked apples and vanilla ice cream.”
+
+“Doesn’t that sound nice,” Jacob said, “Good country dessert. Reminds me of when I was a boy.”
 
 At some point in the dinner Grandpa Ken dropped his silverware onto the plate with a loud clang. Instantly a hush came over them all, with some apprehension in the air of what was to follow. Grandpa rose from his chair, weak, shaky. He took his cane and rested upon it and stared right into Pastor Jacob’s eyes. He then spoke in the wheezing, halting voice of the elderly, but it was clear there was a powerful feeling behind it.
 
-“This wickedness, cannot stand.”
+“I want you out of my goddamn house.”
 
 Everyone at the table drew in their breaths. But they were too struck to respond. Jacob met the words with a sadness in his gaze, but he let the elder speak his mind.
 
-“I am an old man. My body is weak. My mind is weak. I know I don’t have many days left on this Earth.”
+“You all think I’m old. I am old but I still see things. Some things I see better. And what I see here is a disgrace and a wickedness I don’t rightly know the name for.”
 
 Grandpa Ken paused between his words, collecting thoughts, wanting to make sure he said it the right way.
 
-“I never went to school. I am not educated. But I know about the world. I know wickedness. And you sir, are a wicked man.”
+“Get the hell out before I throw you out you goddamn son of a bitch. I know your kind. I know what it is you do.”
 
 Beth threw a napkin on her plate and rose violently.
 
-“Kenneth, there is no place for that here! I won’t stand for you speaking to Jacob that way. He hasn’t deserved it!”
+“Kenneth Hight, there is no place for that kind of talk here. I won’t stand for it! Jacob hasn’t done anything to deserve those kind of words. Hateful man!”
 
 But Jacob rose with her and placed his hand on her shoulder. She turned to him and he saw her tears but gestured for her to sit back down. She did and he followed. Grandpa said nothing during all this. He only waited, and then continued.
 
-“For me there is no God. No devil either. There is only the world. The world and our survival within it. But people expect the devil. They expect the horns and the tail. They look for those markers they can see from a mile away. But there is no such thing as that. Do you follow me? Do my words make sense to your ears? It’s hard for me to tell. I used to know. But no more.”
+“Hasn’t he? No, I suppose he hasn’t. His kind works that way. Slithering. For me there is no God. No devil either. There is only the world. The world and our survival within it. But people expect the devil. They expect the horns and the tail. They look for those markers they can see from a mile away. But there is no such thing as that. Do you follow me? Do my words make sense to your ears? It’s hard for me to tell. I used to know. But no more.”
 
 Grandpa looked at Lizzie, who was transfixed at the anger which proceeded from the mouth of her loving grandfather. He looked to Joseph who did not give any indication that he understood. Beth suppressed her anger. Jacob looked at him in pity.
 
 “How does evil come into the world? Not through war, chaos, murder, theft. Those come after. At first it is a smile. Laughter. Gifts. Seduction. This is not a spiritual matter. There is no such thing. This is mechanics plain and simple. The mechanics of evil.”
 
-“This man, Jacob Brumbalow, has invaded our family. He wants us to forget the memory of my son, your husband, and your father, Will. Don’t forget him. My son Will. Your husband and your father.”
+“This man has invaded our family. He wants us to forget the memory of my son, your husband, and your father. Don’t forget Will. My son. Your husband and your father.”
 
 Ken pointed to Beth and then the Joseph, but they only looked at their plates in silence.
 
-“Please stop,” Beth pleaded, “you have ruined our dinner with this crazy talk. We just wanted to have a nice dinner, to thank the nice man who has helped us. And you ruined it.”
+“Please stop,” Beth pleaded, “you have ruined our dinner with this crazy talk. We wanted to have a nice dinner tonight to thank the nice man who has helped us. And you ruined that for us. Why?”
 
-“Why don’t you see? Why don’t you see what he is? He has not come to help, but to conquer, to possess. And he won’t ever stop!”
+“Why don’t you see what he is? Why don’t you see what I see? He ain’t come here to help but to conquer. To possess. And he won’t ever stop. Not ever.”
 
-Grandpa became more and more angry and his words made less and less sense. He wandered over to the couch next to the window and sat down, defeated. He could not express his thoughts clearly enough and that frustrated him. He was too old to express them with eloquence and they had come out rambling, insane. Everyone was embarrassed for him and he knew it.
+Grandpa became more and more angry and his words made less and less sense. He wandered over to the couch next to the window and sat down, defeated. He could not express his thoughts clearly enough and that frustrated him. He was too old to express them with eloquence and they had come out rambling, insane. Everyone was embarrassed for him and worst of all he knew it.
 
 Everyone at the table was quiet until Jacob himself rose. He placed his hand on Beth’s shoulder and whispered something into her ear. As he came around the table he put his hand on Joseph and then Lizzie, who looked up at him. Then he walked over to Grandpa Ken.
 
@@ -1602,4 +1638,58 @@ As he reached Grandpa he reached out his hand and placed it upon his forehead, p
 
 Jacob stopped his prayer and met Grandpa Ken’s eyes. He reached out and pulled him close, wrapping both arms around him in a large embrace. And he did not let go. Grandpa wept more.
 
-Joseph felt like the floor beneath him was falling away, like all the things he had previously thought about life and the people in his life was upside down and could no longer be trusted. He watched the dinner table fall through the hole in the floor, his mother, Lizzie, the wood stove. It all spiraled downward into the dark hole that was there. It was all there was. He had looked at his grandfather as a beacon of strength and wisdom, truth. And now that illusion was shattered. Yet Jacob was there. Strong and resolute. He did not sink into the hole. And then he spoke.
+Joseph felt like the floor beneath him was falling away, like all the things he had previously thought about life and the people in his life was upside down and could no longer be trusted. He watched the dinner table fall through the hole in the floor, his mother, Lizzie, the wood stove. It all spiraled downward into the dark hole that was there. It was all there was. He had looked at his grandfather as a beacon of strength and wisdom, truth. And now that illusion was shattered. Yet Jacob was there. Strong and resolute. He did not sink into the hole.
+
+Grandpa pulled away and collapsed onto the couch like a child. Like a boy. His shaky gaze cast upward at Jacob who stood over him. But then he too sank onto the couch beside Grandpa. His hand reached out to wipe the brow of sweat from the old man’s wrinkled brow.
+
+“Bring some water, Beth,” Jacob said, “Bring a warm wash cloth.”
+
+Beth brought them over and stood there unsure what to do or say. Jacob took the rag and wiped it over Grandpa’s face, then held up the cup of water to his lips. He drank without resistance.
+
+“Are you okay, Mr. Hight?”
+
+His face was pale, his eyes rolled. Breaths taken in like fish gulps, rapid and deep.
+
+“What’s a matter with Grandpa?” Lizzie asked her mother, grabbing onto the bottom of her shirt.
+
+“He is sick honey.”
+
+“Oh.”
+
+Jacob spoke to Kenneth in a loud, steady voice in order to bring his mind back to the room. He snapped two fingers in front of him.
+
+“Mr. Hight, are you okay? Do you need an ambulance? Speak if you are able.”
+
+Grandpa turned to Jacob. Rather his eyes rolled in that direction. His head lay still against the couch cushion. In a strained voice he spoke.
+
+“Where’s Inny?”
+
+Jacob turned to Beth to see if she understood.
+
+“Inez was his first wife. She died of pneumonia decades ago.”
+
+“Inez is in Heaven, Mr. Hight. She is in Heaven now.”
+
+“Not in Heaven,” Grandfather said, “No. Not in Heaven. And not on Earth.”
+
+“That is not what Christians believe. That is not what we believe.”
+
+The old man coughed and wheezed. He found it humorous.
+
+“It doesn’t matter what you believe. It doesn’t matter what I believe. It only matters what is.”
+
+“This is my house. We lived in this house. This same house. Mama, Daddy, little Gracie. We worked them fields. Cows in the fields. Had to feed them, milk them. Ever day. Rain or shine. Work to be done. Dairy farm. Weekends they held dances in the old school house. Stacked desks on the wall. Made a dance floor. Had music. Jim Masingill and his brothers had a band. They used to pick flowers and sell em at the door. Buy a flower for your girl. Them boys lined on the walls. Scared to talk to the pretty girls. Wearing those dresses. Flour sack dresses, yes sir. She was there too. First time I saw her I knew she was mine. Mine forever. Inny. Soft hair, shy eyes. Small hands. Like a bird.”
+
+
+
+"Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
+
+"Respectfully sir, you are mistaken. And I've dedicated my life to sharing the Good News that has been revealed to us through the life and death of our Savior, Jesus Christ. That is my belief."
+
+"Respectfully sir, it doesn't matter what you believe. And it doesn't matter what I believe. It only matters what is."
+
+That he would lose it over and over again. Florene. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cursed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is horseshit. Your job, money, house, car. Horseshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and kissed her under the stars that night. She was my love. Mine.
+
+And there ain’t no Heaven. No after life. No reunification will bring that love back to me again. Don’t bullshit me.
+
+25000
