@@ -1674,13 +1674,11 @@ Jacob turned to Beth to see if she understood.
 
 “That is not what Christians believe. That is not what we believe.”
 
-The old man coughed and wheezed. He found it humorous.
+The old man coughed and wheezed. He laughed bitterly.
 
 “It doesn’t matter what you believe. It doesn’t matter what I believe. It only matters what is.”
 
 “This is my house. We lived in this house. This same house. Mama, Daddy, little Gracie. We worked them fields. Cows in the fields. Had to feed them, milk them. Ever day. Rain or shine. Work to be done. Dairy farm. Weekends they held dances in the old school house. Stacked desks on the wall. Made a dance floor. Had music. Jim Masingill and his brothers had a band. They used to pick flowers and sell em at the door. Buy a flower for your girl. Them boys lined on the walls. Scared to talk to the pretty girls. Wearing those dresses. Flour sack dresses, yes sir. She was there too. First time I saw her I knew she was mine. Mine forever. Inny. Soft hair, shy eyes. Small hands. Like a bird.”
-
-
 
 "Think I don't know. Think I don't know that you laugh at me. I know more than you think I do. Think I was always old? Think my mind was always confused? Once I was strong. Once I was witty. Made jokes. Once I felt pity for the aged and the poor. With a solemn and respectful face I gave money to those in need. In so many small ways I lorded it over them. All the time welling up with pride at my goodness, sometimes to the verge of tears at my benevolence. How vain I was. How useless and vain. What did I know about loss then? It all goes to shit. God and Jesus and the Holy Ghost. Virgin birth. Walking on water. The resurrection. That's the lie. The only truth in this world is disintegration. There will be no reunion. What is gone will not come again." 
 
@@ -1688,8 +1686,42 @@ The old man coughed and wheezed. He found it humorous.
 
 "Respectfully sir, it doesn't matter what you believe. And it doesn't matter what I believe. It only matters what is."
 
-That he would lose it over and over again. Florene. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cursed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is horseshit. Your job, money, house, car. Horseshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and kissed her under the stars that night. She was my love. Mine.
+That he would lose it over and over again. “Inny. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cussed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is bullshit. Your job, money, house, car. Bullshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I really mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and kissed her under the stars that night. She was my love. Mine.”
 
-And there ain’t no Heaven. No after life. No reunification will bring that love back to me again. Don’t bullshit me.
+“And there ain’t no Heaven. No after life. No reunification will bring that love back to me again. Don’t bullshit me.”
 
-25000
+“Get out of my house,” he whispered.
+
+The Pastor rose. Beth acted as if she wanted to say something, but didn’t. Joseph and Lizzie looked on. Jacob went to them, his head hung. Then he looked up and gave an apologetic smile.
+
+“Not sure what to say.”
+
+“You don’t have to say anything Pastor. I don’t understand what has gotten into him tonight. He doesn’t think right anymore, I’m afraid. He gets worse by the day. Drifting in and out of coherence. Sometimes he’s okay. Just not tonight. I’m sorry you had to listen to all that nonsense.”
+
+Beth asked Joseph to help Grandpa to bed while she drove the Pastor back to his house. She then grabbed Jacob’s coat and hat from the other room and walked him to the door. They went out together and Joseph watched them walk to the car by the porch light. He saw his mother turn to the Pastor and hold onto him. Then she kissed him on the cheek. They held one another for a brief moment and then he walked her to the passenger side and opened the door. He got in and they pulled away.
+
+Joseph went over to his grandfather and grabbed onto his arm. The old man raised his eyes and watched the boy as he grabbed around his upper back and lifted him onto his feet. Tears rolled down his cheeks. Then Joseph walked him to the back bedroom. Inside Joseph helped him onto the bed, where he slid him out of his pants and shirt, so he was just wearing boxers and an undershirt. His slicked hair had fallen into his face. Joseph lay him back onto the bed and lay the blanket on him.
+
+“Will,” Grandpa said. He stared at Joseph with sad eyes, “I’m sorry son.”
+
+“I’m Joseph, grandpa.”
+
+Grandpa looked confused, then angry.
+
+“I know that. You think I don’t know that. Bring me a cup of water before you go. My mouth is dry.”
+
+Joseph went to the kitchen and brought back a cup of water. He helped him sip it down and then set the cup on the night stand. Grandpa looked tired. He lay back against the pillows that kept him upright to help his digestion.
+
+“Come back to your family, Will,” Grandpa said. Speaking to Joseph. This time the boy did not correct him. He just listened.
+
+“Come back from wherever you went. They need you now. That man who calls himself pastor of the church down the road, he has his eyes on your family. On Bethy. So come back to them, Will. They need you to be there. That boy Joseph needs you. He’s at the crossroads even though he don’t know it. He’s too young to know it. But I can see the place he stands. And he needs his daddy. He needs you. So come back to them, and be in their lives. Be a father to your boy. Be a father again. I know I wasn’t the best father to you, or the best husband to your mama, but that don’t mean you have to repeat my mistakes. Come back.”
+
+As he talked his voice became weaker. His sunk further onto the pillows and went to sleep. Joseph watched him for a time and then walked out. 
+
+He went to the living room where Lizzie was playing with her dolls. He told her it was time for bed and took her to their room. He tucked her in and kissed her on the forehead and climbed into bed beside her, wearing only his long johns. He lay there unable to sleep and sometime later heard the car pull up and then the front door open. Then he felt her presence by the door to the their room. She whispered his name in the room but he did not answer. He pretended like he was asleep and closed his eyes. Then later he turned to look at the door and she was gone.
+
+
+
+Chapter Seven
+
+
