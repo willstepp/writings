@@ -1406,7 +1406,7 @@ At that Jacob took one of the shovels and went back to the pen. Joseph pushed th
 
 An hour later they were finished. They took the remains of the chickens to the fire pit where Jacob said he would burn them later that night. When they took the tools back to the shed Jacob turned to him without warning and placed both hands on his shoulders, speaking to him in a voice more severe than anything he had yet heard from him.
 
-“Tell no one about the knife I gave you, Joseph. Keep it a secret between you and me.”
+“Tell no one about the knife, Joseph. That is a secret between you and me.”
 
 
 Chapter Six
@@ -1725,3 +1725,136 @@ He went to the living room where Lizzie was playing with her dolls. He told her 
 Chapter Seven
 
 
+That morning grandfather rose earlier than anyone else and built a fire in the wood stove. He made coffee and when the heat radiated into the bedrooms they woke and eventually made their way into the kitchen. Beth in her nightgown made pancakes and scrambled eggs. Joseph and Lizzie watched cartoons on the television. No mention was made of the previous night at all. At first they watched Ken to see if he was coherent but his mind was clear by all appearances. He moved around the kitchen without the cane, fiddling with the percolator. He seemed himself again.
+
+After breakfast he put on his thick winter coat and a hunters cap and asked Joseph to put on some warm clothes and join him in the shed. And then he went outside. After being reminded a few more times by Beth, Joseph pulled away from the cartoons and went into his room and dressed for the cold. Then he headed out the door. Lizzie asked if she could come too but Beth told her no. She cried but they was not real tears and she stopped moments after Joseph had gone out the door.
+
+The sun was bright that morning, the sky blue and clear, only a few brushstrokes of clouds over the hills to the East. By now the trees of the surrounding woods had lost nearly all their leaves, which blanketed the ground in patches of earthen shades of red, yellow, and gold.
+
+As he walked towards the shed Joseph breathed in the air and admired the day, feeling a lightness in his heart, a calmness. He noticed the Vega parked next to the tree in the front yard and thought about Jacob, the night before. Now that it was running again it would make things easier for them all. Mother especially.
+
+He reached the shed and heard grandfather inside moving around boxes. He pulled open the wood door and went in. Grandfather heard him and stopped what he was doing.
+
+“Hey, squirt.”
+
+“Hey.”
+
+“There’s something on the bench over there. Take a look and see.”
+
+Curious, Joseph walked to the small workbench on the near wall covered with tools and small screws, fixtures. At first it was not clear what his grandfather meant there was so much clutter there. But then he saw it placed out in plain sight, the pocket knife his father Will carried when he was the same age as Joseph. A simple pocket fold-out knife with a green pearl body, faded and smooth. The blade and mechanical parts were rusted from years of exposure to the elements. Joseph had admired the knife for years, first seeing it when he was five years old set on top of the rollout tool-box in the back of the shed. From then on out every time he was in the shed he asked his grandfather if he could use it. He always let him but made him put it back afterwards, since it was not a toy for little boys.
+
+Joseph picked it up and opened the blade, noticing a sheen on the edge.
+
+“You sharpened it.”
+
+“And polished it. Got most of the rust off. Put some mineral oil on them hinges inside, loosened it up. Still thirty years old, but a fine first knife for a young man.”
+
+His eyes widened and a smile grew on his face. He looked at his grandfather.
+
+“For me?”
+
+“You’re old enough now. Remember what I taught you.”
+
+“Don’t hand it to anybody else without opening it first. Keep an edge on it. Don’t use it on people.”
+
+Grandfather laughed.
+
+“You got it.”
+
+Joseph put the knife in his pocket and then helped his grandfather pull out some cardboard boxes filled with old car parts. They were looking for the axe and machete his grandfather had not used for a long time but knew he still had somewhere. Behind several boxes they found them leaning against the wall.
+
+“Me and you are going to start chopping down that damn oak tree today. I’m going to clean up this place. Make it a real home again. We’ll start with the small branches we can reach. Get those out of the way. We’ll have to get a chainsaw for the trunk and a backhoe to pull it off, but we’ll cross that bridge when we come to it.”
+
+“Okay.”
+
+They took the tools to the back yard and picked a spot and started hacking away the small branches. They worked for awhile. Joseph had to do most of the work with the axe since Ken didn’t have the strength anymore to do that kind of thing. But he took the cut branches and twigs and put them in a pile.
+
+When it came time to take a break they went inside and found Beth and Lizzie reading together on the couch. Lizzie crawled off her mother’s lap when they entered and ran over and hugged her grandfather. He mussed her hair and then went to the fridge and poured Joseph and himself some tea.
+
+“What y’all been doing out there? Working on that tree?”
+
+“Yes, ma’am,” Grandpa said, “It’s time we got that done.”
+
+“Mister Ken, I don’t know if you need to be doing that kind of work in this weather.”
+
+“Nonsense. Joseph doing most of the work anyway.”
+
+Beth looked at her son.
+
+“Show me them hands.”
+
+Joseph held them up. They were dirty and there were blisters forming on the palms.
+
+“Why don’t y’all take a break. I’ll have lunch ready soon.”
+
+“That’s what we’re doing,” Grandfather said, “Joseph, show your mother what you got in your pocket.”
+
+He pulled the knife and showed it to his mother. She shook her head.
+
+“I don’t know what it is with boys and knives. You be careful with that thing, you hear me?”
+
+“Yes, ma’am.”
+
+Lizzie ran up to her grandfather.
+
+“Let’s go see the horses.”
+
+“Horses? Where?”
+
+“Mister Trusdell let his horses out to pasture today. Lizzie saw them when we drove to the store earlier. They were standing over by the fence. I told her we might take some leftover apples and feed them later.”
+
+“Please can we grandpa?” Lizzie asked.
+
+“Well, since you asked so nicely. I guess we can.”
+
+Grandfather tossed a few of the apples into a plastic bag and he Joseph and Lizzie walked to the wooden fence that separated the backyard with the Trusdell farm. There was a field that spanned ten acres and beyond that the woods. The fence was old, the beams dried, splintered. They saw two of the horses. They had wandered about thirty yards from the fence and paced slowly, hunting for anything to eat. Not that there was much this time of year. Ken placed two fingers in his mouth and whistled loud. Lizzie put her hands over her ears and Joseph laughed.
+
+The horses responded and ambled over in no special hurry. Joseph reached in the bag and handed an apple to each of them. Lizzie took a bite of hers.
+
+“Those are for the horses sally,” Grandfather said.
+
+“I am a horse,” Lizzie said.
+
+“Oh, I see.”
+
+The children became excited the closer the horses came. At last a brown-haired one came close enough to feed. It leaned its head over the fence in expectation. This was not the first time they had fed the horses apples. Grandfather told Lizzie to hold up her apple, but she was too afraid to do it.
+
+“He aint gonna bite you. Look here.”
+
+Grandfather held his apple up to the horse’s mouth. It sniffed the fruit and then its lips quivered as he took the initial bite. As he crunched down on it Lizzie clapped her hands together.
+
+“He’s eating it!”
+
+“He sure is. He’s a hungry one.”
+
+“It sounds like when we eat apples.”
+
+“You want to pet him?” Grandfather asked, “I’ll hold you up.”
+
+“Okay.”
+
+Grandfather leaned down and picked up Lizzie around the waist. She giggled as he lifted her level with the horse.
+
+“Can I pet him?”
+
+“Stroke his mane.”
+
+Lizzie reached out and softly ran her hands through the black hair that ran down his upper neck. Its black eye warped her reflection.
+
+“I can see myself in his eyeball.”
+
+“I see it too.”
+
+Lizzie was fascinated and rubbed her hand around his head and neck. The horse stood still, its feet patting the ground. When she was finished grandfather set her down and ran his hand down the horse’s nose.
+
+Joseph climbed up on one of the fence beams and stood over the horse and pet it. He held the apple out for it to eat. The other horse, a smaller black one had noticed them and was on the way over. But then the beam where Joseph stood cracked and collapsed onto the ground. He fell backwards before grandfather could catch him and hit the ground hard. The horse startled and turned quickly away and stampeded off in the other direction. The black horse followed it and they didn’t stop running until they were near the wood line at the other end of the pasture.
+
+Joseph rolled on the ground, the wind knocked out of him. Grandfather helped him up and dusted the grass and dirt off his back. Lizzie had been startled too and hid between her grandfather’s legs.
+
+“I’m sorry grandpa,” Joseph though still hurting was more afraid his grandfather would be upset about the fence, “It was an accident. I shouldn’t have been standing up there.”
+
+Ken looked at the fence beam and shook his head. Then he looked at Joseph.
+
+“Don’t worry about that fence. We can fix it tomorrow.”
+
+The forgiving tone in his voice reassured Joseph. Grandfather propped up the broken beam as best he could and then they all walked back to the house for lunch.
