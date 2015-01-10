@@ -91,11 +91,17 @@ Once finished, grandpa took a step back and asked Joseph to stand with him. They
 The sun was high overhead and it was even warm where they stood together, admiring the morning’s work. The snow was already beginning to melt, cold drops of moisture glistening in the winter sunlight.
 
 
+
+
 JOSEPH THE SON
 Daniel Stepp
 
 
-Chapter One
+
+I
+
+
+One
 
 Four boys got off a school bus at the end of the dirt road that led a quarter mile back to Oakwood Estates, a trailer park that had been built on the abandoned Hight Farm property decades ago. The bus used to drive all the way to the mailboxes, but it had been years since anyone had bothered to gravel the road and there were deep ruts in many spots and hollowed out places with standing water, some a few feet deep.
 
@@ -303,7 +309,7 @@ They both set off in the direction of the trailer park and the old farmhouse, no
 
 
 
-Chapter Two
+Two
 
 
 A woman came to the screen door and was shocked to see her son standing there with a strange man in work clothes. She was dressed in a house dress and slippers, her hair held up above her neck in bobby pins. From within the smell of roast chicken and vegetables. Jacob nodded to her politely but Joseph would not make eye contact. She parted the door and motioned for Joseph to come to her side. He did so. Not wanting her to get the wrong impression, Jacob spoke first.
@@ -557,7 +563,7 @@ With some help from Joseph, who sat inside the car and pumped the gas and turned
 Beth reached out to squeeze her son around the shoulder but he shirked away and opened the screen door, going inside without a word. Lizzie took his place beside their mother and their hands intertwined. Both watched as the pastor drove their car until it  disappeared beyond the row of trees that lined the drive to Oakwood Estates, then they too went inside.
 
 
-Chapter Three
+Three
 
 
 A morning wind blew through the tree tops and shook what few leaves remained in the oaks that enshrined Pastor Jacob’s farm house. The leaves fell in lazy arcs from those high places and landed next to the woodshed where Jacob and Joseph were standing. There were rakes and shovels, shears propped up against the shed. Every few seconds the pastor came out with another tool and handed it to Joseph whose job it was to arrange them outside. The last thing Jacob brought out was a bag of feed. He handed the burlap sack to Joseph, walked out of the shed, and closed the door.
@@ -823,7 +829,7 @@ As he came to the front porch his gait slowed and instead of going straight in h
 In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He didn’t fully grasp what he was feeling at that moment but he had understood something for the first time in his life. Tears welled in his eyes. He understood that a moment in time was not something he could ever possess, and yet he felt a strong desire to possess this moment — to keep it with him always. He took his hands out of his coat pocket and pressed one of his palms against the cold window. That caught Lizzie’s attention and she jumped from her mother’s lap and raced over to place her hand over his, laughing. Only a pane of glass was between them.
 
 
-Chapter Four
+Four
 
 
 They were late so Beth handed Joseph the keys to the car and asked him to go warm it up.
@@ -1187,7 +1193,7 @@ Joseph reached into his pocket and dumped the contents of his wallet into the co
 Joseph placed the microphone back in its stand and walked off stage to join the others. He was covered in sweat and seemed to be in a daze. He donned his hat and shook hands with some of the crowd. Then he came over to where Kelly, Steven and the Hight family stood and smiled at them, and had a look of surprise when Beth leapt into his arms and hugged him hard around the neck.
 
 
-Chapter Five
+Five
 
 
 Twenty three degrees this morning according to the rusty thermostat nailed by the front door. The coldest morning yet this year. Joseph tiptoed back into his room, avoiding certain noisy slats in the floor, and pulled his long johns from the bottom dresser drawer. As he struggled to pull them on his breath escaped in rapid puffs that rose to the ceiling. Frost covered the windows so that the sunlight came through muted and soft. He tried not to wake Lizzie as he layered on his thermals and then jeans and a sweatshirt on top of that.
@@ -1409,7 +1415,7 @@ An hour later they were finished. They took the remains of the chickens to the f
 “Tell no one about the knife, Joseph. That is a secret between you and me.”
 
 
-Chapter Six
+Six
 
 
 It was evening when the sun had just dropped behind the power plant towers to the west and a muted light still lingered in the sky. Outside the kitchen window you could still make out the shapes of the trailers and the line of trees where the woods began. It was cold as it had been the last few days, but since the wood stove had been burning for some time it was warm in the house kitchen where Beth, Joseph, and Lizzie were preparing dinner for the guest of honor. Jacob would be there in a couple hours.
@@ -1722,7 +1728,7 @@ He went to the living room where Lizzie was playing with her dolls. He told her 
 
 
 
-Chapter Seven
+Seven
 
 
 That morning grandfather rose earlier than anyone else and built a fire in the wood stove. He made coffee and when the heat radiated into the bedrooms they woke and eventually made their way into the kitchen. Beth in her nightgown made pancakes and scrambled eggs. Joseph and Lizzie watched cartoons on the television. No mention was made of the previous night at all. At first they watched Ken to see if he was coherent but his mind was clear by all appearances. He moved around the kitchen without the cane, fiddling with the percolator. He seemed himself again.
@@ -1888,6 +1894,15 @@ The time that passed as he sat there was hard for him to measure. Somehow being 
 
 Then his mind went up, though he was not dreaming and very much awake. His mind went into the air and his body remained kneeling in the high grass next to the woods. He imagined his mother and Jacob as one person with the head of a dog and legs like a chicken. He imagined one hand of this beast to have eyes for fingers and the eyes were the eyes of his sister and Jesse Black and the Echols from New Calvary. He was not sure why he could tell whose eyes they were, but he could.
 
-Then he was in space. He was on a planet with a storm that went on forever. One he had learned about in school. The storm was larger than the Earth. He was there in that storm, surrounded by those clouds that swirled with a life of their own. Dark. The color of red clay. Illuminated from within by lighting and other mysterious discharges of electricity. There was liquid but it was not water, not a life giving water. There was no life here either. Just like on Earth in the winter night in the grass next to the woods where his body sat. He was there in the middle of it, unafraid but with a feeling inside, a longing for Hight farm. Then there were tears on his face. There was no ground here. No place to plant his feet. It was not made for him this place. And yet he found it hard to leave. But he did and soon was back.
+Then he was in space. He was on a planet with a storm that went on forever. One he had learned about in school. The storm was larger than the Earth. He was there in that storm, surrounded by those clouds that swirled with a life of their own. Hellish. The color of red clay. Illuminated from within by lighting and other mysterious discharges of electricity. There was liquid but it was not water, not a life giving water. There was no life here either. Just like on Earth in the winter night in the grass next to the woods where his body sat. He was there in the middle of it, unafraid but with a feeling inside, a longing for Hight farm. Then there were tears. There was no ground here. No place to plant his feet. It was not made for him this place. And yet he found it hard to leave.
 
 There was a wind that came through the pines and turned the wetness on his cheeks into ice. It was then he realized he had fallen asleep there next to the hole. He rose and brushed the grass and debris from his coat. It was time to head back in, after he returned the spade to the shed, so he left the spot he would not be able to find again in the morning, where he buried the new knife Jacob had given to him as a gift, where it would remain forever.
+
+
+
+II
+
+
+
+Eight
+
