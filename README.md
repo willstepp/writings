@@ -1,4 +1,4 @@
-##Writings
+###Novels
 
 * Trinidad: A Voyage
 * The Dogs of Santiago
