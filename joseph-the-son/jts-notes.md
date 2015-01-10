@@ -602,3 +602,13 @@ Joseph’s grandfather takes him into the shed and gives him an old rusty pocket
 What happens now? 1-9-2015 (1650)
 
 Joseph wakes in the middle of the night and walks through the house. He takes the new knife that Jacob gave him and goes outside. Into the cold. His hands freeze. His nose freezes. He walks to a place in the high grass and digs with a spade he took from the shed. There he buries the knife forever. He gazes at the stars and imagines a planet with a storm that never stops. The storm is larger than the Earth. He is there, among the hellish clouds.
+
+What happens now? 1-10-2015 (1650)
+
+Car catches on fire. They call fire department. Jacob comes over to take a look. “With the money we have raised we can buy you a new car also.” Joseph sees Jacob hugging his mother. Becomes angry. Mother tells hims his father is not coming back.
+
+“I have to do what’s best for me too. Jacob is a decent man. He only wants to help. You need to accept that your daddy aint coming back. He just aint.”
+
+“He is.”
+
+Reminds Joseph he agreed to help Jacob find out what killed his chickens. Asks for him to watch Lizzie since she’ll be at work until the afternoon.

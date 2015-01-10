@@ -1906,3 +1906,116 @@ II
 
 Eight
 
+The next morning Beth went outside wearing only a nightgown to warm up the car. Puffs of visible breaths escaped into the air as she quickly walked to the Vega underneath the tree in the front yard. It cranked right up after a few desperate pumps of the gas pedal a few turns of the ignition switch. She flipped the heater on full blast and went back inside to get ready for work. She had the morning shift at the grocery store and planned to leave Lizzie in Joseph’s care for the day. Grandpa was nowhere to be seen, his door shut all morning. She thought it best to let him rest. 
+
+Joseph and Lizzie were on the living room couch eating toast with butter and strawberry preserves. Cartoons were on the small color television in the corner. They watched their mother pace from her bedroom to the bathroom to outside and back inside. She always got like this when getting ready to go somewhere. Nervous. Afraid to forget something important.
+
+Beth asked Joseph to gather more fuel wood for the stove and to put another log on the fire. It was pleasantly warm in the kitchen and living room, less so in the other rooms, but not uncomfortable. Joseph put on his coat, then grabbed the basket and headed outside to the woodpile.
+
+As he walked onto the front porch he saw flames and smoke escaping from underneath the hood and wheel dams of the car. He dropped the basket and ran back inside to the bathroom where his mother was.
+
+“The car’s on fire!”
+
+“What?”
+
+“Its on fire,” Joseph continued, “There’s smoke and fire.”
+
+Beth set down the curler on the sink and she followed her son outside. Lizzie was still watching cartoons - oblivious that anything unusual was going on.
+
+It had grown even in the minute it had taken Joseph to run inside to tell his mother. The flames leapt higher and threatened to catch the lower branches of the maple tree too. Inside the windows had fogged up. The paint on the hood and front panels was turning black. Bubbling.
+
+“Oh my God,” Beth said, “What do we do?”
+
+“Call 911.”
+
+“Go do it. Ask them what we can do, if anything. Tell Lizzie not to come outside.”
+
+Joseph ran inside and called the service. The woman on the phone asked the address and told him to stay as far away from the car as possible. They would send the trucks immediately. He took Lizzie to their room and told her to play with her dolls and do not come outside. Lizzie could sense the fear in his voice.
+
+“Where’s mama?”
+
+Joseph saw he was frightening her and took a breath. He then spoke to her in a calmer voice.
+
+“She’s right outside. Everything is okay. You just can’t come outside right now. Can you do that for me? Play in here until I come and get you?”
+
+“Yes, Joseph.”
+
+Then she turned away and started playing. Joseph ran to his grandfather’s room and knocked on the door. He turned the knob but the door was locked. So he shouted through it.
+
+“Grandpa, the car is on fire. We called 911 and they’re going to send someone. They told us not to do anything but I wanted to let you know.”
+
+But there was no answer. He left and returned outside where his mother was standing right next to the car, about to open the door. Remembering what the dispatcher had warned him about he ran over to her and grabbed her by the arm.
+
+“Mama, the lady said to stay away from the car, as far away as possible.”
+
+Beth lifted the handle and instantly pulled her hand away and screamed. It was burning hot. Her fingers blistered. Joseph dragged her away.
+
+“Are you okay?”
+
+“I burned my hand,” Beth said. She held her left hand in pain. “Wanted to turn off the engine. Thought it might put out the fire.”
+
+“We can’t do nothing now but wait. Lady said to stay back.”
+
+“We need to wake up grandpa.”
+
+“I knocked on his door but he didn’t answer. I told him what was going on through the door. Maybe he heard me.”
+
+Beth watched the car in silence for a moment. She reflexively squeezed the burned hand. Joseph watched her.
+
+“I don’t want to leave it. I don’t feel like we should leave it. It’s going to catch the tree on fire. Then what’ll happen?”
+
+“They’re on the way.”
+
+“Run get some butter for my hand. Make sure Lizzie is okay.”
+
+Joseph ran back inside and grabbed the half-gone stick of butter from the refrigerator. He poked his head into the bedroom where Lizzie was still playing with her dolls as if nothing were the matter.
+
+“Are you okay in here?”
+
+“Yes, Joseph.”
+
+Outside his mother was sitting on one of the porch chairs. He sat next to her and handed her the butter. She took it in her good hand and unwrapped a portion of the butter and rubbed it delicately across the flesh of her fingers. They were red. Skin peeling. She winced but the butter made it feel better.
+
+Together they watched the flames engulf the car. Not talking, just looking. It took its time, seeming to move onto another area only once the current one was burnt crisp. It was interesting to watch for Joseph. By now the front of the car was a gray black charcoal that only resembled the front of a car. The headlight lenses had shattered glass onto the ground in front of it. The two front tires had already burst from the heat.
+
+It was eerie to see it spread through the cabin, those whipping flames seen through the windshield were like bizarre passengers. Smoke filled the inside and turned the glass dark. The next time they saw the flame it had escape through the seals around the windows and rose up onto the vinyl top. As it burned the flames went higher.
+
+And then it happened. The bottom-most branch of the tree burst into flames, curled up into cinder, and slowly it spread towards the main branch.
+
+“Lord, I hope they get here soon,” Beth said, “Such a pretty tree to lose.”
+
+Over the hills down the road to the East they heard the siren of the firetruck. It grew louder until they were sure it was nearby. Then they saw it coming up the dirt road, driving partly in the grass to avoid the ruts. It was an old model but in still good shape. The red paint faded but clean. The siren echoed through Oakwood Estates and people came outside and looked out their windows.
+
+It came up the drive and when it arrived the men inside the truck got out and immediately set to work without a glance in the direction of the porch, where Beth and Joseph had risen to meet them. 
+
+There were three of them and two went around back pulled the large hose off the roll and adjusted the nozzle and gave a whistle to the man still inside who switched on a reserve of some kind. The hose filled and they directed it over the top of the car and then a white foam sprayed out and blanketed the car in just a few seconds. It was like snow. It smothered the flames that by this point had nearly reached the back of the car, close to the gas tank. 
+
+When the outer flames had been snuffed the man from inside the truck got out and came over with an ax. He swung the butt end at the driver’s window and shattered it. Smoke furled out from the windows. The two others directed the nozzle into the cabin and sprayed it down. Then the man with the ax, who wore thick gloves, took a single glance inside and reached in and turned off the ignition.
+
+The engine sputtered down. The two with the hose sprayed underneath the engine compartment and then the stopped. After a bit all remaining flames and smoke had ceased.
+
+The man with the ax walked up to the porch. He nodded and spoke to Beth.
+
+“We’re gonna keep an eye on it for awhile, make sure it doesn’t light up again. But I think we got it before it reached the gas tank, which is a good thing.”
+
+“Thank you, sir. So much. May I offer you something?”
+
+“Coffee, ma’am?”
+
+“Why sure. I’ll be right back.”
+
+Beth went inside and put on a pot of coffee and checked on Lizzie. Joseph stood on the porch admiring the firefighters from afar, too shy and afraid to say anything to them. 
+
+Ten minutes later Beth emerged from the house with Lizzie at her side, carrying a silver thermos and a handful of plastic coffee mugs. She poured them a few cups and laid out the cream and sugar so they could help themselves. They came over and thanked her. As they talked about the causes of engine fires and how dangerous the work of a firefighter was, they could see their neighbors slowly making their way up the drive.
+
+Then a pickup drove quickly up the drive and pulled to a stop behind the fire engine. It was Jacob. He jumped out of the truck and ran over to the porch where they all stood. He looked like he had just woken up, his wrinkled jeans and shirt clearly from the day before. His beard uncombed, his hair scraggly.
+
+“My Lord, is everybody okay? What happened?”
+
+“We are fine, Jacob,” Beth said, “My car caught on fire this morning, as you can probably see.”
+
+“I do see that. I hope I’m not to blame.”
+
+“Why would you be to blame, sir?” One of the firefighters asked him.
+
+“I did some work on that old car just last week. Replaced the alternator and battery. Well, me and a few other guys.”
