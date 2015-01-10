@@ -598,3 +598,7 @@ Third about Eternal Life, God
 What happens now? 1-1-2015 (1650)
 
 Joseph’s grandfather takes him into the shed and gives him an old rusty pocket knife. He feels it is an apology for the night before though nothing is said. Then they take a few apples and with Lizzie walk to the fence where grandfather whistles by putting two fingers in his mouth. They horses come over and they eat the apples. Joseph stands up on one of the fence posts and breaks it.
+
+What happens now? 1-9-2015 (1650)
+
+Joseph wakes in the middle of the night and walks through the house. He takes the new knife that Jacob gave him and goes outside. Into the cold. His hands freeze. His nose freezes. He walks to a place in the high grass and digs with a spade he took from the shed. There he buries the knife forever. He gazes at the stars and imagines a planet with a storm that never stops. The storm is larger than the Earth. He is there, among the hellish clouds.

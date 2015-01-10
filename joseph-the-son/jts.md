@@ -1858,3 +1858,36 @@ Ken looked at the fence beam and shook his head. Then he looked at Joseph.
 “Don’t worry about that fence. We can fix it tomorrow.”
 
 The forgiving tone in his voice reassured Joseph. Grandfather propped up the broken beam as best he could and then they all walked back to the house for lunch.
+
+
+That same night Joseph awoke from strange dreams. The gloomy and melancholic feeling from those visions would not go away. He lay in bed and watched the objects in the bedroom take form as his eyes grew accustomed to the darkness. Dresser. Window. Curtains.  Night stand. Toy box. His sister beside him lay breathing in gentle and rhythmic time. Normally that and the silence of the house at this hour would have lulled him back to sleep. But not tonight.
+
+His feet missed the worn football-shaped rug at the edge of the bed and found instead cold wood flooring. Now that there was no blanket wrapped around him he felt the cold on his arms and torso, even through his thermals.
+
+From the back corner of the bottom dresser drawer, where his underwear and socks were, he pulled the new knife Jacob had given him.
+
+Then he put on a pair of sweatpants and sweatshirt over his thermals and went into the living room. Moonlight came in from the big window and made everything silver, vague. A part of him wondered if he was still inside a dream. To test this theory he willed the refrigerator to rise off the ground, to no avail. From his grandfather’s room he heard loud snores. 
+
+He walked to his mother’s room and peeked in. She lay wrapped in a quilt that was pulled over her head, most of the way. With her eyes closed she appeared to him beautiful, her skin smooth. Like a painting. Joseph watched her breathing and sleeping. He wondered what she was dreaming about.
+
+Then he went back to the kitchen and stood there. Not moving or even thinking about anything. It was possible he was not fully awake. He stared at the black stove for many minutes. Nobody was around to notice his strange actions. He became very aware of the strangeness but did not stop. If he was in fact dreaming there was a name for the kind of dreaming this was. Lucid. He had read that in a book before. Lucid, but not the kind of lucid where you can control what happens.
+
+With those thoughts in his head Joseph then went to the door and walked outside. He did have a reason for being up at this hour after all. Once outside the frozen air stung his cheeks and hands, the only parts of him exposed. He stuffed both hands into the pockets of his coat and walked to the shed. If he were dreaming then maybe it would be possible to rise off the ground. So he willed it as a forced stare. He wanted so much to fly up and hover over the farm and trailer park. But it didn’t happen.
+
+At the shed he found his way in the dark back to where Grandpa kept the garden tools and found a small spade. Then he came out and headed out to the tall grass just before the woods. And before long he arrived there. There was a slight wind that blew on the grass and through the pine needles on the tree tops in the woods.
+
+Joseph was more awake now. He knew he was not dreaming now and yet still the sadness from the dream he had woken from lingered. It was not real but the feeling it made in him was real. There was nothing alive out here. Not this time of year. It was just him. He felt that keenly. The moon and stars were overhead. The moon low. Barely above the tree line. The dark edges of the pine tree tops against the stars. He was out here for a reason and now was the time to do it.
+
+He got down on a knee and took the spade in two hands. With it he struck the ground. One time with all his strength to break the crust. Then it got easier but not very easy. The dirt icy like crumbly rocks. He made progress. The sound of his digging echoed to the back of the house. He heard it and wondered if his grandfather or mother would wake up. But it was too late to stop now. He dug for a long time and at last the hole was as deep as he thought it needed to be. A foot diameter and maybe a foot and a half deep in the center.
+
+Resting for only a minute he then rose up on his knees and pulled the knife from his coat pocket. He opened it one last time and admired the polished blade, the textured grip. Then he dropped it into the hole and started filling in the hole. He quickly piled the loose dirt on top until it was a swollen mound. Then he rose and stomped on it, flattening the dirt. Before long it was even with the ground and he pulled loose leaves from the surrounding area and covered up his work. Hiding it.
+
+And once he was finished, once he was convinced the knife was truly buried, truly hidden so that nobody would ever find it, he sat down beside the hole and stared at it.
+
+The time that passed as he sat there was hard for him to measure. Somehow being night disrupted his internal clock in ways mysterious to him. It may have been five minutes but it may have been an hour. His thoughts drifted from subject to subject. His mother. Grandfather. Jesse Black. Jacob. The dog on the road. His father. All these things went through his mind and mixed together so it was not clear where one left off and another began. He was in a mood that was not easy to describe but it was something like anticipation for escape from boyhood into manhood and a wish for times to come again that could not ever come again.
+
+Then his mind went up, though he was not dreaming and very much awake. His mind went into the air and his body remained kneeling in the high grass next to the woods. He imagined his mother and Jacob as one person with the head of a dog and legs like a chicken. He imagined one hand of this beast to have eyes for fingers and the eyes were the eyes of his sister and Jesse Black and the Echols from New Calvary. He was not sure why he could tell whose eyes they were, but he could.
+
+Then he was in space. He was on a planet with a storm that went on forever. One he had learned about in school. The storm was larger than the Earth. He was there in that storm, surrounded by those clouds that swirled with a life of their own. Dark. The color of red clay. Illuminated from within by lighting and other mysterious discharges of electricity. There was liquid but it was not water, not a life giving water for him. There was no life here either. Just like on Earth in the winter night in the grass next to the woods where his body sat. He was there in the middle of it, unafraid but with a feeling inside, a longing for Hight farm. Then there were tears on his face. There was no ground here. No place to plant his feet. It was not made for him, this place. And yet he found it hard to leave. But he did and soon he was back.
+
+There was a wind that came through the pines and turned the wetness on his cheeks into ice. It was then he realized he had fallen asleep there next to the hole. He rose and brushed the grass and debris from his coat. It was time to head back in, after he returned the spade to the shed, so he left the spot he would not be able to find again in the morning, where he buried the new knife Jacob had given to him as a gift, where it would stay forever.
