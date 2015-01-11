@@ -708,13 +708,13 @@ Something pinged against his left leg. Then another. He lifted his eyes and saw 
 
 “Some of us working our ass off while others get to kick back and relax,” Jesse added.
 
-“I been working. I been working all morning. Look at my hands.”
+“I been working. Look at my hands.”
 
 “What you been doing?”
 
 “Tearing out the garden at Jacob’s farm.”
 
-“Bullshit,” Jesse said, “Show me.”
+“Bullshit,” Jesse said, “Show me the garden.”
 
 Jesse rose from the table and walked towards Joseph.
 
@@ -722,11 +722,11 @@ Jesse rose from the table and walked towards Joseph.
 
 Joseph spit his words.
 
-“You don’t want to show cause you ain’t been doing nothing.”
+“You don’t want to show me cause you ain’t been doing nothing.”
 
 Jesse walked closer and did not stop until he was right at his feet. He then kicked them hard and mashed his toe into the concrete. Joseph squirmed free and rose He stared square at Jesse.
 
-“Why don’t you cut it out, Jesse?”
+“Why don’t you cut it out?”
 
 “What you gonna do about it? Bastard boy.”
 
@@ -2000,12 +2000,8 @@ Ten minutes later Beth emerged from the house with Lizzie at her side, carrying 
 
 Then a pickup drove quickly up the drive and pulled to a stop behind the fire engine. It was Jacob. He jumped out of the truck and ran over to the porch where they all stood. He looked like he had just woken up, his wrinkled jeans and shirt clearly from the day before. His beard uncombed, his hair scraggly.
 
-“My Lord, is everybody okay? What happened?”
+“My Lord. Is everybody okay? What happened?”
 
-“We are fine, Jacob,” Beth said, “My car caught on fire this morning, as you can probably see.”
+“We are fine, Mister Jacob,” Beth said, The car caught on fire this morning, as you can probably see.”
 
-“I do see that. I hope I’m not to blame.”
-
-“Why would you be to blame, sir?” One of the firefighters asked him.
-
-“I did some work on that old car just last week. Replaced the alternator and battery. Well, me and a few other guys.”
+“I do see that. My Lord."
