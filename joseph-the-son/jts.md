@@ -1404,9 +1404,7 @@ At that Jacob took one of the shovels and went back to the pen. Joseph pushed th
 
 An hour later they were finished. They took the remains of the chickens to the fire pit where Jacob said he would burn them later that night. When they took the tools back to the shed Jacob turned to him without warning and placed both hands on his shoulders, speaking to him in a voice more severe than anything he had yet heard from him.
 
-“Keep it a secret between you and me.”
-
-Joseph understood he meant the knife.
+“Tell no one about the gift. Keep it a secret between you and me.”
 
 
 Six
