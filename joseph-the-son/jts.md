@@ -702,7 +702,7 @@ Jesse, Maurice, and Ignacio joked with one another and chatted about the usual t
 
 Something pinged against his left leg. Then another. He lifted his eyes and saw pieces of onions on the ground. Then another hit him in the forehead. He looked up and glared. Maurice was close to him with a handful.
 
-“Stop that.”
+“Stop.”
 
 “Just making sure you ain’t asleep,” Maurice said. His laughter turned to anger, “some of us got to work today.”
 
