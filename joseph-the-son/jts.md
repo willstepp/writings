@@ -1,10 +1,4 @@
-It was still dark when grandpa came to wake him. 
-
-“Slip on your long johns,” he whispered with a finger held to his mouth, “and try not to wake Lizzie, savvy?”
-
-At that he left the room.
-
-The boy rolled from under the warmth of his sleeping bag onto the cold wood. Wobbling in place for nearly a minute he finally became conscious enough to feel how cold it was in the room. He kicked his legs in place and rubbed his bare arms together to get some circulation going. Once his eyes had become adjusted to what little light there was he crept over to the chest of drawers. He pulled open the middle drawer but it creaked despite his most cautious movement. He winced and went utterly still, but his sister didn’t stir. After a moment he slid on his long johns and then a few more layers of pants, shirts, a sweater. He grabbed his survival knife from its place on the nightstand and joined his grandfather in the main room.
+Joseph rolled from under the warmth of his sleeping bag onto the cold wooden floors. Wobbling in place for nearly a minute he finally became conscious enough to feel how cold it was in the room. He kicked his legs in place and rubbed his bare arms together to get some circulation going. Once his eyes had become adjusted to what little light there was he crept over to the chest of drawers. He pulled open the middle drawer but it creaked despite his most cautious movement. He winced and went utterly still, but his sister didn’t stir. After a moment he slid on his long johns and then a few more layers of pants, shirts, a sweater. He grabbed his survival knife from its place on the nightstand and joined his grandfather in the living room.
 
 Heat from the stove in the kitchen enveloped him as he came up behind his grandfather at the table and stood there, not fully awake.
 
@@ -84,7 +78,7 @@ Once all four rails were in place, grandpa got the roll of twine and told Joseph
 
 Once finished, grandpa took a step back and asked Joseph to stand with him. They admired their work. It had taken all morning, nearly five hours. Then they put the old rails onto the tarp and pulled it over to the firepit and unloaded it.
 
-“Bad wood for fence, good wood for fire.”
+“Bad wood for fence. Good wood for fire.”
 
 “Yeah,” Joseph agreed, without really knowing what he was agreeing to, so numb from the work.
 
@@ -560,15 +554,13 @@ With some help from Joseph, who sat inside the car and pumped the gas and turned
 
 “What a decent man,” smiled Beth, who stood with arms crossed on the porch, Joseph and Lizzie beside her, watching him, “An uncommonly decent man, Jacob Brumbalow.”
 
-Beth reached out to squeeze her son around the shoulder but he shirked away and opened the screen door, going inside without a word. Lizzie took his place beside their mother and their hands intertwined. Both watched as the pastor drove their car until it  disappeared beyond the row of trees that lined the drive to Oakwood Estates, then they too went inside.
+Beth reached out to squeeze her son around the shoulder but he shirked away and opened the screen door, going inside without a word. Lizzie took his place beside their mother and their hands intertwined. Both watched as the pastor drove their car until it disappeared beyond the row of trees that lined the drive to Oakwood Estates.
 
 
 Three
 
 
-A morning wind blew through the tree tops and shook what few leaves remained in the oaks that enshrined Pastor Jacob’s farm house. The leaves fell in lazy arcs from those high places and landed next to the woodshed where Jacob and Joseph were standing. There were rakes and shovels, shears propped up against the shed. Every few seconds the pastor came out with another tool and handed it to Joseph whose job it was to arrange them outside. The last thing Jacob brought out was a bag of feed. He handed the burlap sack to Joseph, walked out of the shed, and closed the door.
-
-Behind the Pastor Joseph followed until they reached the crude pen where all the chickens were. There was a mesh wire to keep them in and a small wooden shelter for them all to nest in at night, filled with straw. Jacob stepped over the fence and Joseph did the same. The chickens came swarming around, expectant, eager.
+There were shears, rakes, and shovels propped against the shed. Every couple minutes the pastor came out with another tool and handed it to Joseph whose job it was to arrange them. The last thing Jacob brought out was a bag of feed. He handed it to Joseph, walked out of the shed, and closed the door. Behind the Pastor Joseph followed until they reached the crude pen where all the chickens were. There was a mesh wire to keep them in and a small wooden shelter for them all to nest in at night, filled with straw. Jacob stepped over the fence and Joseph did the same. The chickens came swarming around expectant, eager.
 
 “My little angels,” the pastor said, “enjoy your breakfast.”
 
@@ -826,13 +818,13 @@ Joseph zipped up and thrust his hands in his coat pockets but the cold quickly p
 
 As he came to the front porch his gait slowed and instead of going straight in he went over to the living room window and peered in. There was his mother and Lizzie reading Curious George out loud on the couch. Grandpa was there too, on the recliner listening. None of them saw him, so he continued to watch. Mother turned the page and Lizzie grew excited and shouted something and raised her arms like a monkey and grandpa erupted into a spontaneous fit of laughter.
 
-In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He didn’t fully grasp what he was feeling at that moment but he had understood something for the first time in his life. Tears welled in his eyes. He understood that a moment in time was not something he could ever possess, and yet he felt a strong desire to possess this moment — to keep it with him always. He took his hands out of his coat pocket and pressed one of his palms against the cold window. That caught Lizzie’s attention and she jumped from her mother’s lap and raced over to place her hand over his, laughing. Only a pane of glass was between them.
+In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He didn’t fully grasp what he was feeling at that moment but he had understood something for the first time in his life. Tears welled in his eyes. He understood that a moment in time was not something he could ever possess, and yet he felt a strong desire to possess this moment — to keep it with him always. He took his hands out of his coat pocket and pressed one of his palms against the cold window. That caught the attention of her sister and she climbed from her mother’s lap and excitedly ran to the window and placed her small hand over his, laughing. Only a pane of glass was between them.
 
 
 Four
 
 
-They were late so Beth handed Joseph the keys to the car and asked him to go warm it up.
+Beth handed Joseph the keys to the car and asked him to go warm it up since she was running late.
 
 “How do I do it?”
 
@@ -850,7 +842,7 @@ They were late so Beth handed Joseph the keys to the car and asked him to go war
 
 “And turn the heater on.”
 
-Joseph already had on his good clothes and ran out the door. He had never been entrusted to start the car before. The seats were icy cold, the vinyl hard. He carefully put the key his mother handed him (not any of the others) into the switch and turned it. The engine turned over then died. He remembered his mother usually pumped the gas a few times but was forbidden to do that, so he tried again this time holding the ignition so it kept turning over. After a few sections the engine rumbled and went into idle. He turned on the heater and went back inside to wait on everybody.
+He already had on his good clothes and ran out the door. He had never been entrusted to start the car before. The seats were icy cold, the vinyl hard. He carefully put the key his mother handed him (not any of the others) into the switch and turned it. The engine turned over then died. He remembered his mother usually pumped the gas a few times but was forbidden to do that, so he tried again this time holding the ignition so it kept turning over. After a few sections the engine rumbled and went into idle. He turned on the heater and went back inside to wait on everybody.
 
 Beth asked Grandpa Ken if he’d like to go to the Cornucopia Festival one more time, and getting the expected answer of no, round up Lizzie and her doll, picked up her purse and an apple pie she made, and they all headed out the door.
 
@@ -1190,13 +1182,13 @@ Jacob walked to the large cornucopia and picked it up. He toss the flowers and f
 
 Joseph reached into his pocket and dumped the contents of his wallet into the cornucopia horn, a wad of bills and some coins. Then he passed it over to the nearest crowd member. That person dropped in some money and passed it to the next, and around it went.
 
-Joseph placed the microphone back in its stand and walked off stage to join the others. He was covered in sweat and seemed to be in a daze. He donned his hat and shook hands with some of the crowd. Then he came over to where Kelly, Steven and the Hight family stood and smiled at them, and had a look of surprise when Beth leapt into his arms and hugged him hard around the neck.
+Joseph placed the microphone back in its stand and walked off stage to join the others. He was covered in sweat and seemed to be in a daze. He donned his hat and shook hands with some of the crowd. Then he came over to where Kelly, Steven and the Hight family stood and smiled at them, and had a look of surprise when Beth leapt into his arms and hugged him around the neck.
 
 
 Five
 
 
-Twenty three degrees this morning according to the rusty thermostat nailed by the front door. The coldest morning yet this year. Joseph tiptoed back into his room, avoiding certain noisy slats in the floor, and pulled his long johns from the bottom dresser drawer. As he struggled to pull them on his breath escaped in rapid puffs that rose to the ceiling. Frost covered the windows so that the sunlight came through muted and soft. He tried not to wake Lizzie as he layered on his thermals and then jeans and a sweatshirt on top of that.
+The mercury read twenty three degrees on the rusty thermostat nailed by the front door. The coldest morning yet this year. Joseph tiptoed back into his room, avoiding certain noisy slats in the floor, and pulled his long johns from the bottom dresser drawer. As he struggled to pull them on his breath escaped in rapid puffs that rose to the ceiling. Frost covered the windows so that the sunlight came through muted and soft. He tried not to wake Lizzie as he layered on his thermals and then jeans and a sweatshirt on top of that.
 
 Grandpa Ken did not rise this morning to light the stove. His door was shut, as was mother’s, but Joseph knew what must be done. He picked up the empty basket and went outside.
 
@@ -1412,13 +1404,13 @@ At that Jacob took one of the shovels and went back to the pen. Joseph pushed th
 
 An hour later they were finished. They took the remains of the chickens to the fire pit where Jacob said he would burn them later that night. When they took the tools back to the shed Jacob turned to him without warning and placed both hands on his shoulders, speaking to him in a voice more severe than anything he had yet heard from him.
 
-“Tell no one about the knife, Joseph. That is a secret between you and me.”
+“Keep it a secret between you and me, the knife.”
 
 
 Six
 
 
-It was evening when the sun had just dropped behind the power plant towers to the west and a muted light still lingered in the sky. Outside the kitchen window you could still make out the shapes of the trailers and the line of trees where the woods began. It was cold as it had been the last few days, but since the wood stove had been burning for some time it was warm in the house kitchen where Beth, Joseph, and Lizzie were preparing dinner for the guest of honor. Jacob would be there in a couple hours.
+The late afternoon sun had just dropped behind the power plant towers to the west and a muted light still lingered in the sky. Outside the kitchen window you could still make out the shapes of the trailers and the line of trees where the woods began. It was cold as it had been the last few days, but since the wood stove had been burning for some time it was warm in the house kitchen where Beth, Joseph, and Lizzie were preparing dinner for the guest of honor. Jacob would be there in a couple hours.
 
 At the moment Beth was sweeping the floor. She moved around the room as if dancing with a partner, enjoying the work, humming a song that had no words or melody. Just a song. Lizzie and Joseph joined her in singing the wordless song, each involved in their own task. Joseph was peeling potatoes for the roast and Lizzie was picking up her toys and placing them in the plastic box next to the window.
 
@@ -1722,16 +1714,14 @@ Joseph went to the kitchen and brought back a cup of water. He helped him sip it
 
 “Come back from wherever you went. They need you now. That man who calls himself pastor of the church down the road, he has his eyes on your family. On Bethy. So come back to them, Will. They need you to be there. That boy Joseph needs you. He’s at the crossroads even though he don’t know it. He’s too young to know it. But I can see the place he stands. And he needs his daddy. He needs you. So come back to them, and be in their lives. Be a father to your boy. Be a father again. I know I wasn’t the best father to you, or the best husband to your mama, but that don’t mean you have to repeat my mistakes. Come back.”
 
-As he talked his voice became weaker. His sunk further onto the pillows and went to sleep. Joseph watched him for a time and then walked out. 
-
-He went to the living room where Lizzie was playing with her dolls. He told her it was time for bed and took her to their room. He tucked her in and kissed her on the forehead and climbed into bed beside her, wearing only his long johns. He lay there unable to sleep and sometime later heard the car pull up and then the front door open. Then he felt her presence by the door to the their room. She whispered his name in the room but he did not answer. He pretended like he was asleep and closed his eyes. Then later he turned to look at the door and she was gone.
+As he talked his voice became weaker. His sunk further onto the pillows and went to sleep. Joseph watched him for a time and then walked out. He went to the living room where Lizzie was playing with her dolls. He told her it was time for bed and took her to their room. He tucked her in and kissed her on the forehead and climbed into bed beside her, wearing only his long johns. He lay there unable to sleep and some time later heard the car pull up and then the front door open. Then he felt her presence in the doorway to the their room. She whispered his name but he did not respond. Instead he closed his eyes and pretended to be asleep. When he opened them again she was gone.
 
 
 
 Seven
 
 
-That morning grandfather rose earlier than anyone else and built a fire in the wood stove. He made coffee and when the heat radiated into the bedrooms they woke and eventually made their way into the kitchen. Beth in her nightgown made pancakes and scrambled eggs. Joseph and Lizzie watched cartoons on the television. No mention was made of the previous night at all. At first they watched Ken to see if he was coherent but his mind was clear by all appearances. He moved around the kitchen without the cane, fiddling with the percolator. He seemed himself again.
+The next morning grandfather rose earlier than anyone else and built a fire in the wood stove. He made coffee and when the heat radiated into the bedrooms they woke and eventually made their way into the kitchen. Beth in her nightgown made pancakes and scrambled eggs. Joseph and Lizzie watched cartoons on the television. No mention was made of the previous night at all. At first they watched Ken to see if he was coherent but his mind was clear by all appearances. He moved around the kitchen without the cane, fiddling with the percolator. He seemed himself again.
 
 After breakfast he put on his thick winter coat and a hunters cap and asked Joseph to put on some warm clothes and join him in the shed. And then he went outside. After being reminded a few more times by Beth, Joseph pulled away from the cartoons and went into his room and dressed for the cold. Then he headed out the door. Lizzie asked if she could come too but Beth told her no. She cried but they was not real tears and she stopped moments after Joseph had gone out the door.
 
@@ -1906,7 +1896,7 @@ II
 
 Eight
 
-The next morning Beth went outside wearing only a nightgown to warm up the car. Puffs of visible breaths escaped into the air as she quickly walked to the Vega underneath the tree in the front yard. It cranked right up after a few desperate pumps of the gas pedal a few turns of the ignition switch. She flipped the heater on full blast and went back inside to get ready for work. She had the morning shift at the grocery store and planned to leave Lizzie in Joseph’s care for the day. Grandpa was nowhere to be seen, his door shut all morning. She thought it best to let him rest. 
+Beth went outside wearing only a nightgown to warm up the car. Puffs of visible breaths escaped into the air as she quickly walked to the Vega underneath the tree in the front yard. It cranked right up after a few desperate pumps of the gas pedal a few turns of the ignition switch. She flipped the heater on full blast and went back inside to get ready for work. She had the morning shift at the  store and planned to leave Lizzie in Joseph’s care for the day. Grandpa was nowhere to be seen, his door shut all morning. She thought it best to let him rest. 
 
 Joseph and Lizzie were on the living room couch eating toast with butter and strawberry preserves. Cartoons were on the small color television in the corner. They watched their mother pace from her bedroom to the bathroom to outside and back inside. She always got like this when getting ready to go somewhere. Nervous. Afraid to forget something important.
 
