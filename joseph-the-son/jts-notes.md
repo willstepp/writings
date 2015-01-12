@@ -612,3 +612,9 @@ Car catches on fire. They call fire department. Jacob comes over to take a look.
 “He is.”
 
 Reminds Joseph he agreed to help Jacob find out what killed his chickens. Asks for him to watch Lizzie since she’ll be at work until the afternoon.
+
+
+
+*When Joseph walks to Jacob’s to get firewood he should see Steve Echols emerge from the home in anger. Joseph comes to the door in shock, sees Joseph…
+
+Rewrite when Jacob arrives at the fire scene. Does not immediately talk to them. He talks to firemen. Beth runs over and hugs him. They walk off to discuss. Joseph watches, this leads to him being angry.
