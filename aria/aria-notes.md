@@ -61,6 +61,8 @@ David did not believe in God or any kind of higher power. He had never considere
 
 "Please. Don't take it from me. Not now. Let me live so that I can give it life. Let me live that long."
 
+"Don't take it from me. Not now. Let me live so that I can give it life."
+
 Brandon found the code difficult to understand, but it was commented here and there. No watchers. Fascinating stuff. He named it The Song.
 
 He uses the Aria stream on his friend and understood that he would be betrayed.

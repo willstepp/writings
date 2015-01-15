@@ -1902,17 +1902,15 @@ Joseph and Lizzie were on the living room couch eating toast with butter and str
 
 Beth asked Joseph to gather more fuel wood for the stove and to put another log on the fire. It was pleasantly warm in the kitchen and living room, less so in the other rooms, but not uncomfortable. Joseph put on his coat, then grabbed the basket and headed outside to the woodpile.
 
-As he walked onto the front porch he saw flames and smoke escaping from underneath the hood and wheel dams of the car. He dropped the basket and ran back inside to the bathroom where his mother was.
+As he walked onto the front porch he saw flames and smoke escaping from underneath the hood and wheel dams of the car. He dropped the basket and ran back inside to the bathroom where his mother was, told her what was going on.
 
-“The car’s on fire!”
+“What?” Beth exclaimed. She dropped her curler onto the sink.
 
-“What?”
+“Its on fire,” Joseph continued, “There’s smoke and fire and everything. Come see.”
 
-“Its on fire,” Joseph continued, “There’s smoke and fire.”
+Beth followed her son outside in a frantic walk. Lizzie was still watching cartoons - oblivious that anything unusual was going on.
 
-Beth set down the curler on the sink and she followed her son outside. Lizzie was still watching cartoons - oblivious that anything unusual was going on.
-
-It had grown even in the minute it had taken Joseph to run inside to tell his mother. The flames leapt higher and threatened to catch the lower branches of the maple tree too. Inside the windows had fogged up. The paint on the hood and front panels was turning black. Bubbling.
+The destruction had grown even in the minute it had taken Joseph to run inside to tell his mother. The flames leapt higher and threatened to catch the lower branches of the maple tree too. Inside the windows had fogged up. The paint on the hood and front panels was turning black. Bubbling.
 
 “Oh my God,” Beth said, “What do we do?”
 
@@ -1994,14 +1992,102 @@ The man with the ax walked up to the porch. He nodded and spoke to Beth.
 
 “Why sure. I’ll be right back.”
 
-Beth went inside and put on a pot of coffee and checked on Lizzie. Joseph stood on the porch admiring the firefighters from afar, too shy and afraid to say anything to them. 
+Beth went inside and put on a pot of coffee and checked on Lizzie. Joseph stood on the porch admiring the firefighters from afar. He was too shy to say anything to them. 
 
 Ten minutes later Beth emerged from the house with Lizzie at her side, carrying a silver thermos and a handful of plastic coffee mugs. She poured them a few cups and laid out the cream and sugar so they could help themselves. They came over and thanked her. As they talked about the causes of engine fires and how dangerous the work of a firefighter was, they could see their neighbors slowly making their way up the drive.
 
-Then a pickup drove quickly up the drive and pulled to a stop behind the fire engine. It was Jacob. He jumped out of the truck and ran over to the porch where they all stood. He looked like he had just woken up, his wrinkled jeans and shirt clearly from the day before. His beard uncombed, his hair scraggly.
+A pickup drove up and pulled to a stop behind the fire engine. Jacob opened the door and went to the men by the car and spoke to them. He looked like he had just woken up. His wrinkled shirt clearly from the day before. His beard uncombed. His hair scraggly. Joseph watched him speak to the men and walk around the car to survey the damage. They shook their heads, nodded in agreement to one another. It was several minutes before Jacob turned towards the porch where he and his mother were. He came over and poured a cup of coffee, leaned against the porch post and gave a familiar nod.
 
-“My Lord. Is everybody okay? What happened?”
+“Pastor,” his mother said.
 
-“We are fine, Mister Jacob,” Beth said, The car caught on fire this morning, as you can probably see.”
+“Beth,” Jacob said, “So sorry that this happened. I talked to those boys. They have a truck coming to haul this thing off. Bad luck is what it is.”
 
-“I do see that. My Lord."
+She came down the steps and he instantly stood up and received her with open arms. They embraced and she placed her head against his chest. She was crying. Joseph watched them. He wondered how long she had been holding in those tears.
+
+Jacob whispered into her ear and kissed her head gently.
+
+Soon the wrecker pulled up and backed as close as it could to the burnt wreckage. Jacob pulled away from his mother and met the others as they prepared the car to be lifted onto the bed of the truck. Those other men were younger than Jacob and carried himself among them like an elder and they gave him that deference. Two men emerged from the wrecker. They walked to the back of the cabin and pulled kevlar straps and chains and drug them back to the car. Jacob spoke to them, instructing where best to hook on the frame. They did so, and once finished the larger of the two men walked to the space between the cabin and flatbed and manned an electric panel.
+
+The other, a young red-haired man wearing a clean work shirt, opened the charred driver side door and put the car in neutral. Jacob stood back where he could survey the entire operation. Ever so often the other two men would look at him and he would nod.
+
+The Vega lurched off the ground and rolled up onto the wooden bed of the wrecker. Joseph watched the burst front tires mash against the ground. The winch made a sound like a whine with a loud pop ever so often as the cables shifted on the spool.
+
+Soon it was done and the two men drove off and after that the firemen pulled off in their truck and even the neighbors trickled off one by one until it was Joseph, his mother, and Jacob standing in the yard in front of the porch. Nobody knew quite just what to say. Joseph was the first to speak.
+
+“Sometimes God tests us,” he began. As he spoke he walked to the  thermos next to the front door. He held one of the cups under the spigot but it was empty, only a few drops left.
+
+“He tests us but what he doesn’t do is give us anything we aren’t prepared to receive. Everything happens in its time. That you must always bear in mind. There is nothing that happens that we aren’t ready for.”
+
+Beth did not make eye contact with him but did smile in acknowledgment of his words.
+
+“I’m so sorry this happened,” Jacob continued, “but you know, the money we have raised by New Calvary, at this point I’d say its enough purchase a new car if it comes down to it. Not that that was the plan. But Praise His Eternal Name. He knows what things you have need of, before ye ask Him. And so it goes. So it goes.”
+
+Joseph caught the eyes of the Pastor and saw the sadness and awe in them. He was in some kind of rapture as he spoke, the words proceeding from inspiration rather than rationality. It was clear.
+
+Jacob and Beth walked together around the tree in the front yard. Joseph could not hear them but he watched, in silence. When Jacob placed his arms around his mother in a tender gesture, to console her, it was all he could stand and he went inside. The front door slammed and Jacob and Beth turned to see what was wrong.
+
+He walked into the kitchen and sat at the table and stared at nothing. His thoughts raced. He knew he was angry but was not sure why. But rather than suppress those feelings he embraced them and sat there under the window, where the late morning sunlight shone in.
+
+The sound of a muffled engine crank and then the sound of the truck pulling away down the drive, and then his mother came inside. All that time he never looked anywhere except at the cracks in the wood of the kitchen table. She came in and sat in the chair opposite him. She did not speak. He could hear her breathing, her eyes on the same parts of the kitchen table.
+
+“Pastor Jacob is a decent man.”
+
+His mother’s words hung in the air. Each second that passed without response seemed to add to their significance. Joseph at first did not respond but as the seconds ticked by it became more and more oppressive, the weight of those words and the expectation of acknowledgement. Finally he submitted.
+
+“I know.”
+
+Beth breathed deeply in. She was preparing her thoughts. And then she spoke.
+
+“I’m tired, Joseph,” she confessed. The tone was like a confession, apologetic. Breathless.
+
+“Your father left us over a year ago. That is the fact of it. I never wanted it like that. Since that day I have not spoken to him. If I had I would have told you.”
+
+His eyes grew wet and he tried to suppress them, but they came, the tears. Then he relented and a stream of them came down. He blinked then looked at his mother. She was crying too.
+
+“He left us,” she repeated.
+
+There was a moment where time did not move.
+
+“I know that,” Joseph said.
+
+Beth sniffled and drew herself up, her hands and arms against her chest. Then she placed them both palms down on the table. She did not seem to want to say what she was about to say.
+
+“Your daddy aint coming back.”
+
+The words struck Joseph like a fist. Worse than the fight with Jesse Black. He did not speak until the words came to him, unprovoked. Unconsidered.
+
+“He is.”
+
+“Well,” Beth said, not surprised at her son’s response, “time will tell about that. But until then, I need you to have understanding for my situation. You are old enough to recognize that I have needs. This family has needs. Do you understand me?”
+
+Joseph did understand. There was an empty space of time when everthing was still, but then he answered.
+
+“I do, mama.”
+
+Beth seemed to come to life at those words. To be called mama. It gave her strength. She even smiled.
+
+“Well, good then,” she said, “we are in this together. I want you to know I won’t ever make a decision that will hurt you or Lizzie. You all are my life.”
+
+Joseph met his mother’s eyes and for the first time they each saw the hurt in the other and there was a shared pain. That moment lasted seconds and then Beth turned to more practical concerns. Her tone changed.
+
+“Now,” she began, “Jacob told me you agreed to help him track down the animal that is responsible for killing his chickens.”
+
+“Yes.”
+
+“Well, I have to go to work, even after all this mess. I want you to do that. Jacob has done nothing but help you and this is the least you can do for him.”
+
+Joseph nodded but did not say a word.
+
+“I want you to watch Lizzie today. Grandpa is not well. He needs to rest. Take her with you. But promise me you won’t go past Jacob’s house. That’s as far as you can go, towards the road.”
+
+“I promise.”
+
+Beth dropped her head and tried to make eye contact with her son, but he seemed ashamed to look up.
+
+“Look at me,” she said finally.
+
+He looked up and they met eyes.
+
+“I love you.”
+
+“I love you.”

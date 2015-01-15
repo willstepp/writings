@@ -617,4 +617,9 @@ Reminds Joseph he agreed to help Jacob find out what killed his chickens. Asks f
 
 *When Joseph walks to Jacob’s to get firewood he should see Steve Echols emerge from the home in anger. Joseph comes to the door in shock, sees Joseph…
 
+
+What happens now? 1-14-2015 (1350)
+
 Rewrite when Jacob arrives at the fire scene. Does not immediately talk to them. He talks to firemen. Beth runs over and hugs him. They walk off to discuss. Joseph watches, this leads to him being angry.
+
+
