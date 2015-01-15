@@ -2088,6 +2088,4 @@ Beth dropped her head and tried to make eye contact with her son, but he seemed 
 
 He looked up and they met eyes.
 
-“I love you.”
-
-“I love you.”
+“I love you. More than anything else."
