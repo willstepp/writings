@@ -2137,4 +2137,40 @@ Then there was a scream and Joseph rose from his knees and ran over to where Liz
 
 A chicken head and neck lay on the grass. The strands of sinew and blood dried. The eyes of the chicken were milky. Already it had dried out and resembled more the skull of a chicken with some feathers on it. Joseph didn’t touch it. He rose and put his arm around Lizzie. She was crying and he consoled her.
 
-As his sister buried her head into his stomach he gazed around the yard.
+As his sister buried her head into his stomach he gazed around the yard, and he saw something. There was a line of tall yellow grass that ran alongside the dirt road. Delicate, undisturbed, the ends moved with even the slightest breeze. Undisturbed except in one spot. There the grass had been beaten down by something. The ends broken. Joseph took hold of his sister’s hand and walked her over to the spot. She sniffled into her hand and watched him with curious eyes.
+
+When he agreed to help Jacob track down the animal it never occurred to him that it could be done. It seemed just something to do, something you asked of a child to help him not feel helpless. But here was it. This was how the animal made its escape. Carcass in mouth.
+
+“But where did it go from here?” He said aloud. 
+
+Joseph and his sister both looked around. In front of them the wide field that separated the road from Oakwood Estates. Nothing here. Nowhere to escape to. But then like a mirage there appeared an old white barn at the far end of the field, hidden from years of passing it by without acknowledge its existence. But there it was. Lizzie was the first to spot it. She pointed at the dilapidated structure. White but not exactly white. Once it had been painted white, but time had turned it gray. Lichens grew up its sides. The grass and trees seemed to reach out from the surrounding woods to subsume it. The roof had fallen in.
+
+From where they stood it was maybe a quarter of a mile. It was the only place around, except for the road and for Oakwood. Those were also possibilities but something about this particular structure spoke to him. The afternoon sun had cast harsh shadows across the field and lit up the barn like a beacon.
+
+“Follow me,” he told his sister, and stepped carefully across the high grass onto the field. Once over he lifted her and hand in hand they walked towards the white barn. The ground out here was hard. The soil dry. Patches of the dead yellow grass sprouted in clumps and made it difficult to walk a straight path. Lizzie especially had a hard time with it. 
+
+Around the front of the barn, pointed in the direction of Oakwood Estates, the large door had fallen off its hinges and rested against the entrance in a haphazard way. There was a large enough gap to squeeze but before they went inside, Joseph paused at the dark entryway and listened. Inside he heard a dog barking. But he also heard others. Voices. He held his finger up to his mouth to keep Lizzie quiet and tried to make out what was going on.
+
+It was a struggle of some kind. The voices he heard were short gasps. He recognized them all.
+
+“You stay put,” he told his sister. She nodded, her eyes widening a bit. Then he pushed on the door to make enough room for him to squeeze through and disappeared inside.
+
+The space inside opened up. There was not much in the barn. It was mainly the structure itself, some support beams, old dried hay on the ground. Because of the fallen roof there was plenty of light to see by, hazy though it was. The struggle had kicked up hay and dust into the air where it hung. Joseph stepped quietly inside and for the time being was unobserved. 
+
+The dog was backed into a corner. Teeth bared. Ears pressed against his head. Slunk down in a battle pose. Jesse and the others stood around the dog and inched closer by the second. Ignacio held a frayed rope in both hands. It was clear he meant to do something with it. Catch the dog, leash it, something.
+
+It was the same dog from the road that day. Joseph did not remember how thin it was. Sickly, ribs protruding. In the light he could see its yellow teeth, black gums. The eyes seemed frightened of those boys. As they took a single step closer it growled and barked loudly.
+
+Ignacio seized that moment to fling the rope over the dog’s head. There was a wide loop in the rope. As soon as it fell over his head Ignacio pulled tight and the loop shortened until it became a collar around the dog’s neck. It whipped its head around to try to break free but the rope was too tight.
+
+Jesse and Marcus grabbed the tail end of the rope then they drug the dog out of the corner into the main area, at which point Ignacio saw Joseph standing there. His eyes grew dark.
+
+“What are you doing here?”
+
+The others looked up and saw him. Jesse let go of the rope and walked closer to Joseph.
+
+“This aint a place for you, boy.”
+
+There was a crazy look in his eyes. His chest heaved.
+
+“Why don’t you get the fuck out?”
