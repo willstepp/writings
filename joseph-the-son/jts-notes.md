@@ -623,3 +623,6 @@ What happens now? 1-14-2015 (1350)
 Rewrite when Jacob arrives at the fire scene. Does not immediately talk to them. He talks to firemen. Beth runs over and hugs him. They walk off to discuss. Joseph watches, this leads to him being angry.
 
 
+What happens now? 1-24-2015 (1650)
+
+Joseph and Lizzie walk to Joseph’s barn and look around. They find no clues, except for indications of a scuffle around the back of the barn and flattened tall grass across the dirt road, leading to an abandoned barn in the middle of the field in front of Oakwood Estates. They walk over and hear noises inside, a dog barking. When they enter the barn through a space in the door, which is off its hinges against the door frame. Jesse, Ignacio, and Marcus are all inside. The dog is backed into a corner, a strand of rope tied to its neck.

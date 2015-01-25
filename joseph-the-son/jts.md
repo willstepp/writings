@@ -2089,3 +2089,52 @@ Beth dropped her head and tried to make eye contact with her son, but he seemed 
 He looked up and they met eyes.
 
 “I love you. More than anything else."
+
+
+Nine
+
+After a lunch of peanut butter sandwiches Joseph helped Lizzie into her jacket and they walked towards Pastor Jacob’s barn. That seemed the best place to start looking for clues. The overcast clouds of the morning had dissolved and revealed a blue afternoon sky. It was cold yet Joseph cold feel the sunlight radiation on his face. Lizzie walked behind her brother just glad to be out of the house for a bit. Once in awhile she would get distracted by a bug in the grass or by peering into one of the Oakwood trailers and Joseph would tell her to come on in a parent-ly tone that seemed odd coming from him, but it did work and she scurried up quickly from behind. Oakwood was quiet. There was a light wind that blew across the field to the East and fluttered against the wood-lattice porches of the trailers. The wind went through their jackets. 
+
+Before long they made their way to the barn. Joseph unlatched the large door and opened it just enough for them to enter. He saw Jacob’s truck in the driveway but for some reason did not want to see him now. It was dark in the barn except for the leaks of light that came in from the gaps in the wall paneling. There was enough to see by anyway and Joseph led his sister back to the pen. Although the carnage had been removed on the day they discovered it, the destroyed wooden frame and chicken wire was still there, untouched. Feathers were scattered on the dirt floor among seeds and dried bits of corn.
+
+“What happened to the little chickens?”
+
+“They got killed.”
+
+As he answered his sister’s questions he wandered to the back wall of the barn. Back there you couldn’t see much. There were some tools and some kind of rusted out plowing equipment from half a century ago.
+
+“Who would want to kill a chicken?”
+
+“Don’t know,” Joseph said, “that’s what we’re here to find out.”
+
+Behind a badly made storage shelf, fashioned from plywood and milk crates, there appeared to be a small opening dug under the wall boards. Joseph got down on his knees and crawled under there.
+
+“It’s mean.”
+
+He glanced back at Lizzie who had climbed into the pen and was picking up feathers.
+
+“Hey watch out for that wire. Gonna cut your hand if you aint careful.”
+
+Sure enough there was loose, fresh dirt that made a small hole. Whatever it was, it couldn’t have been very large.
+
+“This is how it got in.”
+
+Joseph rose to his feet and looked around some more, but found nothing interesting. Lizzie came out of the pen and looked at the hole too. She reached her hand underneath and felt the ground outside.
+
+“Let’s go around back. See if we can see anything suspicious.”
+
+They walked outside to the back of the barn, which was close to the edge of the woods. In fact there was only a couple feet of space between the back wall and the trees. They found the hole. There were also a few feathers hidden in the grass. Joseph picked one up and examined it.
+
+“It’s a clue,” Lizzie said, excited. Now that they were outside she got down on her knees and reached into the hole from the other side, just because.
+
+“I guess it is. It must have drug one off. If we can find another feather then we’ll know which direction it went. Let’s look all around here. See what we see.”
+
+They started together at the hole and went in opposite directions, walking slowly, hunched over. The search radius grew at each minute, soon expanding well past the barn into the yard. Joseph told his sister not to go into the woods yet. They would save that route for last, since if it did go into the woods there’s no telling where it might have ended up, and they weren’t supposed to go that far. 
+
+Then there was a scream and Joseph rose from his knees and ran over to where Lizzie was. From the sound he feared something had happened to her and his heart pounded in his chest. When he reached her she was standing still but pointing at the ground, like a statue.
+
+“What’s the matter? What did you find?” Joseph exhaled. She would not say, but only jabbed her finger in the same direction. When he kneeled to see what it was even he jumped back.
+
+A chicken head and neck lay on the grass. The strands of sinew and blood dried. The eyes of the chicken were milky. Already it had dried out and resembled more the skull of a chicken with some feathers on it. Joseph didn’t touch it. He rose and put his arm around Lizzie. She was crying and he consoled her.
+
+As his sister buried her head into his stomach he gazed around the yard.
