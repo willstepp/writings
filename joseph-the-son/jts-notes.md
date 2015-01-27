@@ -630,4 +630,8 @@ Joseph and Lizzie walk to Joseph’s barn and look around. They find no clues, e
 
 What happens now? 1-26-2015 (1175)
 
+The boys string up the dog while Joseph watches. As it struggles Joseph steps in and knocks Maurice down. Joseph tells them that Jacob would not allow them to do this. Jesse asks Joseph, “Who do you think paid us to kill it?”
+
 What happens now? 1-27-2015 (1175)
+
+The try again to hang the dog and Joseph again tries to intervene. Lizzie comes in and starts crying. This time Jesse starts hitting him. But Joseph does not fight back. Jesse cannot fight him and they are all quiet. Finally the boys hand him over the rope, telling him. “Now he’s yours forever.”
