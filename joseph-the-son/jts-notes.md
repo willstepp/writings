@@ -5,6 +5,8 @@ A story about the warm feelings of home and family (Mother and Brother)
 A story about nostalgia and a longing for a time that won't return (Childhood)
 A story about a boy who's deepest wish is for his estranged father to return home (He does!)
 
+A story, plainly told. No cleverness or indirectness. Honest. Sincere. Yet constructed like a dream.
+
 Modern technology: cars, bars, television (and yet indistinct, no computers)
 
 Joseph finds his grandfather at rest next to a log. Sits on his lap. They stare at the water for a long time. His grandfather presses his cheek against his own. Body odor and stale beer, sweat.
@@ -314,7 +316,7 @@ PART TWO (22000):
 
 (3000) 10: As they walk the dog home, at the church they see police cars, firefighters putting out a fire, a crowd. Arrive home to learn (somehow) that Jacob stabbed the youth minister to death, ran off with the youth minister’s wife and the $8700 dollars raised. Mother crying behind a door.
 
-(4500) 11: Joseph ties up dog but it runs off across the field. Joseph follows it past the point where he’s forbidden to go. Follows it into the woods. Is chased by a horse, deeper. Comes upon a lake. Grandfather there on a log. Tells grandfather what happened with Jacob. Mother wakes Joseph to tell him grandfather has passed away.
+(4000) 11: Joseph ties up dog but it runs off across the field. Joseph follows it past the point where he’s forbidden to go. Follows it into the woods. Is chased by a horse, deeper. Comes upon a lake. Grandfather there on a log. Tells grandfather what happened with Jacob. Mother wakes Joseph to tell him grandfather has passed away.
 
 (3000) 12: Falling snow. They bury grandfather next to his wife in the backyard. Hires the boys from the trailer park. They respect Joseph now. Margaret from church comes to tell them not to come around (in a nice way), tell about Jacob’s suicide in a rest area bathroom stall outside Birmingham.
 
@@ -322,7 +324,7 @@ PART TWO (22000):
 
 EPILOGUE:
 
-(1500) 14: Will returns in the middle of the night and rekindles the fire, awaits his family to awaken.
+(2000) 14: Will returns in the middle of the night and rekindles the fire, awaits his family to awaken.
 
 
 
@@ -632,6 +634,8 @@ What happens now? 1-26-2015 (1175)
 
 The boys string up the dog while Joseph watches. As it struggles Joseph steps in and knocks Maurice down. Joseph tells them that Jacob would not allow them to do this. Jesse asks Joseph, “Who do you think paid us to kill it?”
 
-What happens now? 1-27-2015 (1175)
+What happens now? 1-28-2015 (1175)
 
-The try again to hang the dog and Joseph again tries to intervene. Lizzie comes in and starts crying. This time Jesse starts hitting him. But Joseph does not fight back. Jesse cannot fight him and they are all quiet. Finally the boys hand him over the rope, telling him. “Now he’s yours forever.”
+The try again to hang the dog and Joseph again tries to intervene. Lizzie comes in and starts crying. This time Jesse starts hitting him. But Joseph does not fight back. Jesse cannot fight him and they are all quiet. Finally the boys hand him over the rope, telling him. “He is your dog now.”
+
+What happens now? 1-29-2015 (3000 / 2 = 1500)

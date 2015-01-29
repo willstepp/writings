@@ -2093,7 +2093,7 @@ He looked up and they met eyes.
 
 Nine
 
-After a lunch of peanut butter sandwiches and Fritos, Joseph helped his sister into her jacket and toboggin and they set off towards Pastor Jacob’s barn. That seemed the best place to start looking for clues to find whatever had killed those chickens. He didn’t particularly want Lizzie to come along, but mother was still at work and grandpa was nowhere to be found. His door had been shut all morning.
+After a lunch of vienna sausages with corn chips, Joseph helped his sister into her pink jacket and toboggin and they set out the door towards Pastor Jacob’s barn. That seemed the best place to start looking for clues to find whatever had killed those chickens. Joseph didn’t particularly want Lizzie to come along, but mother was still at work and grandpa was nowhere to be found. His door had been shut all morning.
 
 The overcast clouds of the morning had dissolved and revealed a blue afternoon sky. It was cold yet Joseph cold feel the radiation on his face from the sunlight. Lizzie walked behind her brother just glad to be out of the house for a bit. Once in awhile she would get distracted by a bug in the grass or by peering into one of the Oakwood trailers and Joseph would tell her to come on in a parent-like tone that seemed odd coming from him, but it did work and afterwards she scurried up quickly from behind. Oakwood was quiet. There was a light wind that blew across the field to the East and fluttered against the wood-lattice porches of the trailers. The wind went through their jackets.
 
@@ -2222,3 +2222,54 @@ Joseph looked at the dog and saw it was regaining consciousness. Any minute now 
 They boys looked at him as if he were insane. His face had turned red and his body shook involuntarily. Jesse was the only one who dared approach him in this condition. As he got closer Joseph pulled back and raised his arms ready for a fight. But Jesse did not strike. Instead he spoke in a steady voice,
 
 “Who do you think paid us to hang the dog?”
+
+Joseph had no response. There was a long held silence where those words hung like mist in the air and they stood motionless face to face. Joseph felt ashamed somehow. He looked to the corner of the barn into the darkness there. He saw Maurice and Ignacio still holding the dog down. The dog itself seemed defeated and on its side gazed up at the late afternoon sky and that could be seen through the large gape overhead. But then Joseph saw his sister. Her eyes and face was wet with tears. Her hands were clutched together at her chest strangely, as if in prayer. Those clear, open eyes met his own and then he wanted to cry, but he didn’t.
+
+When Jesse was sure Joseph was not going to come back in any manner, either physical or verbally, he returned to the others and instructed them to try again with the rope. Maurice heaved it over the beam once more and Ignacio caught it. Yet while they were preparing and not paying attention Joseph went over to the dog and stood between it and them. He wound the slack of the rope around his fist and wrists and when they turned to hoist they saw him there.
+
+This time there were no words. Jesse Black lunged towards Joseph and toppled them both onto the dirt floor. This time there was a bloodthirstiness in his eyes fiercer even than their previous fight. Catching Joseph off guard like he did there was plenty of  opportunity to get some punches in undefended. And he struck with all the strength he had. 
+
+The first punch landed with his entire body weight behind it and struck Joseph on the side of his head. The pain was at first heavy and then sharp. And then a high-pitched ring sounded in his brain even as the corners of his eyes grew dark.
+
+Joseph could only react in defense which he did by raising his arms in front of his face. But that only seemed to make Jesse more angry and the blows that struck his arms came in more rapid succession. He could hear Maurice and Ignacio cheering him on from somewhere far away. He heard Lizzie yelling for them to stop. Then Jesse stopped for just a moment, to give himself a rest and to recollect his bearings.
+
+That moment allowed Joseph the opportunity at last to retaliate. But instead he merely stood his ground. He stood up straight, hair mussed with pieces of hay, face red and already swelling from the blows sustained. His breaths were shallow and quick. Then he dropped his guard. His fists uncurled and dropped to his side. But his posture was not like a person who had given up the fight. 
+
+Jesse threw a powerful jab into his stomach and caused him to double over and gasp for air. Then Jesse pounded both elbows into his back and as he collapsed brought his knee up for another blow to the gut.
+
+Joseph dropped to the floor but then staggered up and resumed his previous stance. Arms at his side. He spat blood onto the ground and held his head forward to made sure Jesse saw he was not running away.
+
+This strange reaction caused Jesse to hesitate and draw backwards. A look of confusion came over his expression. But then, as Joseph stood there exposed, he took yet another swing. This time connecting with the left jaw. Joseph leaned to the side and grabbed his face with both hands, but then immediately shook it off and forced himself to stand upright once more. Again Jesse struck him. And then again Joseph recoiled but after stood up and faced him just the same.
+
+“What the fuck man,” Jesse said, “You chickenshit? Fight back you pussy.”
+
+Maurice and Ignacio both were quiet. They had recognized even before Jesse that the mood of the barn had turned somehow, and they didn’t know quite how to react to it.
+
+Jesse raised his fists and encircled Joseph in threatening back and forth lunges. But Joseph did not react to them, not even in reflex. He merely met Jesse eye to eye and he could see that as of yet Jesse had not see him. Only his adversary. Then Joseph gave up trying to make eye contact and bowed his head and closed his eyes. The skin on the back of his neck exposed. It made him seem more vulnerable than ever. 
+
+With that it was suddenly clear even to Jesse that he was the only one in the entire space in motion. Joseph, his sister, the dog, Ignacio and Maurice. All stillness. Quiet. The only sound in the barn was the shuffle of Jesse’s feet on the dirt and his breathing. He looked foolish and he knew it. Then he lowered his fists. Nobody said anything for a strange space of time. Even Lizzie was quiet. Her eyes watching Joseph with intense curiosity. 
+
+The dog had not paid any attention at all to the fight still gazed upward. As the sun lowered on the horizon its low light shone into the barn and against the far corner. The beams illuminated the particles in the air and bathed the barn with a golden glow.
+
+Jesse brushed off his jeans and shirt. He walked towards Maurice and Ignacio who would not look at him. He took the rope from them and led the dog towards Joseph, who was now with Lizzie, kneeling at her side, drying her face with his shirt bottom. Joseph saw him approach and rose to meet him face to face.
+
+There was a gentleness in his eyes that Joseph had never seen before, almost kind. But he did not smile. Jesse handed Joseph the rope and Joseph took it from him and nodded.
+
+“He’s your dog now.”
+
+With that Maurice and Ignacio joined Jesse and they walked outside. None spoke while in the barn, yet once they were outside Joseph could hear them talking though not in the rowdy manner they normally spoke to one another.
+
+The dog seemed okay. Joseph loosened the noose collar around its neck to make it easier to breath. Understandably the dog was frightened at his touch. He tried to sooth it by stroking down the length of its body. He and Lizzie would take it back to the house and tie it up next to the shed. Maybe give it a flea bath on a warmer day.
+
+Lizzie knelt next to her brother and reached over to pet the dog. She was not as gentle as Joseph but it didn’t seem to mind.  Joseph took her hand and showed her how to be gentle with it.
+
+“His hair is rough.”
+
+“Yeah.”
+
+Then with Lizzie leading the way and Joseph following slowly behind taking care not to choke the dog, they made their way back across the grass field to the dirt road. But as they got closer they could see red and blue flashing lights against the treetops in the direction of New Calvary Baptist Church.
+
+
+Ten
+
+
