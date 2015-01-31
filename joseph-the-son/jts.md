@@ -2272,4 +2272,92 @@ Then with Lizzie leading the way and Joseph following slowly behind taking care 
 
 Ten
 
+At the church entrance three police cars were parked front to back in a semicircle. Their lights flashing in strobe-like pattern gave any movement an unreal, staccato quality like cinema from the 1920s. Within the cordoned space that was normally the parking area was an ambulance and the same firetruck from the car fire this morning. In the air was a quiet tension. Uniformed men and women spoke into walkie-talkies and to each other. Their faces wore somber frowns. At the office entrance was where all the activity was focused. Through the windows you could see people inside with all manner of tools and gadgets, the same looks on their faces. They worked with an intentness and efficiency that was impressive to watch.
 
+Joseph and Lizzie walked up and joined a small crowd that had gathered at the edge of the parking lot in the grass. He recognized most of them as neighbors from Oakwood Estates, but not all of them. The crowd seemed to be growing by the minute. The dog was clearly afraid to be in such a crowd of people and struggled in the opposite direction as much as he could. Joseph placed his hand on its head to let it know there was nothing to be afraid of. Lizzie stared in astonishment at the lights and the serious police officers and EMTs. He watched her closely to make sure this was not too much for her to handle.
+
+The crowd let out a collective gasp when a young police officer in a heavy coat pulled out a roll of yellow tape and strung it around the perimeter of the office entrance, using orange and white wooden signposts as markers. After that he and another man, someone in charge, headed towards Pastor Jacob’s house behind the church. It was only then Joseph saw there were police there too. The lights inside the house were on and he could see them inside going through the place, looking for something.
+
+Because they were small it was easy for them to move to the front of the group and walk among the people in order to hear what they were saying. Joseph led the way, dog behind, and Lizzie holding his other hand. He squeezed her hand gently to let her know it was okay. She looked up at him and he could see the fear and uncertainty in her eyes.
+
+“Lord alive. Hard to believe it happened here. And not that long ago. Probably when I was putting clothes in the wash. Imagine that.”
+
+“He was a kind man, very good-hearted. Just a shame. An absolute shame. I hate it for his family.”
+
+There were many declarations like that. People coming to terms with it out loud, not speaking to one another as much as voicing their inner monologue. Joseph knew better than to ask an adult what had happened. He knew they would tell him this wasn’t a place for him and for him to take his sister home. But he had to know. So he listened carefully to what they said to each other, picking up the context as he could. One part of the crowd had taken to gossip and was in less shock than the rest. They all stood around arms-crossed. Some smoking. Joseph heard them talking and figured they might know something. He casually led the dog and his sister closer to this group and stood not-quite among them but not apart from them either, where he could eavesdrop and not be noticed.
+
+“Money. Plain and simple. Ain’t that what it always ends up being about?”
+
+“And cheatin. Say she was just as much responsible as him. I think she’s the one behind it all. Ask me.”
+
+“I knew something was up between them two. You could tell from how they spent so much time together on Wednesday after church pot lucks. They way they talked in the corners. Smiling. But what do you say when you have a feeling. Not something you can just confront somebody with.”
+
+“A similar story happened many a year ago in Buford where I grew up. A lady and the man she was having an affair with conspired to kill the ladies husband and run off to California together. They say the woman set it all up. Just like they do in the movies. Was even money involved somehow. I can’t remember. Like you say, Sarah, always about money.”
+
+“How much did they make off with?”
+
+“Ninety-eight hundred is what I heard.”
+
+“Sombitch that’s a lot of tithing.”
+
+“Not tithes, Gerald. Haven’t you been seeing those signs around. They been raising money for that old Hight farm and the poor family living up there. Going to restore it. That’s where that came from, no doubt about it.”
+
+“That old place? How does anybody live there?”
+
+“I don’t know but they do. You can see smoke rising from the roof nights. Made friends with the Pastor I heard. That’s how the church got involved.”
+
+“Well no restoring now, I suppose.”
+
+They all agreed with knowing nods. Then one man who had been silent spoke up.
+
+“This weren’t no conspiracy to murder as far as I understand it.”
+
+“What do you know about it, Pete?”
+
+“My brother works at the station. I called him before I came up here. See what he knew. He said Steve Echols surprised them in the act. Said he had figured it out and found letters. Plans. So he knew what they were up to and confronted them about it. Money and all.”
+
+“That makes sense.”
+
+“So they just planned to skip town with the cash then.”
+
+“From what I can tell.”
+
+“But how do you go from that to murder? And gruesome murder.”
+
+“It must have been in him all along. You never know about people.”
+
+“To stab a man that many times. And then to do that to his face after the fact. My God. To think we used to listen to him on Sundays talk about forgiveness and kindness and all those things. He seemed like such a decent man.”
+
+“When you think they’ll find them?”
+
+“Not long. Cant outrun the radios.”
+
+“That’s true.”
+
+“I never liked Kelly.”
+
+“You say that now.”
+
+“I didn’t. She was phony in that way. Like a beauty queen is phony. All perfect outside. But empty. All shell and no egg.”
+
+“They’ll come to justice. Her and Jacob both.”
+
+“I hope so.”
+
+“I just feel bad for his family. Can’t imagine getting that news. Out of nowhere.”
+
+Then there was some new activity at the church office, and everyone became suddenly quiet. The crowd of officers standing at the office entrance parted and two EMTs carefully pushed a yellow gurney through the door and eased it down the steps. On the gurney was a white, man-shaped sheet. Joseph whispered for Lizzie not to look, but she did. One one side the sheet had come up and there was an arm dangling. A single stream of dried blood on his forearm. Watch on his wrist. When Joseph saw that he put his hand over her eyes. The men pushed the gurney to the ambulance and lifted it onto the back platform.
+
+A car pulled up and a woman opened the door before it had even come to a stop. She was older, in her sixties, with burnt orange hair and a smoker’s face. She ran past the police car blockage and went to the ambulance. Two officers went to her and consoled her. She exploded on them and one of the officers tried to hug her but she pushed him away. She lost all composure and fell to the ground. The man who had been driving the car came over and knelt at her side.
+
+It was then Joseph thought about his own mother. She had been given a ride to work earlier by Jacob. But where was she now? He took Lizzie by the hand and led the dog out of the crowd. There were more cars pulling up. Passersby on the road slowed and tried to see what was going on. He led them back to the dirt road and then broke into a jog, as fast as Lizzie could keep up. He didn’t want to worry her but there were many things racing through his mind at that point. They passed more people from Oakwood Estates. Then they passed Jesse Black, Ignacio and Maurice on the road too. They walked with their parents towards New Calvary. Briefly he made eye contact with them but there was no acknowledgement in their expressions. With their parents they seemed like different people.
+
+The sky was cast in a deep blue that faded to orange at the mountains to the West. There were wisps of clouds high up. It was that time of day where the color drained out of things but there was still light for now. It was going to be a cold night and already there were puffs of breath escaping from Joseph’s mouth. Yet he was sweating.
+
+
+
+38000
+
+
+
+The house is quiet. Joseph takes Lizzie to their room and tells her to play. Then he walks to his mother’s room. The door is locked but inside he can hear her crying. He makes Lizzie a warm mug of cocoa and tells her not to leave her room. He knocks on Grandpa’s door but there is no answer. Then he goes outside where the dog has been tied to the porch. He walks it over to the shed and sets it loose inside. He makes a bed of hay and a blanket for it. Then he sits down beside it and strokes its hair. Lost in thought. The dog rests its head in his lap. He can hear the sirens from the ambulance and police cars and someone speaking over a loud hailer. He tells the dog, “You are mine forever.” As they sit in the cold, quiet space, suddenly the dog bolts up and darts outside. Joseph chases after him. The light has grown dim in the late afternoon and its hard to spot him, but then he sees him running across Mr. Trusdell’s field. He walks to the fence, where it was collapsed from the day before and follows after it.

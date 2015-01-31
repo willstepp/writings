@@ -638,4 +638,16 @@ What happens now? 1-28-2015 (1175)
 
 The try again to hang the dog and Joseph again tries to intervene. Lizzie comes in and starts crying. This time Jesse starts hitting him. But Joseph does not fight back. Jesse cannot fight him and they are all quiet. Finally the boys hand him over the rope, telling him. “He is your dog now.”
 
-What happens now? 1-29-2015 (3000 / 2 = 1500)
+What happens now? 1-31-2015 (3000 / 2 = 1500)
+
+1)
+
+Joseph and Lizzie walk over to the church, where they see police cars, an ambulance, and even the same firetruck from that morning parked on the side of the road. There is police tape around the porch to Jacob’s house and also at the side entrance to the church offices. A crowd from Oakwood Estates (even Jesse Black and gang) has gathered and people are repeating what they know, what they suspect. That Jacob Brumbalow and Kelly Echols planned to steal the money the church raised to help the Hight family rebuild their home, $9800 dollars and run off together. Steve found out and confronted Jacob. And then Jacob stabbed twenty seven times in the chest, even sliced his face. And now he and Kelly are on the run with the money. At that point they bring out the body of Steve Echols on a gurney, covered with a white sheet. You can see part of his arm dangle from the side. Blood on it. Joseph thinks about his mother and runs back to the house with Lizzie and the dog.
+
+2)
+
+The house is quiet. Joseph takes Lizzie to their room and tells her to play. Then he walks to his mother’s room. The door is locked but inside he can hear her crying. He makes Lizzie a warm mug of cocoa and tells her not to leave her room. He knocks on Grandpa’s door but there is no answer. Then he goes outside where the dog has been tied to the porch. He walks it over to the shed and sets it loose inside. He makes a bed of hay and a blanket for it. Then he sits down beside it and strokes its hair. Lost in thought. The dog rests its head in his lap. He can hear the sirens from the ambulance and police cars and someone speaking over a loud hailer. He tells the dog, “You are mine forever.” As they sit in the cold, quiet space, suddenly the dog bolts up and darts outside. Joseph chases after him. The light has grown dim in the late afternoon and its hard to spot him, but then he sees him running across Mr. Trusdell’s field. He walks to the fence, where it was collapsed from the day before and follows after it.
+
+
+What happens now? 2-1-2015 (4000 / 2 = 2000)
+
