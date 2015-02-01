@@ -1684,7 +1684,7 @@ The old man coughed and wheezed. He laughed bitterly.
 
 "Respectfully sir, it doesn't matter what you believe. And it doesn't matter what I believe. It only matters what is."
 
-That he would lose it over and over again. “Inny. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cussed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is bullshit. Your job, money, house, car. Bullshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I really mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and kissed her under the stars that night. She was my love. Mine.”
+That he would lose it over and over again. “Inny. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cussed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is bullshit. Your job, money, house, car. Bullshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I really mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and kissed her under the stars that night. She was my love. Mine forever.”
 
 “And there ain’t no Heaven. No after life. No reunification will bring that love back to me again. Don’t bullshit me.”
 
@@ -1797,13 +1797,13 @@ Lizzie ran up to her grandfather.
 
 “Horses? Where?”
 
-“Mister Trusdell let his horses out to pasture today. Lizzie saw them when we drove to the store earlier. They were standing over by the fence. I told her we might take some leftover apples and feed them later.”
+“Mister Truesdell let his horses out to pasture today. Lizzie saw them when we drove to the store earlier. They were standing over by the fence. I told her we might take some leftover apples and feed them later.”
 
 “Please can we grandpa?” Lizzie asked.
 
 “Well, since you asked so nicely. I guess we can.”
 
-Grandfather tossed a few of the apples into a plastic bag and he Joseph and Lizzie walked to the wooden fence that separated the backyard with the Trusdell farm. There was a field that spanned ten acres and beyond that the woods. The fence was old, the beams dried, splintered. They saw two of the horses. They had wandered about thirty yards from the fence and paced slowly, hunting for anything to eat. Not that there was much this time of year. Ken placed two fingers in his mouth and whistled loud. Lizzie put her hands over her ears and Joseph laughed.
+Grandfather tossed a few of the apples into a plastic bag and he Joseph and Lizzie walked to the wooden fence that separated the backyard with the Truesdell farm. There was a field that spanned ten acres and beyond that the woods. The fence was old, the beams dried, splintered. They saw two of the horses. They had wandered about thirty yards from the fence and paced slowly, hunting for anything to eat. Not that there was much this time of year. Ken placed two fingers in his mouth and whistled loud. Lizzie put her hands over her ears and Joseph laughed.
 
 The horses responded and ambled over in no special hurry. Joseph reached in the bag and handed an apple to each of them. Lizzie took a bite of hers.
 
@@ -2090,10 +2090,12 @@ He looked up and they met eyes.
 
 “I love you. More than anything else."
 
+Then she rose to get ready for work. Then later Pastor Jacob drove up and she left with him for work. Joseph went into the kitchen to prepare lunch for he and his sister. He opened a can of vienna sausages and toasted some Wonder bread. Then he called out for Lizzie to join him at the table and they ate.
+
 
 Nine
 
-After a lunch of vienna sausages with corn chips, Joseph helped his sister into her pink jacket and toboggin and they set out the door towards Pastor Jacob’s barn. That seemed the best place to start looking for clues to find whatever had killed those chickens. Joseph didn’t particularly want Lizzie to come along, but mother was still at work and grandpa was nowhere to be found. His door had been shut all morning.
+After lunch Joseph asked his sister if she was ready to help him do some detective work to find whatever had killed Jacob’s chickens. She enthusiastically jumped up and down and clapped her hands. So then he helped her put on her pink jacket and toboggin and once he had put on his winter gear they set out the door towards Pastor Jacob’s barn. Being the scene of the crime that seemed the best place to start looking for clues. Joseph didn’t particularly want Lizzie to come along, but mother was still at work and grandpa was nowhere to be found. His door had been shut all morning.
 
 The overcast clouds of the morning had dissolved and revealed a blue afternoon sky. It was cold yet Joseph cold feel the radiation on his face from the sunlight. Lizzie walked behind her brother just glad to be out of the house for a bit. Once in awhile she would get distracted by a bug in the grass or by peering into one of the Oakwood trailers and Joseph would tell her to come on in a parent-like tone that seemed odd coming from him, but it did work and afterwards she scurried up quickly from behind. Oakwood was quiet. There was a light wind that blew across the field to the East and fluttered against the wood-lattice porches of the trailers. The wind went through their jackets.
 
@@ -2350,14 +2352,56 @@ Then there was some new activity at the church office, and everyone became sudde
 
 A car pulled up and a woman opened the door before it had even come to a stop. She was older, in her sixties, with burnt orange hair and a smoker’s face. She ran past the police car blockage and went to the ambulance. Two officers went to her and consoled her. She exploded on them and one of the officers tried to hug her but she pushed him away. She lost all composure and fell to the ground. The man who had been driving the car came over and knelt at her side.
 
-It was then Joseph thought about his own mother. She had been given a ride to work earlier by Jacob. But where was she now? He took Lizzie by the hand and led the dog out of the crowd. There were more cars pulling up. Passersby on the road slowed and tried to see what was going on. He led them back to the dirt road and then broke into a jog, as fast as Lizzie could keep up. He didn’t want to worry her but there were many things racing through his mind at that point. They passed more people from Oakwood Estates. Then they passed Jesse Black, Ignacio and Maurice on the road too. They walked with their parents towards New Calvary. Briefly he made eye contact with them but there was no acknowledgement in their expressions. With their parents they seemed like different people.
+It was then Joseph thought about his own mother. She had been given a ride to work earlier by Jacob. But where was she now? He took Lizzie by the hand and led the dog out of the crowd. There were more cars pulling up. Passersby on the road slowed and tried to see what was going on. He led them back to the dirt road and then broke into a jog, as fast as Lizzie could keep up. He didn’t want to worry her but there were many things racing through his mind at that point. They passed more people from Oakwood Estates. Then they passed Jesse Black, Ignacio and Maurice on the road too. They walked with their parents towards New Calvary. Briefly he made eye contact with them but there was no acknowledgement whatsoever. With their parents they were different people altogether.
 
-The sky was cast in a deep blue that faded to orange at the mountains to the West. There were wisps of clouds high up. It was that time of day where the color drained out of things but there was still light for now. It was going to be a cold night and already there were puffs of breath escaping from Joseph’s mouth. Yet he was sweating.
+Above the shelf of high clouds the sky was cast in a deep blue that faded to ember at the mountain edge. It was that time of day where the color was beginning to drain out of things but there was still daylight to see by. It would be a cold evening. Already there were puffs of breath escaping from Joseph and his sister’s mouths as they hurried up the path through Oakwood Estates.
 
+No lights were on in the house. Nobody seemed to be home. But he knew grandpa was there in his room. And his mother should have been home by now. Normally she would have been in the kitchen. But there was nobody. The stove had not even been lit this evening.
 
+Joseph tied up the dog to one of the vertical porch beams and took Lizzie inside. He put a piece of couple pieces of small twigs and paper into the stove and rekindled the fire. Lizzie he told to play in their room. She said she was hungry so he fixed her a peanut butter sandwich. 
 
-38000
+When he was sure Lizzie was okay he went to his mother’s room and placed one ear against it. Inside could hear her sobbing, crying to herself. He turned the knob but the door was locked.
 
+“Mama?”
 
+She did not answer. It was like he wasn’t there, a very lonely feeling. He went outside and walked around the house to her room window and lifted himself on tip-toes to peer inside. There he saw her, on the bed prostrate, curled into a ball and staring at the ceiling. Her eyes were red. She still had on her work uniform — the bright green vest with a name tag pinned to it. She looked so sad it made him want to cry. He felt pangs in his heart for her and wanted very much to make things better again. But there was nothing he could do.
 
-The house is quiet. Joseph takes Lizzie to their room and tells her to play. Then he walks to his mother’s room. The door is locked but inside he can hear her crying. He makes Lizzie a warm mug of cocoa and tells her not to leave her room. He knocks on Grandpa’s door but there is no answer. Then he goes outside where the dog has been tied to the porch. He walks it over to the shed and sets it loose inside. He makes a bed of hay and a blanket for it. Then he sits down beside it and strokes its hair. Lost in thought. The dog rests its head in his lap. He can hear the sirens from the ambulance and police cars and someone speaking over a loud hailer. He tells the dog, “You are mine forever.” As they sit in the cold, quiet space, suddenly the dog bolts up and darts outside. Joseph chases after him. The light has grown dim in the late afternoon and its hard to spot him, but then he sees him running across Mr. Trusdell’s field. He walks to the fence, where it was collapsed from the day before and follows after it.
+He lowered himself slowly and carefully not to make any noise, and walked back around to the porch. He was deep in thought. A certain kind of panic was overtaking the calm front he had to put on not to worry his sister. Things today did not make sense. He could not make sense of anything that had happened today. Logic did not seem to follow anymore. He sat on the porch next to the dog and pet it slowly. It reacted by shifting beside him and lying down. It curled into a tight ball for warmth. As he sat there he began to wonder about a name for the dog.
+
+“Are you a boy dog or a girl dog?”
+
+He lifted the tail and saw that it was a boy. So he thought on it more and then it came to him, “Shooter.”
+
+The dog lifted his eyes as if he already knew his name. Joseph rubbed under his ears and his eyes squinted shut.
+
+“I bet you’re hungry. Want something to eat?”
+
+Joseph went inside and made the dog a peanut butter sandwich too. Then he made himself one, layering it onto the white bread thick. He checked on Lizzie to make sure she was okay. She was in their room playing with her dolls. He told her he would be outside in the shed if she needed him.
+
+Then he went back outside and set the sandwich at the dogs feet. Shooter devoured it in just a few bites and looked up expectantly at him, so Joseph tossed down the sandwich he had made for himself, of which he had only taken one bite so far. The dog ate it too and started wagging its tail.
+
+“That’s all I got for now. You ate mine too.”
+
+He untied the rope and led him up to the shed. Once inside he flipped on the light and pulled the door shut and then carefully removed the rope from his neck. He seemed happy to be free and immediately began to nose around the contents of the shed. While he did that Joseph pulled some hay from an old hay bale that was underneath a box of tools and he stacked it in the nearest corner as a bed for him. Then he found an old scratchy blanket and set that on top of the hay.
+
+Then he sat down on the hay bed and leaned against the back of the shed wall, which was just a piece of particle board. Underneath he felt the cold air come in from the tiny gap at the bottom, nowhere big enough for a dog to fit through. He was sure of it. He watched Shooter explore and at last come over to where he was to sniff the hay and blanket. After which he circled twice and lay down in a curl next to his new master, the same way he had done on the porch.
+
+Joseph thought about the day. About the fire. His mother burning her hand. The fire truck. Pastor Jacob. The chicken head in the yard. Lizzie screaming. The barn. Jesse Black and gang. The dog. The hanging and the fight. The scene at New Calvary. The gossip. His mother crying. He thought about how the people had talked about them living in this old farmhouse. There was pity in their voices. He wondered why. It had never occurred to him they were ones to be pitied. He thought about his father and the day after he was gone how he asked his mother if daddy had broken their hearts.
+
+There were tears in his eyes. Somehow these things all seemed connected and completely random at the same time. He felt the warmth from the dog at his side nestled against him. He told himself he was going to take care of this dog for the rest of his life. No more would he have to feed on stray chickens and risk the wrath of them who own the chickens. The Jacobs of this world. He placed both arms around the dogs neck and hugged him and told him in a whisper.
+
+“You are mine forever.”
+
+But then a gust of wind came over the field and blew through the yard and past the shed. The door to the shed blew open and banged against the side of it with a loud thud. Joseph startled and the dog jumped to his feet. Instantly alert. Then he bolted outside across the yard leaving his new master there alone. Joseph leapt up and followed the dog across the yard, yet by now the dog was clear on the other side, near the wooden fence to Truesdell’s field. He was not fast enough to catch him and so called out for him to stop, to come back.
+
+When it reached the wooden fence it wiggled underneath the lowest beam and shot out at full speed, heading straight into the dark woods on the other side. What he was running for was unclear. Joseph reached the wooden fence and stood just about where he had broken the old beam while feeding the horse with his grandfather and Lizzie. The beam was still there on the ground. A few dried apple rinds lay beside it.
+
+In the twilight it was hard to make out the dog’s brown hair against the grass since it blended so well together, but he watched intently a wide range of space and finally saw him at the edge of the woods. He had stopped there and was poking around in the bushes.
+
+“Shooter,” he shouted by cupping his hands over his mouth, “come back!”
+
+His voice echoed across the wide flat field. He heard his voice bounce off the wall of the woods. The dog turned to face him and then turned away and crept deeper into the trees and soon disappeared altogether.
+
+Joseph stood up on the fence and watched until his dog vanished into the dense tree line. He climbed the beams and heaved himself over the other side. When his feet came down onto Truesdell’s field he felt a strange sensation. Now he could turn and look at their farmhouse on the other side of the fence and it seemed unfamiliar to him. He saw the light on in his mother’s room and for a moment wondered who lived in there. 
+
+Then he turned towards the field and sprinted across it at full speed, through the high grass sometimes as tall as himself, and towards the dark woods on the other side.

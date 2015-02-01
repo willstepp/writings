@@ -651,3 +651,6 @@ The house is quiet. Joseph takes Lizzie to their room and tells her to play. The
 
 What happens now? 2-1-2015 (4000 / 2 = 2000)
 
+Chased by the horse
+A bare tree filled with blackbirds, like living foliage
+A sink hole
