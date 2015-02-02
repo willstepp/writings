@@ -4,4 +4,4 @@
 * The Dogs of Santiago
 * Joseph the Son
 * Aria
-* Memos: Sketches about the Modern Workplace
+* Memos
