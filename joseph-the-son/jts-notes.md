@@ -655,4 +655,6 @@ Chased by the horse
 A bare tree filled with blackbirds, like living foliage
 A sink hole
 
-Grandpa is standing in the shallows of the lake. Wearing waders.
+Discovers the piles of wood he left as markers. Elation. Then following them he comes to a large lake that he can see is perfectly still by the moonlight and stars reflected upon its surface. Grandpa is standing in the shallows of the lake. Wearing waders. Daddy bought me these waders. Now I can go fishing with him at Lake Allatoona. I always wanted to do that.
+
+It doesn’t matter. I know the way back. Sit with me. What do you feel? Whiskers. No, what do you feel? Love.
