@@ -1684,9 +1684,9 @@ The old man coughed and wheezed. He laughed bitterly.
 
 "Respectfully sir, it doesn't matter what you believe. And it doesn't matter what I believe. It only matters what is."
 
-That he would lose it over and over again. “Inny. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cussed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is bullshit. Your job, money, house, car. Bullshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I really mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and kissed her under the stars that night. She was my love. Mine forever.”
+That he would lose it over and over again. “Inny. If I only understood what it meant to lose my love to eternity. I lost her. Every moment I didn’t want to be in her presence. I remember a summer night I left the house and went for a walk and I cussed her. And now what I wouldn’t give. It doesn’t matter. Nothing else matters. Nothing! That’s what they don’t tell you about life. That all the rest is bullshit. Your job, money, house, car. Bullshit. They don’t tell you that and then by the time you finally understand its too late. Love. More real than those things. I can’t say what I really mean. I won’t never again be that boy who got up courage to ask her to go with me to the Shannon barn dance and took her outside and pressed my lips against her awkwardly there under the stars. She was my love. Mine forever.”
 
-“And there ain’t no Heaven. No after life. No reunification will bring that love back to me again. Don’t bullshit me.”
+“And there ain’t no Heaven. No Hereafter. No Reunification that will bring that love back to me again."
 
 “Get out of my house,” he whispered.
 
