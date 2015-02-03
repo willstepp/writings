@@ -1,4 +1,4 @@
-Joseph rolled from under the warmth of his sleeping bag onto the cold wooden floors. Wobbling in place for nearly a minute he finally became conscious enough to feel how cold it was in the room. He kicked his legs in place and rubbed his bare arms together to get some circulation going. Once his eyes had become adjusted to what little light there was he crept over to the chest of drawers. He pulled open the middle drawer but it creaked despite his most cautious movement. He winced and went utterly still, but his sister didn’t stir. After a moment he slid on his long johns and then a few more layers of pants, shirts, a sweater. He grabbed his survival knife from its place on the nightstand and joined his grandfather in the living room.
+The boy rolled from underneath the warmth of his sleeping bag onto those cold slats on the floor. Wobbling in place for nearly a minute he finally became conscious enough to feel how cold it was in the room. He kicked his legs in place and rubbed his bare arms together to get some circulation going. Once his eyes had become adjusted to what little light there was he crept over to the chest of drawers. He pulled open the middle drawer but it creaked despite his most cautious movement. He winced and went utterly still, but his sister didn’t stir. After a moment he slid on his long johns and then a few more layers of pants, shirts, a sweater. He grabbed his survival knife from its place on the nightstand and joined his grandfather in the living room.
 
 Heat from the stove in the kitchen enveloped him as he came up behind his grandfather at the table and stood there, not fully awake.
 
@@ -2449,10 +2449,101 @@ It was hard to see out here. Overhead he saw the blue night sky, those stars bri
 
 He really had been close to falling in but there was no need to have grabbed the tree. He let go and would have been ashamed if there was anybody else around. Instead he walked around the circumference of the hole and looked down it. He leaned over and shouted.
 
-“Hello down there!”
+“Hello!”
 
-And heard his voice echo, and then echo again. How deep it must go. Perhaps it was a sink hole. He had heard of those. Random holes opening in the earth to underground caverns. Sometimes caused by local mining. And there was a mine a few miles from here. The hole was only about five feet in diameter. The walls seemed smooth and although it turned to inky blackness just a few feet down he could feel a warmth emanate from its depths. He put out his cold hands and rubbed them over it. How bizarre. He would ask grandpa about it when he returned.
+And heard his voice echo, and then echo again. How deep it must go. Perhaps it was a sink hole. He had heard of those. Random holes opening in the earth to underground caverns. Sometimes caused by local mining. And there was a mine a few miles from here. The hole was only about five feet in diameter. The walls seemed smooth and although it turned to inky blackness just a few feet down he could feel a warmth emanate from its depths. He put out his cold hands and rubbed them over it. There was a faint smell of sulfur. As he sat there he imagined falling into it and the thought frightened him.
 
-With that thought once again the panic of finding his way home came over him. Time was more desperate by the minute. His eyes were accustomed to the darkness and he could see okay but in less than half an hour it would be too dark to get back.
+Once again the panic of finding his way home before nightfall came to the foreground. Time was more desperate by the minute. His eyes were accustomed to the darkness and he could see okay but in less than half an hour it would be too dark to get back. Clearly this had been the wrong way so he turned back and ran past the dead tree and retraced his path. He needed to get back to the pickup.
 
-Clearly this was the wrong way so he turned back and ran past the dead tree and retraced his path. He needed to return to the rusted old pickup.
+Back on the wide path he found the pickup but somehow it looked different, backwards from the direction he had last seen it. Perhaps he was turned around. Taking that into consideration he walked in the opposite direction and found what had to be the right path back to the main field. After a few yards in this direction he thought he recognized the lay of things. This had to be the place. That gave him the courage to continue this way.
+
+Soon he discovered a pile of twigs stacked in the middle of the  path in just the same pattern has he had done. Some of the weight lifted from his shoulders and relaxed a bit. He picked up one of the twigs and carried it with him. From time to time he’d reach out and swipe across the nearest pine branches.
+
+He found the second not too long after. His pace picked up here as he was sure the field was not too far away. From here he might even be able to find his way once it got dark.
+
+There were sounds in the trees that surrounded him, but not the sounds of living things. Leaves falling. Wind moving through pine needles and through branches. As it grew darker those sounds were emphasized and he remembered the horse and listened for those hoofs. He wondered where that dog had run off too. Maybe he belonged to Truesdell after all. Maybe he had an owner and was eating his supper from a dishbowl right this minute.
+
+Because he hadn’t gotten to eat the peanut butter sandwich he felt the hollowness in his stomach. It had been lunchtime the last he ate anything. At this thought he quickened his pace even more and now was in a jog. Around him the dim places in the trees went past. He found it he just focused on the ground with its light, dry grass he could see better than if he focused on the tree line.
+
+Then there was a sound not too far from him. A bark. He called out in case it was his dog, but there was not another one. Now he was coming to the place where the field should open up. He saw lights or what he assumed to be lights in the spaces in the trees where he could see the furthest. The path narrowed. Brambles got in his way just like they did when he first entered this space. He pushed through and came out into the wide open space.
+
+But there was no field. And the lights he had seen were merely reflections of the moon and stars on the surface of a massive lake. He hardly believed his eyes. Then the panic set in again that he was truly lost. Across the surface of the lake he could see maybe fifty yards then it vanished into a wall of darkness. Despite his shame he began to cry. He had failed to find the way back in time. And tonight of all nights. So much had happened. So much he ought to be around for. To help. To be there. Now it was certain he would have to stay here. It would be foolish to go any further into the woods.
+
+Joseph stepped down the gentle slope that led to the lake’s outer edge and walked beside it. The soil was fresh and moist. If he got too close his feet sank into the mud. What he wanted to find was a place in the trees where the pine straw and leaves were thick, where he could fashion a bed and cover up with the leaves to keep warm. He was no fool (apart from getting lost in the first place). He knew he night this time of year could be deadly and that its deadliness could sneak up on you like a snake. But that would not happen to him. He had read how to survive in situations like this. Maybe he wouldn’t have a fire, but he could keep warm.
+
+He walked maybe twenty yards around the right side of the water and found a spot he thought would be good. There was a large dried tree trunk on its side next to the water. A good fishing log at a better time. But maybe that would be a better spot to hunker down until morning. He walked back up to the woods and gathered piles of leaves and pine straw and brought them down to the log and flattened them against the back side of the log until it had made a fairly soft mattress. Then he got more and piled them up beside to cover himself for warmth.
+
+When finished he sat down on the bed he had made and said a prayer. He prayed to make it through the night. That it should not get so cold that he could not keep warm. He prayed for his mother. For her not to be so sad. His sister and grandfather. For poor Steve Echols. For the dog wherever it was. For the horse who had chased him and caused him to get lost and have to spend the night out here. Even for Jesse Black, Ignacio, Maurice.
+
+Yet before he was finished with his prayer there was a sound at the lakebed. A splash too large to be just a fish. Too large to be a fallen pine cone. A deep, plumbing splash. Two of them. Then to his horror there was a sound of movement in the water. A sloshing sound. Slow. Approaching. It took all the courage he had to sit up against the log and poke his head up to take a look. But he did not see what he at all expected.
+
+It was a man. His back was turned away from Joseph and towards the middle of the lake. He hunched over as if looking for something. He wore a flannel coat and a hunter’s cap wit two flaps down over his ears. He stomped the water in methodical paces. It was clear he was doing something.
+
+Joseph stood up and approached the man, but not too close. The man perked up when he heard his footsteps in the leaves. He slowly turned around, not too much concerned from outward appearances. But then Joseph could make him out and he saw those familiar gray eyes and kind smile he had known since he was a little boy.
+
+“Grandpa.”
+
+He walked up to his grandfather who stood in the shallow part of the lake. He did not seemed surprised to see him and for some reason Joseph was not surprised either. He was there and Joseph was there and that seemed to be all that mattered for the time being. His grandfather held out his arm for Joseph to help him back onto dry ground, which he did, feeling the massive weight bear down on him but refusing to buckle under it.
+
+“See these waders? My daddy bought me these waders. What do you think about them?”
+
+His grandfather lifted one leg up so that Joseph could admire them. New rubber waders with a steel toe and insulated soles. They went up to past his knee.
+
+“I like them. Do they work?”
+
+“Oh you bet your ass. These socks are drier than a mummy’s coochie. Do you want to feel them?”
+
+Joseph smiled.
+
+“Alright, if you want.”
+
+Grandpa walked slowly to the log and let himself fall onto the flat top. The waders went up so far he couldn’t sit like normal. As he came down he grabbed a knotted root that stuck up on one side. Then he pulled the shoe down and showed his grandson the bright red socks he wore. Joseph smiled. He had never seen his grandfather wear such things.
+
+“Where did you get those?”
+
+“From my daddy. He gave them to me. Feel.”
+
+Joseph reached out and felt the sock and sure enough it was bone dry.
+
+“Dry?”
+
+“Yep, sure is. You were right.”
+
+With that his grandfather slid the other wader off. He was careful not to let his feet touch the ground to get his socks wet. They sat there with each other. Now that his grandfather was hear he was not afraid. It seemed even if they had to stay the night out here it would be okay. It didn’t really occur to him to ask why he was out here. The question did occur but it didn’t really seem important enough to bring up.
+
+In silence they sat together. A breeze came down from above and rippled the lake surface so that those reflections which had been so pristine and still now shimmered and blew apart, then slowly came back together. As close as they were Joseph could feel the heat. Then, almost as if he could hear his thoughts, his grandfather reached out and pulled him close to himself. That close he could smell the old beer on his breath. The musty odor from his arm pits from not bathing all week. But it was not unpleasant.
+
+“Pastor Jacob,” Joseph remarked, as if only just now remembering , “He murdered a man today. He ran off with ninety-eight hundred dollars and that man’s wife. That was the money the church had raised to fix our house up. To steal the money was the plan. Not the murder.”
+
+His grandfather took in what he said and seemed to process it. Joseph looked at him in expectation of a response but none came. His eyes became distant and not sad, but contemplative.
+
+“It doesn’t matter,” he said after some time and then it was clear his mind was on other things.
+
+That was not the reaction Joseph had expected but somehow it made sense to him when he put it that way.
+
+“How are we going to get back to the house?” Joseph asked.
+
+“I know the way. It isn’t far. You’ll see. Let us sit here for just a little awhile longer. Will you sit with me, Joseph?”
+
+“Yes, sir,” he answered.
+
+Grandfather pat his knee as if he wanted Joseph to come sit on his lap. Joseph did as he was told. At his age he rarely sat on laps anymore but it was fine. It didn’t feel uncomfortable or wrong to do so. His grandfather gave him a wide hug and Joseph hugged him back. Then he placed his cheek on Joseph’s cheek and in that position they sat for a few moments.
+
+“Tell me what you feel,” Grandfather said, “what do you feel with my cheek against yours?”
+
+“Whiskers.”
+
+“No, what do you feel?”
+
+“Love.”
+
+By now the night had come and looking up you could not tell when the trees stopped and the sky began, all black. The multitudes of stars shone up high and also on the face of the lake. If there were no gravity it might have been hard to tell which way was up. And it was cold but together they kept each other warm. Like that they sat together and listened to the wind in the pines and the silence of everything else. And then there was a noise, a little plop in the water close to them —
+
+
+“Joseph,” his mother’s voice spoke to him. He turned in his bed and faced her, his eyes open wide. She had been crying and held an old handkerchief against her chest.
+
+“Joseph,” she said again, “Your grandfather has passed away.”
+
+
+Twelve
+

@@ -5,7 +5,7 @@ I.
 
 One
 
-As he stepped off the plane onto the walkway between the exit door and the terminal gate, he felt a bitterly cold July wind whip in through one of the slits in the fabric joins. He weaved through the passengers, stumbling and bleary-eyed, and found his way to the nearest restroom, where he found some jeans he had brought just in case, and an old flannel shirt he kept tucked in a side pouch of his duffle. A fat man, Chilean, emerged from the last stall. He looked surprised to see a half-naked American there, but made no eye contact and walked straight out without a nod. The man pulled up his jeans and washed his face in the dirty sink. He caught himself in the mirror. The dim neon lights shadowed his face with older and more tired lines. He never could sleep on a plane, or a bus, or any other place for that matter. Not without pills anyway. And he wanted to conserve them for when it got bad again.
+As he stepped off the plane onto the walkway between the exit door and the terminal gate, he felt a bitterly cold July wind whip in through one of the slits in the fabric joins. He weaved through the passengers, stumbling and bleary-eyed, and found his way to the nearest restroom, where he found some jeans he had brought just in case, and an old flannel shirt he kept tucked in a side pouch of his duffle. A fat man, Chilean, emerged from the last stall. He looked surprised to see a half-naked American there, but made no eye contact and walked straight out with a frown. The man pulled up his jeans and washed his face in the dirty sink. He caught himself in the mirror. The dim neon lights shadowed his face with older and more tired lines. He never could sleep on a plane, or a bus, or any other place for that matter. Not without pills anyway. And he wanted to conserve those for when it got bad again.
 
 "Muchas gracias, señor," he greeted his reflection in the mirror.
 
@@ -55,7 +55,7 @@ Eventually he returned to the gates, saw the large numbers and the planes outsid
 
 In the stall was a kid, fifteen maybe, sifting through his bag. On the toilet paper rack he could see his checkbook, car keys, and earbuds. The kid was skinny, probably Chilean. Without thinking Will man grabbed him by the shirt, ripping it at the collar. He growled,
 
-"What the fuck, man? What do you think you're doing with my stuff? That's my bag you're going through!"
+"What the fuck? That's my stuff! That's my bag you're going through!"
 
 The kid stammered something in Spanish and tried to break free. The man was about to let him go, but a wave of anger went through him and he shoved him hard into the toilet. The kid's back hit the side of the tank and he went down, grabbing himself with both hands. The man was immediately sorry but his anger was still high. He lunged at the kid and the kid scrambled under the stall opening and ran out.
 
