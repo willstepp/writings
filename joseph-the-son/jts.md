@@ -2513,7 +2513,7 @@ With that his grandfather slid the other wader off. He was careful not to let hi
 
 In silence they sat together. A breeze came down from above and rippled the lake surface so that those reflections which had been so pristine and still now shimmered and blew apart, then slowly came back together. As close as they were Joseph could feel the heat. Then, almost as if he could hear his thoughts, his grandfather reached out and pulled him close to himself. That close he could smell the old beer on his breath. The musty odor from his arm pits from not bathing all week. But it was not unpleasant.
 
-“Pastor Jacob,” Joseph remarked, as if only just now remembering , “He murdered a man today. He ran off with ninety-eight hundred dollars and that man’s wife. That was the money the church had raised to fix our house up. To steal the money was the plan. Not the murder.”
+“Pastor Jacob,” Joseph remarked, as if only just now remembering , “He murdered a man today. He ran off with ninety-eight hundred dollars and that man’s wife. That was the money the church had raised to fix up our house. To steal the money was the plan. The murder was not the plan. But it happened.”
 
 His grandfather took in what he said and seemed to process it. Joseph looked at him in expectation of a response but none came. His eyes became distant and not sad, but contemplative.
 
