@@ -658,3 +658,28 @@ A sink hole
 Discovers the piles of wood he left as markers. Elation. Then following them he comes to a large lake that he can see is perfectly still by the moonlight and stars reflected upon its surface. Grandpa is standing in the shallows of the lake. Wearing waders. Daddy bought me these waders. Now I can go fishing with him at Lake Allatoona. I always wanted to do that.
 
 It doesn’t matter. I know the way back. Sit with me. What do you feel? Whiskers. No, what do you feel? Love.
+
+
+What happens now? 2-4+5-2015 (3000 / 2 = 1500)
+
+1) 
+The snow outside, for three days. Joseph walks through grandfather’s room. He finds old toys. Pictures. Lizzie comes in and they talk. Joseph explains to her that once he was a child just like them.
+
+2)
+The funeral takes place in the field behind the house. Grandfather is buried next to the other tombstone. No one speaks. Beth says she loved him very much. They sing a carol, ‘Old Rugged Cross’. Beth, Joseph, Lizzie, Boss from work, Jesse Black, Ignacio, Maurice are pallbearers. Jesse Black and other shake his hand and nod respectfully.
+
+
+What happens now? 2-6+7-2015 (3000 / 2 = 1500)
+
+1) Margaret Foy walks up after the funeral, her figure black against the snow. She brings a casserole. Tells Beth about how the police found Jacob with a bag over his head in a rest area outside of Birmingham. No sign of Kelly Echols. Says the church has decided it would be best if she didn’t come around for the time being considering how she came into the church through Jacob. Beth says okay. Margaret leaves.
+
+2) Beth tucks in Lizzie and Joseph and lays in bed with them. They sleep close together. Lizzie asks what will happen tomorrow. Beth says no one can know tomorrow, or any time in the future. Beth cries and Joseph consoles her.
+
+
+What happens now? 2-8-2015 (2000)
+
+A truck lets off a man at the dirt road and he makes his way up the drive through Oakwood Estates. In the moonlight he visits the grave of his father. After he goes inside and makes coffee and lights the stove and awaits the dawn.
+
+
+
+Probably should make grandpa the one who lights the stove. Make it a thing, like that’s his responsibility. Build up more the time he misses. There might be others who can do it, but the only ones we ever see light the stove are grandfather, and then the father.

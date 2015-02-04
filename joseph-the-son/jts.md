@@ -249,7 +249,7 @@ None of the boys dared to speak. Not amongst themselves and not to pastor Jacob.
 
 Then Pastor Jacob opened his eyes and looked at each one of them. Then he spoke.
 
-“Augustine the Saint wrote that if it were possible for every sound to become silent and for every movement to become still, in all of creation, then the truth of our existence would be revealed to us. Everything would speak at once, in the same voice. We did not create ourselves. We were made by Him who abideth in Eternity.”
+“Augustine, the Saint, wrote that if it were possible for every sound to become silent and for every movement to become still, in all of creation, then the truth of our existence would be revealed to us. Everything would speak at once, in the same voice. We did not create ourselves. We were made by Him who abideth in Eternity.”
 
 “Creation. You. Me. This dirt road at our feet. The grass. The clouds. The sun. Those chickens. That poor dog. There is a kinship here. It is deeper than species. It is deeper than blood. There is an understanding of life that cannot be taught. It must be understood. You Jesse and you Maurice, you Ignacio, and you, what is your name, son?”
 
@@ -1688,7 +1688,7 @@ That he would lose it over and over again. “Inny. If I only understood what it
 
 "There will come a time when we are together again. And all will be forgiven. It is written in the Scriptures."
 
-"Stop with your lies! Please. I can't take them."
+"Please stop with your lies. Please. I can't take them."
 
 “Get out of my house,” he whispered.
 
@@ -2269,8 +2269,6 @@ Lizzie knelt next to her brother and reached over to pet the dog. She was not as
 
 “His hair is rough.”
 
-“Yeah.”
-
 Then with Lizzie leading the way and Joseph following slowly behind taking care not to choke the dog, they made their way back across the grass field to the dirt road. But as they got closer they could see red and blue flashing lights against the treetops in the direction of New Calvary Baptist Church.
 
 
@@ -2368,7 +2366,7 @@ She did not answer. It was like he wasn’t there, a very lonely feeling. He wen
 
 He lowered himself slowly and carefully not to make any noise, and walked back around to the porch. He was deep in thought. A certain kind of panic was overtaking the calm front he had to put on not to worry his sister. Things today did not make sense. He could not make sense of anything that had happened today. Logic did not seem to follow anymore. He sat on the porch next to the dog and pet it slowly. It reacted by shifting beside him and lying down. It curled into a tight ball for warmth. As he sat there he began to wonder about a name for the dog.
 
-“Are you a boy dog or a girl dog?”
+“Are you a boy or a girl?”
 
 He lifted the tail and saw that it was a boy. So he thought on it more and then it came to him, “Shooter.”
 
@@ -2485,7 +2483,7 @@ Joseph stood up and approached the man, but not too close. The man perked up whe
 
 He walked up to his grandfather who stood in the shallow part of the lake. He did not seemed surprised to see him and for some reason Joseph was not surprised either. He was there and Joseph was there and that seemed to be all that mattered for the time being. His grandfather held out his arm for Joseph to help him back onto dry ground, which he did, feeling the massive weight bear down on him but refusing to buckle under it.
 
-“See these waders? My daddy bought me these waders. What do you think about them?”
+“See these waders? My father gave me these waders. What do you think about them?”
 
 His grandfather lifted one leg up so that Joseph could admire them. New rubber waders with a steel toe and insulated soles. They went up to past his knee.
 
@@ -2501,7 +2499,7 @@ Grandpa walked slowly to the log and let himself fall onto the flat top. The wad
 
 “Where did you get those?”
 
-“From my daddy. He gave them to me. Feel.”
+“From my father. He gave them to me. Feel.”
 
 Joseph reached out and felt the sock and sure enough it was bone dry.
 
@@ -2527,7 +2525,7 @@ That was not the reaction Joseph had expected but somehow it made sense to him w
 
 “Yes, sir,” he answered.
 
-Grandfather pat his knee as if he wanted Joseph to come sit on his lap. Joseph did as he was told. At his age he rarely sat on laps anymore but it was fine. It didn’t feel uncomfortable or wrong to do so. His grandfather gave him a wide hug and Joseph hugged him back. Then he placed his cheek on Joseph’s cheek and in that position they sat for a few moments.
+Grandfather pat his knee as if he wanted Joseph to come sit on his lap. Joseph did as he was told. At his age he rarely sat on laps anymore but it was fine. It didn’t feel uncomfortable or strange. His grandfather gave him a wide hug and Joseph hugged him back. Then he placed his cheek on Joseph’s cheek and in that position they sat for a few moments.
 
 “Tell me what you feel,” Grandfather said, “what do you feel with my cheek against yours?”
 
@@ -2539,10 +2537,11 @@ Grandfather pat his knee as if he wanted Joseph to come sit on his lap. Joseph d
 
 By now the night had come and looking up you could not tell when the trees stopped and the sky began, all black. The multitudes of stars shone up high and also on the face of the lake. If there were no gravity it might have been hard to tell which way was up. And it was cold but together they kept each other warm. Like that they sat together and listened to the wind in the pines and the silence of everything else. And then there was a noise, a little plop in the water close to them —
 
+“Joseph,” his mother’s voice spoke to him. 
 
-“Joseph,” his mother’s voice spoke to him. He turned in his bed and faced her, his eyes open wide. She had been crying and held an old handkerchief against her chest.
+He turned in his bed and faced her with wide open eyes. Outside it was early morning and the first snow of Winter was falling. There was a small drift of white on the window cill and little particles of ice on the glass. Joseph could see his mother had been crying and clutched her old handkerchief against her chest.
 
-“Joseph,” she said again, “Your grandfather has passed away.”
+“Your grandfather has passed away.”
 
 
 Twelve
