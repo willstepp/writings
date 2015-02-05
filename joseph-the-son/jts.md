@@ -2546,3 +2546,117 @@ He turned in his bed and faced her with wide open eyes. Outside it was early mor
 
 Twelve
 
+Snow and sleet fell for two days and insulated the ground, trees, and houses in the community. At night the powder froze so that in the morning your feet crunched through the crust when you walked through it. Because this was the south people were unprepared and the entire town shut down. Businesses, government offices, schools. All closed. Cars were even warned by the local law enforcement to stay off the roads because of black ice. The children of Oakwood Estates spent their days playing outdoors in the snow, dressed in heavy coats and scarves and gloves so that they could barely move. Joseph and Lizzie took walks together in the snow but stayed close to the house in case their mother needed them. 
+
+It was a difficult time. Despite the weather arrangements for the funeral had to be made. Grandfather was to be buried on the farm next to his first wife Carol. Beth was offered help from her boss at work who knew people who could help dig the grave and arrange for a casket given their monetary constraints. He was an ordained minister at a church on the other side of town and offered to say a few words and to help oversee things. Beth thanked him for his kindness.
+
+On the day they arrived in off road trucks with chains on the tires. The hearse arrived from the funeral home also with chains on the tires. The men dressed in work clothes and insulated layers unloaded shovels and various other equipment needed to lower the casket and then set to work digging the grave in the backyard. Joseph watched them from inside the kitchen but was too shy to go out there.
+
+Now Joseph and Lizzie were in their room. He had been asked to help Lizzie put on her outfit, a dark blue dress with stockings and black shoes. Joseph already had on a dress shirt and khakis with a brown leather belt and black shoes. He told her to lift her arms and slid the dress over her head and helped guide her arms through the holes. He then helped her slide into the white stockings but they were very tight, so she had to lay on her back and force them on. Then they went into the bathroom and he wet her hair with cold water and brushed out the tangles. When she was presentable he told her to go play in their room.
+
+Beth was in her room. Joseph heard her movement preparing for the funeral. He wandered aimlessly through the house. Out the windows he saw the men who had come to help with the burial. Beth had set out a thermos of coffee on the front porch, but so far they hadn’t touched it.
+
+His mood was hard to explain but it was somewhere between melancholy and boredom. He felt stir crazy, as if the best thing to do would be to take off down the road and keep going. As if the act of moving his feet would make things better. He walked to the wood stove and rubbed his hands over the top eye. The heat it radiated was unbearable if you got closer than a foot to it. Slowly he lowered his hands until he could stand it no more and quickly jerked them back.
+
+He walked to the refrigerator and looked through the dishes that had been brought over in the last couple days. Nothing good. Casseroles. Bland, starting to smell by now. But at least there was enough food in the house for a change.
+
+In the back of the house the door to grandfather’s room had remained shut since the day it happened. That was where it had happened. Beth discovered him on the floor. After she would not let Joseph and Lizzie back there until the ambulance came and took him away. Then she closed the door and it had stayed that way since then. But there was nobody to stop him now. He approached the door with more than a little hesitation. He wasn’t sure what he would find in the room but now that the thought was in his mind he couldn’t resist.
+
+The door knob turned with the same creak that it always did. He was afraid his mother might hear and come out of her room to stop him, but the hair dryer was on so there was no way she could have heard it.
+
+Inside the air was stale. He stood aside for a moment while it aired out and looked around. The bed was not made. The night stand had fallen and the lamp that normally sat on it lay partly underneath the reading chair in the corner. He had only been in this room a couple times before and did not like it. Everything in here seemed like it was from another time. Old, faded pictures of family members he had never known hung on the walls. Yellowed lace doilies were placed over the backs of the chairs and over the top of a shelf in the back corner. It smelled like dust and mold, more so than the rest of the house even which had been cleaned since moving back in. This room was mostly preserved in the state it had been left abandoned all those years.
+
+Joseph walked to the back of the room and looked at all the books and post cards and photographs on the shelf. Among several he found one of his grandfather, or who he thought was his grandfather, on the porch outside with his hands in his pocket and his feet cocked outward like a clown. He had a goofy look on his face. He took the photo out of the frame and looked at the writing on the back. “Ken, 1933” - it said. That would have put him just about his own age, maybe a little older. The thought of that made him sad.
+
+“What are you doing in here?” his sister asked, peering over his shoulder.
+
+He jumped at her words as he had not heard her come in. Then he showed her the picture.
+
+“Take a look.”
+
+“Who is it?”
+
+“Grandpa. From nineteen thirty three.”
+
+“Why does he look like a boy?”
+
+“What do you mean? He was a boy. Back then he was.”
+
+Lizzie seemed amazed by the thought of that. She took the photo from Joseph and studied it close.
+
+“That’s the porch outside.”
+
+“You’re right. See it looked newer back then too.”
+
+“Everything is so clean.”
+
+“That’s how things are. New and then old. Clean and then dirty.”
+
+“Why was grandpa a boy?”
+
+“Because people are like that too. They start young and then grow up until they are old.”
+
+“Why?”
+
+He thought about how to answer. It was not easy for him to articulate.
+
+“Well, that’s just how life works. There is no reason why. It just is that way.”
+
+“Will you be old one day like grandpa?”
+
+“Yes, and you will too.”
+
+Her eyes widened and she looked at him.
+
+“I will be old?”
+
+“Yes.”
+
+“Will you be old too?”
+
+“Yes, everybody will be older.”
+
+“Even mama?”
+
+“You got it.”
+
+“Will we live here together?”
+
+Joseph furrowed his brow and thought how to answer.
+
+“Probably not. When people grow up they have their own families. They move away from each other.”
+
+“But I don’t want to move away from you and mama.”
+
+“You don’t have too for a long time.”
+
+Lizzie put the picture down and looked around her at all the old things. Joseph wondered what she thought about all this stuff, what it looked like in her eyes.
+
+“Grandpa is not coming back anymore,” she said, repeating the phrasing that her mother had used when she was explaining it to her.
+
+“No,” Joseph said.
+
+“Like our daddy.”
+
+The unexpected words hit Joseph and he felt a welling inside, his eyes filled with tears.
+
+“Not like our daddy,” he said, “that’s different. Our daddy will come back.”
+
+“I miss him.”
+
+“Me too.”
+
+“I miss grandpa. I wish he could come back but he is not coming back anymore.”
+
+Lizzie walked over to Joseph and put her head against him.
+
+“I love you brother. I want us to be together and not move away from each other.”
+
+They sat in the chair that used to be their grandfather’s reading chair and looked at the old pictures. Lizzie asked him who the people were and he had to keep telling her he didn’t know. When they left the room Joseph took the old photo of his grandfather with him and put it in their room on the night stand propped against a little jewelry box.
+
+
+
+
+
+
+45000
