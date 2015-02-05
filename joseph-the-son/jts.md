@@ -2544,19 +2544,21 @@ He turned in his bed and faced her with wide open eyes. Outside it was early mor
 “Your grandfather has passed away.”
 
 
-Twelve
+Twelve 
 
-Snow and sleet fell for two days and insulated the ground, trees, and houses in the community. At night the powder froze so that in the morning your feet crunched through the crust when you walked through it. Because this was the south people were unprepared and the entire town shut down. Businesses, government offices, schools. All closed. Cars were even warned by the local law enforcement to stay off the roads because of black ice. The children of Oakwood Estates spent their days playing outdoors in the snow, dressed in heavy coats and scarves and gloves so that they could barely move. Joseph and Lizzie took walks together in the snow but stayed close to the house in case their mother needed them. 
+(everything before the funeral is god-awful - replace entirety with pure *action* scenes of Joseph looking at tools in the shed, walking to his grandfather’s room, watching them dig the grave)
 
-It was a difficult time. Despite the weather arrangements for the funeral had to be made. Grandfather was to be buried on the farm next to his first wife Carol. Beth was offered help from her boss at work who knew people who could help dig the grave and arrange for a casket given their monetary constraints. He was an ordained minister at a church on the other side of town and offered to say a few words and to help oversee things. Beth thanked him for his kindness.
+<TELLING THE STORY BAD> Snow and sleet fell for two days and insulated the ground, trees, and houses in the community. At night the powder froze so that in the morning your feet crunched through the crust when you walked through it. Because this was the south people were unprepared and the entire town shut down. Businesses, government offices, schools. All closed. Cars were even warned by the local law enforcement to stay off the roads because of black ice. The children of Oakwood Estates spent their days playing outdoors in the snow, dressed in heavy coats and scarves and gloves so that they could barely move. Joseph and Lizzie took walks together in the snow but stayed close to the house in case their mother needed them. 
 
-On the day they arrived in off road trucks with chains on the tires. The hearse arrived from the funeral home also with chains on the tires. The men dressed in work clothes and insulated layers unloaded shovels and various other equipment needed to lower the casket and then set to work digging the grave in the backyard. Joseph watched them from inside the kitchen but was too shy to go out there.
+<TELLING THE STORY BAD> It was a difficult time. Despite the weather arrangements for the funeral had to be made. Grandfather was to be buried on the farm next to his first wife Carol. Beth was offered help from her boss at work who knew people who could help dig the grave and arrange for a casket given their monetary constraints. He was an ordained minister at a church on the other side of town and offered to say a few words and to help oversee things. Beth thanked him for his kindness.
+
+<START CHAPTER HERE?> On the day they arrived in off road trucks with chains on the tires. The hearse arrived from the funeral home also with chains on the tires. The men dressed in work clothes and insulated layers unloaded shovels and various other equipment needed to lower the casket and then set to work digging the grave in the backyard. Joseph watched them from inside the kitchen but was too shy to go out there.
 
 Now Joseph and Lizzie were in their room. He had been asked to help Lizzie put on her outfit, a dark blue dress with stockings and black shoes. Joseph already had on a dress shirt and khakis with a brown leather belt and black shoes. He told her to lift her arms and slid the dress over her head and helped guide her arms through the holes. He then helped her slide into the white stockings but they were very tight, so she had to lay on her back and force them on. Then they went into the bathroom and he wet her hair with cold water and brushed out the tangles. When she was presentable he told her to go play in their room.
 
 Beth was in her room. Joseph heard her movement preparing for the funeral. He wandered aimlessly through the house. Out the windows he saw the men who had come to help with the burial. Beth had set out a thermos of coffee on the front porch, but so far they hadn’t touched it.
 
-His mood was hard to explain but it was somewhere between melancholy and boredom. He felt stir crazy, as if the best thing to do would be to take off down the road and keep going. As if the act of moving his feet would make things better. He walked to the wood stove and rubbed his hands over the top eye. The heat it radiated was unbearable if you got closer than a foot to it. Slowly he lowered his hands until he could stand it no more and quickly jerked them back.
+<DO NOT EXPLAIN MOOD, SHOW IT> His mood was hard to explain but it was somewhere between melancholy and boredom. He felt stir crazy, as if the best thing to do would be to take off down the road and keep going. As if the act of moving his feet would make things better. He walked to the wood stove and rubbed his hands over the top eye. The heat it radiated was unbearable if you got closer than a foot to it. Slowly he lowered his hands until he could stand it no more and quickly jerked them back.
 
 He walked to the refrigerator and looked through the dishes that had been brought over in the last couple days. Nothing good. Casseroles. Bland, starting to smell by now. But at least there was enough food in the house for a change.
 
@@ -2652,11 +2654,63 @@ Lizzie walked over to Joseph and put her head against him.
 
 “I love you brother. I want us to be together and not move away from each other.”
 
-They sat in the chair that used to be their grandfather’s reading chair and looked at the old pictures. Lizzie asked him who the people were and he had to keep telling her he didn’t know. When they left the room Joseph took the old photo of his grandfather with him and put it in their room on the night stand propped against a little jewelry box.
+They sat in the chair that used to be their grandfather’s reading chair and looked at the old pictures. Lizzie asked him who the people were and he had to keep telling her he didn’t know. When they left the room Joseph took the old photo of his grandfather with him and put it in their room on the night stand propped against a jewelry box that had been given to grandfather’s sister sixty years ago.
 
 
+Beth called Joseph and Lizzie to join her and they walked outside to join the others who had come to pay their respects. There were cars pulled up right next to the porch so that they had to navigate around them to enter the backyard. The sky was clear this afternoon and the sunlight reflected off the snow on the ground and made everything bright was crisp. The guests all breathed visible air and had red cheeks and kept their hands in pockets whenever possible. 
 
+The guests who had made it had been a couple of coworkers from his time working at the GE plant. There were also a few distant relatives from the next town over. Then there was Beth’s boss and the men he had brought to dig the grave. Also Jesse Black and Ignacio and Maurice were there as pallbearers, on Beth’s general request to the residents of Oakwood Estates for any able-bodied young men to help out. The boys stood apart from the others in wrinkled dress shirts and khakis, underneath their regular winter gear.
 
+When they came to the grave site the guests became silent and everyone bowed their heads. Beth lifted her head and addressed them. There were tears on her cheek.
 
+“Thank you all for coming today,” she began, “I know the roads are bad out there, so thank you all. It means a lot that yall are here.”
 
-45000
+“Kenneth was a man I admired from the first time I met him. Will had taken me on a date and brought me home to meet his folks. His mother, Carol, I had met a few times, but I had not yet met his daddy. I’ll never forget the way Mr. Ken looked at me once, and then told Will in the most serious way, ‘Marry this one quick, son. Before she realizes she’s too good for you.’ We all laughed about that a lot.”
+
+“We haven’t had it easy this past year and a half. Mr. Ken’s health declined and we had to move back here. But I think secretly it was place he wanted to be, the home where he grew up. He had plans to fix it up again, but with his illness and all, that never happened. But up until the end he was the decent, stubborn old man we always loved and I am going to miss him something terrible and I know my Joseph and Lizzie will too.”
+
+At the mention of his name Joseph, who had been holding back his tears, could not longer hold them, and wept. His sister noticed and held onto his arm. Beth pulled them both closer to her.
+
+When it was clear that she had no more to say, her boss took over and gestured to the pallbearers to bring the casket next to the grave. They did so while everyone else looked on in silence. There was a strap and crane mechanism placed over the hole and they set the casket upon it and stood back in their places. Then her boss spoke to the guests.
+
+“Does anyone have anything they’d like to say or share about Mr. Hight?”
+
+Without realizing he was doing it Joseph stepped away from his mother and joined his mother’s boss at the front of the grave. He saw that everybody was watching him, waiting for him to speak. He felt an overwhelming emotion come over him and well up in his eyes again. He wiped them away and began to speak before his voice was quite ready. It was only when he spoke that he realized he had nothing in mind to say.
+
+“My grandfather gave me things. He gave me this knife just a few days ago.”
+
+Joseph reached in his pocket and brought out the old knife and held it up for everyone to see.
+
+“He kept it in that old shed on the toolbox. It was rusty and didn’t even open all the way. He knew I liked it and so he oiled the insides and sharpened the blade and polished the case the best he could and gave it to me as a gift and this is it right here. This knife is really the greatest gift a boy could ever ask for. And he gave it to me. And I loved him.”
+
+The guests in the crowd nodded in understanding when he finished  speaking and rejoined his mother and sister. The boss asked if anyone else had anything to say. Lizzie began to speak where she was at her mother’s side.
+
+“My grandpa told me jokes like the one about the frog who forgot how to jump and sometimes he made funny faces at me to make me laugh. Like this.”
+
+Lizzie made a face by pulling at both sides of her mouth with her fingers and waggled her tongue back and forth. Everyone laughed.
+
+“He was a really funny grandpa and I am going to miss him since he won’t come back anymore.”
+
+Once it was clear that nobody else was going to speak the boss instructed one of the helpers to lower the casket into the ground. He got on one knee and flipped a switch and slowly the bands grew slack and the casket sunk lower and lower. It took a minute before it was at its lowest point. After that he pulled the loose straps up and removed the device.
+
+“Friends, Mr. Hight was not a religious man but it was told to me that he always liked a particular hymn and I think it would be appropriate if we joined together in song at this moment.”
+
+He motioned to one of the other men to hand out photocopied sheets to everyone.
+
+“The hymn is called the Old Rugged Cross and its a good one. A fine hymn, filled with the spirit of reverence at the passing of a great soul from this Earth. Please join me now as we sing together for the memory of Kenneth Hight. God bless his soul and keep him forever.”
+
+Their voices began the song quiet and then as they grew familiar with the melody became louder. As Joseph read the words he thought about his grandfather. The words rugged reminded him of his grandfather’s hands and he thought about them. He thought about his dream and knew he would keep the memory of that dream with him for the rest of his life. That it was his and not to be shared at a time like now, where it would be somehow inappropriate. He could not help it when there was the welling of emotion and he could not fight back the tears. He wondered if his grandfather would have cried at his own funeral.
+
+The song was over and with that Beth spoke up that she had prepared refreshments and heated up food that people had brought, in case anyone was hungry. The group seemed to relax with those words and each came to pay their respects to Beth and the children. No one mentioned the absence of Will, his son.
+
+Joseph stood next to his mother when someone clasped his shoulder and held out his hand. It was Jesse Black. He looked somber and respectful.
+
+“I’m sorry about your loss, Joseph.”
+
+“Thank you.” Joseph answered, and shook his hand.
+
+Ignacio and Maurice also paid their respects to him and then they all departed down the road back to their homes.
+
+Beth and the others regrouped on the porch, where Beth brought out coffee and cookies. She offered for everyone to come inside but they politely refused. Joseph stood back and watched the men fill in the gravesite. The mound of soil was hard and dark clumps, in this winter cold. The men heaved it like it was any other hole to fill, dispassionate. When they were finished they patted down the soil on top and it filled Joseph with an unexplainable fear that his grandfather was down there, underneath all that. It was a feeling of suffocation. But it passed. He watched them break down the equipment and pile them into the back of the van and then rejoin the others on the porch.
+
+Joseph stood alone in the backyard in front of the grave. His shadow cast long on the dark soil. Someday they would get a marker for the site, next to the old one for his first wife. He heard the others on the porch talking to one another. Already their voices had lost that reverence in tone, that quietness that comes from a respect for the departed. Joseph wondered why that was so, and when he could not come up with a satisfactory answer left the grave and rejoined the others on the porch.
