@@ -2681,7 +2681,7 @@ Without realizing he was doing it Joseph stepped away from his mother and joined
 
 Joseph reached in his pocket and brought out the old knife and held it up for everyone to see.
 
-“He kept it in that old shed on the toolbox. It was rusty and didn’t even open all the way. He knew I liked it and so he oiled the insides and sharpened the blade and polished the case the best he could and gave it to me as a gift and this is it right here. This knife is really the greatest gift a boy could ever ask for. And he gave it to me. And I loved him.”
+“He kept it in that old shed on the toolbox. It was rusty and didn’t even open all the way. He knew I liked it and so he oiled the insides and sharpened the blade and polished the case the best he could and gave it to me as a gift and this is it right here. This knife is really the greatest gift a boy could ever ask for.”
 
 The guests in the crowd nodded in understanding when he finished  speaking and rejoined his mother and sister. The boss asked if anyone else had anything to say. Lizzie began to speak where she was at her mother’s side.
 
