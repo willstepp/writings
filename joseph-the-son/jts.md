@@ -2714,3 +2714,120 @@ Ignacio and Maurice also paid their respects to him and then they all departed d
 Beth and the others regrouped on the porch, where Beth brought out coffee and cookies. She offered for everyone to come inside but they politely refused. Joseph stood back and watched the men fill in the gravesite. The mound of soil was hard and dark clumps, in this winter cold. The men heaved it like it was any other hole to fill, dispassionate. When they were finished they patted down the soil on top and it filled Joseph with an unexplainable fear that his grandfather was down there, underneath all that. It was a feeling of suffocation. But it passed. He watched them break down the equipment and pile them into the back of the van and then rejoin the others on the porch.
 
 Joseph stood alone in the backyard in front of the grave. His shadow cast long on the dark soil. Someday they would get a marker for the site, next to the old one for his first wife. He heard the others on the porch talking to one another. Already their voices had lost that reverence in tone, that quietness that comes from a respect for the departed. Joseph wondered why that was so, and when he could not come up with a satisfactory answer left the grave and rejoined the others on the porch.
+
+
+Thirteen
+
+The guests had left and Beth was in the kitchen washing up. Joseph and Lizzie were in the bedroom playing a game together. There came a knock on the door and when Beth opened it she saw Margaret Foy from New Calvary Baptists church was standing there carrying a pie wrapped in tin foil. She nodded slightly and then handed over the pie with a curtsy.
+
+“Ms. Hight,” she began in a rehearsed manner, “I’m sorry nobody from the church could make it to the ceremony today. But I just had to come pay respects. Here is an apple pie I baked this morning. I hope you haven’t already received one.”
+
+“Why no ma’am, I don’t believe so,” Beth said, then, “Come on in  and get out of that cold.”
+
+Margaret came inside and removed the sweater cape she wore. She had walked from the church because she didn’t trust her Oldsmobile to make it through the ruts in the dirt road that were now mostly hidden by the blanket of snow. Despite the cold she wore a dress and stockings and a silk blouse. But her shoes were the kind that nurses wear, designed with thick soles for standing on your feet for hours at a time.
+
+Her eyes surveyed the house. She wore a perpetual smile and sat down on the couch when Beth showed her there. She refused coffee. It was clear that she was here on community business of some kind. This was not a visit from Margaret Foy, but a visit from the community at New Calvary Baptist Church.
+
+“How are you dear? How are your children holding up?”
+
+Beth sat down beside her with a cup of coffee.
+
+“We’re fine. I’m fine. It’s been a hectic couple of days that’s for sure.”
+
+Margaret’s eyes widened and then she nodded in complete understanding.
+
+“Oh yes indeed. Well you look good. You seem to be holding up okay.”
+
+Beth smiled but did not otherwise answer to the compliment. Margaret hesitated as if he wanted to say something. She mouthed her lips together and looked outside the window.
+
+“There is news that might interest you.”
+
+“Oh?”
+
+“Yes, about Jacob Brumbalow.”
+
+“Oh I see,” Beth said, “What happened?”
+
+“As you know, Jacob and Kelly Echols took off together in that old pickup truck of his, after Steven’s murder, with the ninety eight hundred dollars in cash. And that was the last anybody heard.”
+
+“Yes.”
+
+“Well, it wasn’t clear where they headed or how far. The police put out bulletins across seven states. That’s what they do to inform the other police jurisdictions, you know.”
+
+“Right,” Beth said, “did they find them?”
+
+“It’s not easy to say this but yes they did. It turns out the ditched the pickup truck at the state line and somehow got another mode of transportation. The highway patrol found the old pickup in a ditch not thirty miles from here, hidden like. So nobody would find it. But they did anyway. But there was no trace of Jacob or Kelly.”
+
+“Well,” Margaret cleared her through and paused. There was clearly something she was not looking forward to. “Well, that gave them a clue about which direction they were heading. Birmingham from all accounts. That seems to have been the destination.”
+
+“He said he was from there,” Beth remembered, “so that makes sense.”
+
+“There’s more to tell, I’m afraid, and not the most pleasant news.”
+
+Beth raised up in the couch.
+
+“Oh no.”
+
+“They found Jacob in a rest area bathroom stall. Alone. He had a plastic grocery bag over his head they said. They said it was a suicide. No trace of Kelly to be found. No trace of the money. They said all he had on him was the clothes on his back. And a note that he had apparently scribbled down before suffocating himself to death. All it said was, Bless them for they know not what they do. From the scriptures, you know.”
+
+“My God.”
+
+“I hate to tell you. I hated to hear it. Such a strange man he turned out to be, Jacob Brumbalow. How we could have let him into our church I’ll never know. Who could have known he had those things in him.”
+
+Margaret looked to Beth as if expecting her to have an answer, but she didn’t. Beth began to cry and put her hands in her head at the horribleness of it all. Margaret consoled her. She put her arm around her.
+
+“I’m sorry I had to tell you this on a day like this, but all things considered it seemed like you would want to know.”
+
+“Yes,” Beth raised her head, her eyes wet and red, “Thank you. I did want to know and yet I didn’t. If that makes sense.”
+
+“Perfect sense, darlin,” Margaret said, “And please don’t let this sad business get you down too hard. We have to live through tragedies like this, but it passes. Time heals all wounds, they say. And I believe that.”
+
+“That’s true,” Beth said.
+
+They sat together without speaking and reflected on the things that Margaret had said. Yet there still seemed to be something on Margaret’s mind. She seemed impatient about something and kept shifting on the couch. At last she spoke again.
+
+“The church,” she began, “the people of New Calvary Baptist. We got together to discuss the events that occurred over the last week. It was a good thing. A uniting spirit was with us that night. We decided that we would not let these events defeat the purpose of New Calvary, which is to be a community of followers of Christ.”
+
+“That’s good,” Beth said.
+
+“It is good. I agree. There was a moment when it seemed like it could go in either direction. But then Steve’s father, Bill, wanted us to gather and so we did. He made a brave speech and, God bless him, he forgave Jacob and Kelly. I saw it with my own two eyes. He didn’t have to do that. But he did. And it was a moment of Christ living through us that I won’t ever forget. Let me tell you. To forgive the people who murdered his son not two days previous.”
+
+Margaret continued, “The church also decided that it would be for the best if you, and Joseph, and Lizzie, would not come to the church for awhile. You know, until things cool down. It was felt that you were so close to the tragedy, with the fund raiser and all. And your personal relationship with Jacob. You know.”
+
+Beth raised her head again to see the expression on Margaret’s face. It was compassionate, but stern.
+
+“Ms. Foy,” Beth said, “I completely understand the position of the church. I don’t want my presence to hinder anyone from moving past this terrible tragedy. We won’t come to the church. You have my word.”
+
+“I hope there are no hard feeling about that.”
+
+“Not at all,” Beth reassured her.
+
+“I confess I was loathe to tell you but I can see now you are a reasonable young woman. And please understand, in a years time, two years time, I’m sure we would welcome you back into our community.”
+
+“I do understand. Thank you again for coming to visit us today.”
+
+Anticipating that all had been said they both rose from the couch together. Margaret leaned over and gave her a hug.
+
+“Before I go I’d love to see those angels again, are they around?”
+
+“They are.”
+
+Beth called for Joseph and Lizzie to come see Margaret. There were scrambling sounds from the other room and a minute later they appeared, still dressed in their funeral clothes, except that Joseph’s shirt was untucked and Lizzie was not wearing shoes.
+
+Margaret leaned over to Lizzie.
+
+“Why hello there, do you remember me?”
+
+“You are the church lady,” Lizzie exclaimed, “I missed you.”
+
+And then Lizzie ran up and hugged her around the knees. Everyone laughed. Joseph said nothing.
+
+“Well, dears,” Margaret said, “I wanted to come by today to pay my respects. Your grandfather is in Heaven now, with Jesus. Please don’t be sad because one day we will all be reunited.”
+
+“Take care of your mother, Joseph,” she directed her speech at him directly, “You are the man of the house now. Do not take that responsibility lightly.”
+
+“Yes ma’am.”
+
+Margaret seemed satisfied by her speech to the children and put the sweater cape over her shoulders. She gave Beth another hug and told the children goodbye and then left. Joseph and Lizzie stood there unsure if they were free to go. Finally their mother said they could go play and they did so.
+
+Beth resumed her chores in the kitchen. She dried the dishes and put them in the cabinets. Then she swept the kitchen. Evening was coming on so she put another fuel log into the stove and stirred the embers with the poker. When she had finished she sat down at the kitchen table and looked at the fresh apple pie that Margaret Foy had baked for them. She lifted the foil and smelled it. It had a rich and buttery smell. The crust clearly home made. She then took the pie over to the counter and threw it into the garbage can.
