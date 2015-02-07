@@ -2718,9 +2718,9 @@ Joseph stood alone in the backyard in front of the grave. His shadow cast long o
 
 Thirteen
 
-The guests had left and Beth was in the kitchen washing up. Joseph and Lizzie were in the bedroom playing a game together. There came a knock on the door and when Beth opened it she saw Margaret Foy from New Calvary Baptists church was standing there carrying a pie wrapped in tin foil. She nodded slightly and then handed over the pie with a curtsy.
+The guests had left and Beth was in the kitchen washing up. Joseph and Lizzie were in the bedroom playing a game together. There came a knock on the door and when Beth opened it she saw Margaret Foy from New Calvary Baptist Church was standing there carrying a pie wrapped in tin foil. She nodded slightly and then handed over the pie with a curtsy.
 
-“Ms. Hight,” she began in a rehearsed manner, “I’m sorry nobody from the church could make it to the ceremony today. But I just had to come pay respects. Here is an apple pie I baked this morning. I hope you haven’t already received one.”
+“Ms. Hight,” she began in a rehearsed manner, “I’m sorry nobody from New Calvary could make it to the ceremony today. But I just had to come pay my respects. Here is an apple pie I baked this morning. I hope you haven’t already received one.”
 
 “Why no ma’am, I don’t believe so,” Beth said, then, “Come on in  and get out of that cold.”
 
@@ -2802,7 +2802,7 @@ Beth raised her head again to see the expression on Margaret’s face. It was co
 
 “Not at all,” Beth reassured her.
 
-“I confess I was loathe to tell you but I can see now you are a reasonable young woman. And please understand, in a years time, two years time, I’m sure we would welcome you back into our community.”
+“I confess I was loathe to tell you but I can see now you are a reasonable young woman. And please understand, in a years time, two years time, I’m sure we will welcome you back into our community.”
 
 “I do understand. Thank you again for coming to visit us today.”
 
@@ -2818,11 +2818,13 @@ Margaret leaned over to Lizzie.
 
 “Why hello there, do you remember me?”
 
-“You are the church lady,” Lizzie exclaimed, “I missed you.”
+“You are the church lady,” Lizzie exclaimed, “I missed you!”
 
 And then Lizzie ran up and hugged her around the knees. Everyone laughed. Joseph said nothing.
 
-“Well, dears,” Margaret said, “I wanted to come by today to pay my respects. Your grandfather is in Heaven now, with Jesus. Please don’t be sad because one day we will all be reunited.”
+“Well, dears,” Margaret said, “I wanted to come by today to pay my respects. Your grandfather is in Heaven now, with Jesus and the angels. Please don’t be sad because one day we will all be reunited. You believe that don’t you?”
+
+The children both nodded yes.
 
 “Take care of your mother, Joseph,” she directed her speech at him directly, “You are the man of the house now. Do not take that responsibility lightly.”
 
@@ -2830,4 +2832,80 @@ And then Lizzie ran up and hugged her around the knees. Everyone laughed. Joseph
 
 Margaret seemed satisfied by her speech to the children and put the sweater cape over her shoulders. She gave Beth another hug and told the children goodbye and then left. Joseph and Lizzie stood there unsure if they were free to go. Finally their mother said they could go play and they did so.
 
-Beth resumed her chores in the kitchen. She dried the dishes and put them in the cabinets. Then she swept the kitchen. Evening was coming on so she put another fuel log into the stove and stirred the embers with the poker. When she had finished she sat down at the kitchen table and looked at the fresh apple pie that Margaret Foy had baked for them. She lifted the foil and smelled it. It had a rich and buttery smell. The crust clearly home made. She then took the pie over to the counter and threw it into the garbage can.
+Beth resumed her chores in the kitchen. She dried the dishes and put them in the cabinets. Then she swept the kitchen. Evening was coming on so she put another fuel log into the stove and stirred the embers with the poker. When she had finished she sat down at the kitchen table and looked at the fresh apple pie that Margaret Foy had baked for them. She lifted the foil and smelled it. It had a rich and buttery smell. The crust clearly home made. She then took the pie over to the counter and dumped the whole pie into the garbage can.
+
+																~
+
+The rest of the evening Beth spent cleaning up the house. It had not been cleaned since before the night Kenneth had passed. There were toys strewn all over the living room so she started there. Then she moved from room to room, making beds, wiping down the window until everything was clean again, at least as clean as that old house would get. She lost her temper a few times and a few times caught herself crying for no apparent reason.
+
+Joseph and Lizzie stayed in their room playing together. They heard their mother outside cleaning the house and did not want to risk her being in a bad mood.
+
+When it was time for bed their mother came in to tuck them in. Joseph and Lizzie were wearing their pajamas in bed with the blankets pulled snugly around them. That made her very happy. She sat down on the lower corner of the bed and faced them. She had been crying off and on throughout the day and her face was still puffy. But she was not crying now.
+
+“Are you thirsty?” Beth asked them both, “can I get you anything before bed? A snack?”
+
+“No, ma’am.”
+
+“No.”
+
+“Well, okay,” she said, as if she wanted to say more to them but didn’t know what to say, “Goodnight then.”
+
+“Goodnight, mama.”
+
+“Sweet dreams.”
+
+Beth smiled at Lizzie, “Sweet dreams to you too baby. You all are my little doves. I’d do anything for you two. You know that?”
+
+She looked at them both warmly and they looked at her. Then she turned to go, but did not immediately get up. She did not want to leave them. But then she did but turned back when she reached the door to their room and blew them both kisses. Then she blew out the candle that was lit on the small table next to the door and walked out. 
+
+She tied up her hair in a bun and slid on grandfather’s old hunting cap. Then she put on a sweater and sweatpants and her long winter coat and carried four empty plastic jugs to the well pump outdoors. 
+
+The night was clear since the front that had brought the snowfall had finally passed them over. Moonlight bounced off the white ground and illuminated the whole yard in front of her. The partly burned maple in the front yard with its bare branches twisting against the sky, the newly-broken fence to the West where the Hight farm ended and Truesdell’s land began, the fresh grave site of their grandfather next to his first wife’s grave, the large dead water oak and its massive roots sticking out of the ground, could all be clearly seen in this light.
+
+Beth went to the pump and filled all the jugs with water. When the water splashed on her hand it froze immediately and stuck to the metal handle when she gripped it. So she had to be careful not to hold the handle for too long or else she would tear her skin. When the four jugs were filled she hauled them back inside and set them next to the wood stove to keep the water at room temperature. Then she made the trip again to retrieve the last two. 
+
+When that was done she picked up the empty wood basket for the fuel wood and went out again, this time headed for the shed where all the wood was piled up under the plastic sheet. She took five large logs from the top of the pile and placed them in the basket. Then once inside she set the basket down and removed the largest one. That one she took to the stove and put inside. It would last most of the night, at which point she’d be woken up from the freezing air and kindle a new fire so it was warm when the kids awoke.
+
+Then she went to the toilet room and clipped the clothespin that set on top of the shelf around her nose. She slid on the rubber gloves and opened the lid and pulled out the five gallon bucket. It had been a few days since being cleaned. She wretched at the sight of it and held it away from her as she went straight outside to the waste barrel around the house. She removed the lid and poured it in and then resealed the barrel. Then she walked to the water pump and filled it with water and brushed around the inside with her hand. Then walked clear to where the woods began and tossed the dirty water.
+
+When the nightly chores were done she took a seat at the kitchen table and smoked a cigarette and stared into the wall. She sat that way for three cigarettes in a row, mindlessly flicking the ashes into the tray that was always on the table. Midway through the third cigarette she rose and went to the cabinets over the sink. From the very top she pulled a pint of Canadian Mist. She poured a glass half whisky and half of a can of Coke. Then set the Coke can back into the cooler.
+
+Back at the kitchen table she sat with the glass and stared at it but did not drink from it. While stared she took drags from the cigarette until it was gone and then she put that out in the tray. Then she inhaled deeply and exhaled. She was very tired. She rose from the table and poured the whisky and Coke down the sink and washed out the glass. It was not a night for a drink she decided. And just at that moment she had a feeling like she had to see her children.
+
+So she walked to the room where they were. She looked in and saw that Lizzie was asleep but Joseph was not. He lay there looking out of the window, his eyes wet in the silver light. Beth went to him and kneeled beside him and they looked at one another without speaking. Then she told him to move over and crawled under the sheets next to him. She placed her arms around him and lay there with him. Their body heat mingled and made the space under the blanket warm.
+
+“Mama,” he said.
+
+“Yes, Joseph.”
+
+“Will we run out of wood for the stove?”
+
+“If we don’t chop down more.”
+
+“We don’t have enough to make it through the winter?”
+
+“No.”
+
+“I will chop wood for us. I will learn how to do it.”
+
+“Thank you baby,” She said and kissed his forehead.
+
+“We’re going to be alright.”
+
+Beth regarded him with a kind of pride. She hugged him tightly and nestled closer together. There they lay not speaking for some time. Beth thought he might have fallen asleep when he spoke again.
+
+“I’m not sad anymore.”
+
+“You’re not?”
+
+“I’m not sad for grandpa. He lived for a long time and had a good life and got to die with his family around. I don’t think that’s something to be sad about. It doesn’t feel wrong that it happened like that. Why are people sad when someone dies?”
+
+“I think we are sad because we don’t get to see them anymore. They are gone someplace else.”
+
+“So we are not sad for them, we’re sad for us.”
+
+“I guess you’re right about that. It’s a very natural thing the way he went. We should all be so lucky. You’re very smart to think about it that way.”
+
+Joseph remembered his dream and thought about telling his mother about it but instead he kept it to himself. Somehow he felt it was not appropriate to tell his mother about it. That she wouldn’t understand. The thought of keeping something from her made him feel empty inside and sick and the tears welled. She noticed and consoled him.
+
+They lay together until they were both asleep. The house was still throughout the night and warm until the last embers in the stove burned down and then snuffed out completely. It was only then that the cold winter air seeped back in through the cracks in the windows and under the gap at the bottom of the doors and in through the tarp covering the hole in the roof. But for the rest of the night Beth and her children stayed warm together under the blanket with their body heat insulating them under the quilt.

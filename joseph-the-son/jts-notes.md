@@ -680,6 +680,8 @@ What happens now? 2-8-2015 (2000)
 
 A truck lets off a man at the dirt road and he makes his way up the drive through Oakwood Estates. In the moonlight he visits the grave of his father. After he goes inside and makes coffee and lights the stove and awaits the dawn.
 
+HE SEES A DOG AT THE FENCE
+
 
 
 Probably should make grandpa the one who lights the stove. Make it a thing, like that’s his responsibility. Build up more the time he misses. There might be others who can do it, but the only ones we ever see light the stove are grandfather, and then the father.
