@@ -2768,7 +2768,7 @@ Beth raised up in the couch.
 
 “Oh no.”
 
-“They found Jacob in a rest area bathroom stall. Alone. He had a plastic grocery bag over his head they said. They said it was a suicide. No trace of Kelly to be found. No trace of the money. They said all he had on him was the clothes on his back. And a note that he had apparently scribbled down before suffocating himself to death. All it said was, Bless them for they know not what they do. From the scriptures, you know.”
+“They found Jacob in a rest area bathroom stall. Alone. He had a plastic grocery bag over his head. Suicide they said. No trace of Kelly to be found. No trace of the money. They said all he had on him was the clothes on his back. And a note that he had apparently scribbled down before suffocating himself to death. All it said was, Bless them for they know not what they do. From the scriptures.”
 
 “My God.”
 
@@ -2909,3 +2909,57 @@ Beth regarded him with a kind of pride. She hugged him tightly and nestled close
 Joseph remembered his dream and thought about telling his mother about it but instead he kept it to himself. Somehow he felt it was not appropriate to tell his mother about it. That she wouldn’t understand. The thought of keeping something from her made him feel empty inside and sick and the tears welled. She noticed and consoled him.
 
 They lay together until they were both asleep. The house was still throughout the night and warm until the last embers in the stove burned down and then snuffed out completely. It was only then that the cold winter air seeped back in through the cracks in the windows and under the gap at the bottom of the doors and in through the tarp covering the hole in the roof. But for the rest of the night Beth and her children stayed warm together under the blanket with their body heat insulating them under the quilt.
+
+
+Fourteen
+
+Headlights from the pickup moved in lateral beams across the pine rows as it crept around the bend off County Road 31. It moved at such a pace because the city trucks did not salt these roads and there was a steady layer of snow and ice between tire and asphalt. The pickup stopped next to the dirt road before New Calvary Baptist Church. A man got out of the passenger side and lifted his duffle bag from the back. He set it on the ground next to him and poked his head back into the cab where the heater was on full blast and the radio was cranked to a local country station.
+
+“Thanks for the ride, man,” the said, “Here, take this for your trouble.”
+
+The driver took the twenty dollars the man extended to him and stuffed it in his shirt pocket behind a pack of cigarettes. He took a swig from the bottle that set between his legs and nodded.
+
+“Don’t freeze out there, buddy.”
+
+The man closed the door and the driver pulled away and used the New Calvary parking area to turn around. His wheels spun on an ice patch for several seconds but then found some traction and drove back in the direction they came from.
+
+He took up the duffle bag and slung it over his shoulder then started the walk up the road, feeling lucky the moon was full and that he could see almost as clear as if it had been daylight. The snow on the ground hid the edge of the road and also the ruts in it. He wandered too far at times and found himself tripping over clumps of grass. But it was not important as long as he kept his eyes on the lights from the trailers at Oakwood Estates and his destination, the old Hight farm house at the top of the hill.
+
+It had been years since he was here last. His never understood why his father kept it. Back in the those days they had the house in town. The land was valuable for farmers but what need did they have of that now. But he always kept it. And now it seemed it had become useful again. When they were kids they used to take drives up here and play in the house and pretend it was haunted. They used to feed the horses with apples they bought from that old man at the roadside fruit stand. Ellijay Apples, the sign said, “12 for $5.” The memories of this place came back to him. Thoughts he had not thought about for decades came back. Feelings he had at that time came back. The thoughts and feelings of a boy. He kept walking.
+
+These mobile homes weren’t here before. This was still Hight land back then. The exhaust from those trailer’s heating systems rose into the bright night sky and intermingled above Oakwood Estates in a hazy cloud. There were lights on in some of them. Rebel flag in one window. Harley flag in another. These were his people alright. Beer drinkin Confederate Sons and all that shit. Then there was the memory of that x-rated souvenir his dad had kept all those years. Stupid thing. Old rebel soldier with a beard, the sign on the base said “The South Shall Rise Again” and then you looked down at his pants and saw his hard on. Fucking stupid. But that was daddy.
+
+This long road they used to run races to the mail boxes. See who could beat who. His cousin always won. That fast motherfucker. Lean and muscular legs on him boy. He always won. In jail the last I heard. Meth addict. “This road is long,” he observed out loud. It was the cold he knew that made it seem long.
+
+When he came up the hill and started to make out the shape of the old house and the shed it all came back to him. That old maple was still there. He climbed it so many times before. He used to imagine one day climbing all the way up, imagining what it would be like to dangle from the highest branch and imagining it bending under his weight so that he could reach the ground. He went around to the back of the house where he knew his mother was buried. He saw the fresh mound of earth where they had buried his father and felt like he couldn’t breathe.
+
+There was something final about that mound of earth. His father underneath it. In a box. His father. And he remembered then all the times they had fought or had exchanged words or when he had disrespected him in some way. Even in small ways. He remembered those moments with a pain. He knew his daddy knew he loved him. But those moments still hurt. Those things he had done that he couldn’t take back and that still bothered him from time to time in those early morning hours. Early like now.
+
+“Sorry I wasn’t here for you, daddy.”
+
+The message from Beth had come in time but was out on a job and didn’t get it until later on. Suzanne rang him up in the motel room and told him Beth left a message at the front desk. It had been so long since he heard her name spoke aloud it hit him hard. He fell on the bed and told her he’d be there. Then he thought about Joseph and Lizzie and his heart nearly burst. He walked up to the office and got the letter and all it said was, “Your daddy died. The funeral is Saturday. Please come. I’m sorry for your loss.” 
+
+And there it was. Just a mound of earth next to his mother. He stood there in silence for several minutes and took the scene in. Even though it was cold and his arms were freezing through his thin jacket he did not move. But then there was a howling in the field that broke his silent reverence. Some dog. It howled again a long wail that seemed miles away but was probably nearby.
+
+The Hight tradition had been put spare keys above the door cill out of sight but within reach. This place was no different and he found the key to the house with his hand, affixed to an old nail above the door. He let himself in taking extra care not to disturb anybody.
+
+There was a dim fire burning in the old wood stove in the kitchen but the place was still cold. He stood there and took it all in, the rustic kitchen with those old utensils and cast-iron pots and pans. The living room area with that ratty old couch. Some toys. Probably Lizzie’s. He walked over to them and picked them up. And then there were tears in his eyes. Her hands had played with this today. How much had she grown in a year and a half. That’s practically a third of her life you haven’t seen her. He felt the familiar pain. That hollow pain inside. He had felt it for a long time, and for a long time knew that he deserved to feel it, and therefore accepted it. But not anymore. 
+
+Because it was cold he went to the stove and saw there were not many logs in the basket. He took up the basket and as quiet as he could walked outside and headed to the shed. There he remembered was where his father kept the firewood stock. When he found it he saw there was not much wood remaining. What logs there were had not yet been split and sat apart from the pile underneath the plastic sheet. He found the old ax leaned against the shed and placed a log on the hollowed out spot next to the pile and split it hard with one strike. It came back to him. Like muscle memory. The timing of the swing to get the maximum force just before it strikes the wood. His blood pumped through his veins and gave him energy. He split another. Then another. Each time he got better at it. Before long he had produced another dozen fuel logs for the stove. He placed a few of these newly-split ones into the basket and headed back into the house.
+
+He set the basket beside the stove and opened the door to the stove. The heat escaped and hit him in the face. There was still an ember burning down. He decided to wait a bit to put another one in. He looked at his watch and saw that it was nearly six in the morning. He had lost track of time completely since leaving. It was a two day Greyhound ride from Bismarck, all those connections. Crazy people. He had kept to himself but you can’t avoid them all. And he never could sleep on a bus like that. Beth could. Hell, Beth could sleep outside a damn grocery store like they did back in high school. Drunk off their asses.
+
+He was going to do her right this time by God. Such a precious angel. His Elizabeth. She deserved more than he could give and he had always felt she resented that in him, his inability to provide for the family. She had that way of making him feel two foot tall. But she didn’t deserve the way he treated her. He wasn’t going to let himself slip back into the old excuses this time. He had decided. He had done a lot of thinking on the bus ride. While those strange towns passed by in the darkness he thought about their family. He had a family and he had taken it for granted. He wondered if forgiveness was possible for the things he had done. Certainly he did not feel he deserved it. Inside he felt low, like a low person. How they used to describe men who frequented bars in the daytime. He felt like one of them. Had for a long time.
+
+It was almost seven the light in the sky had become so slowly brighter that he barely noticed it. It was cold. The fire had burned down completely while he was sitting there. He walked to the stove and put one of the fuel logs among the ashes. Then he tore some tinder and lit it with his pocket lighter. It caught the first time and caught slowly. When he was sure it was going to burn he closed the door.
+
+He was tired but wanted to stay awake. He wanted to see them when they first awoke. So then he went to the kitchen and found the percolator and some grounds in a can in the cabinet.
+
+It had been a long time since he made coffee in a percolator. Goddamn ancient technology. He fussed with the can and poured a strong batch into the canister and plugged it in. He always had like the sound of the coffee percolating, the bubbling. It reminded him of those breakfasts he shared with his parents.
+
+He walked to the kitchen table and sat there. He tried not to anticipate anything. Whatever came of it he would accept. This was not for him to decide. This was as he saw it a reckoning and his role was the supplicant.
+
+There was a light that came into the kitchen intense and orange bright. It shone directly into his eyes. He looked away but then decided not to fight it. The warmth on his face unusual considering the night he had just been through. He had a feeling inside common to those who stay awake through the night until the next day that time was not something rigid. It was hard to describe the feeling. He listened the coffee in the percolator and felt the warmth from the wood stove and the sun from the new day enter into the house.
+
+
+
