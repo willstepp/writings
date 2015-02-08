@@ -1,3 +1,17 @@
+REVISION NOTES:
+
+- Add internal monologues by Joseph throughout to blend in with the internal 
+  monologue by Will at the very end of the story. Nobody else.
+
+- Alter all scenes to be from Joseph's perspective.
+
+- Add detail to the environment. Add business for the characters moving through
+  the spaces to make it come to life.
+
+- Make the living situation more dire. Perhaps they have electricty and a deep freeze.
+  Still have to heat the house by woodstove. Water from well. Toilet room.
+
+
 A story about how evil masquerades as good (Minister Jacob)
 A story about how the mystery reveals itself (Death of Grandfather)
 A story about a love of the natural world (Old Farm in Georgia)
