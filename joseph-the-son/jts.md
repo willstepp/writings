@@ -806,19 +806,19 @@ Joseph went over and threw the rest of the weeds into the pile. They immediately
 
 He went and stood beside the Pastor Jacob who still had not spoken to him. They both watched the fire burn in silence. Its flames whipped against the cold wind. Heat radiated outward and warmed their faces and bathed them in an amber glow.
 
-“I feel like a failure,” Jacob said at last. It was completely unlike what Joseph had been expecting, so much so that he didn’t know what to say.
+“I feel like a failure,” Jacob confessed.
 
-“It was me who failed,” Joseph said.
+Together in silence they watched the fire burn. Its flames so wild they had to step back and Joseph could feel simultaneously the heat on his face and the cold of the evening on his back.
 
-In silence they continued to watch the fire burn. The fire grew so large they had to stand back and Joseph felt he heat on his face and simultaneously the cold of the evening on his back.
+“It was me who failed,” Joseph admitted, finally.
 
-It was that time of day when the shapes of things become indistinct and fade into shadows or even disappear. Joseph stared into the fire one moment and the next he was on the road to his house. He wasn’t sure Jacob even saw him go. Before leaving the yard he looked back and saw the pastor’s silhouette against the leaping flames, silent and rigid.
+It was the time of evening when the particular shapes of the surroundings grow indistinct and fade into shadows or even disappear altogether. Joseph stared into the fire one moment and the next he was on the road to his house. He wasn’t sure Jacob even saw him go. Before leaving the yard he looked back and saw the pastor’s silhouette against the leaping flames, silent and rigid.
 
 Joseph zipped up and thrust his hands in his coat pockets but the cold quickly penetrated his jacket’s thin material. He was shivering. There was a wind that blew through the limbs in the trees above. Against his face it was like a sting. He hurried up the road halfway between a walk and a jog. When he came to the entryway to Oakwood Estates he looked inside all the trailers to the warmth within. Now up the hill he could see the farm house and the lights from the living room window a beacon to him in the darkness.
 
 As he came to the front porch his gait slowed and instead of going straight in he went over to the living room window and peered in. There was his mother and Lizzie reading Curious George out loud on the couch. Grandpa was there too, on the recliner listening. None of them saw him, so he continued to watch. Mother turned the page and Lizzie grew excited and shouted something and raised her arms like a monkey and grandpa erupted into a spontaneous fit of laughter.
 
-In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He didn’t fully grasp what he was feeling at that moment but he had understood something for the first time in his life. Tears welled in his eyes. He understood that a moment in time was not something he could ever possess, and yet he felt a strong desire to possess this moment — to keep it with him always. He took his hands out of his coat pocket and pressed one of his palms against the cold window. That caught the attention of her sister and she climbed from her mother’s lap and excitedly ran to the window and placed her small hand over his, laughing. Only a pane of glass was between them.
+In that moment Joseph felt far away from them. It was like five hundred years had passed since this morning; it was like he had walked around the Earth for seven years. He was unable to fully grasp what he was feeling at that moment but he understood that it was something he could never put into words. The tears welled up in his eyes. He took his hands out of his coat pockets and placed one palm against the cold window. That movement caught the attention of Joseph's sister and she climbed down from her mother’s lap and excitedly ran to the window and pressed her small hand over his, laughing. Only a pane of glass was between them.
 
 
 Four
