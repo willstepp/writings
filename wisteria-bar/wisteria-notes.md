@@ -3,9 +3,8 @@ THE WISTERIA BAR AT THE CORNER OF 23RD ST AND HIGHLAND AVE
 Story: Told in three parts, each one a first-person account from a different character.
 
 Part One: Jefferson Canute
-A mysterious, disturbed young man narrates in a strange voice.
 
-To those illuminated by the womb-like glow of its windowfront on those blue, December evenings it felt like only the Wisteria Bar at the corner of 23rd Street and Highland Avenue was truly inside. Everything else was outside. At least it felt that way to me. I hope you understand what I mean by that. I think you probably do. The Wisteria Bar was on the basement floor of its namesake hotel, now condemned, and home to junkies and dealers and those in between.
+To those illuminated by the womb-glow of its windowfront on those blue, December evenings it felt like only the Wisteria Bar at the corner of 23rd Street and Highland Avenue was truly inside. Every place else was outside. At least it felt that way to me. You know what I mean by that? You probably do. The bar was on the basement floor of its namesake hotel, now condemned, now home to junkies and dealers and those in between.
 
 "Tobacco. The smell of it. The smoke rising from the open shop window, down on the block. A thick, rich fragrance. Had it all before: cigars, cigarettes, pipes, dip, snuff. Even those miniature cigars. Those literal cigar-ettes. The smell of tobacco smoke always promised something more than it gave. That’s all I know about it, and all I need to know."
 
