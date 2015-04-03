@@ -5,6 +5,8 @@ Story: Told in three parts, each one a first-person account from a different cha
 Part One: Jefferson Canute
 A mysterious, disturbed young man narrates in a strange voice.
 
+To those illuminated by the womb-like glow of its windowfront on those blue, December evenings it felt like only the Wisteria Bar at the corner of 23rd Street and Highland Avenue was truly inside. Everything else was outside. At least it felt that way to me. I hope you understand what I mean by that. I think you probably do. The Wisteria Bar was on the basement floor of its namesake hotel, now condemned, and home to junkies and dealers and those in between.
+
 "Tobacco. The smell of it. The smoke rising from the open shop window, down on the block. A thick, rich fragrance. Had it all before: cigars, cigarettes, pipes, dip, snuff. Even those miniature cigars. Those literal cigar-ettes. The smell of tobacco smoke always promised something more than it gave. That’s all I know about it, and all I need to know."
 
 "How can I explain how the Wisteria felt to those who walked past it's womb-like glow on those cold, November evenings? It was like only it was truly inside. Everything else was outside."
