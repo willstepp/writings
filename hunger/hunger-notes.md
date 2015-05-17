@@ -1,3 +1,8 @@
+Documentary on Native American Tribes before European Colonization: 
+https://www.youtube.com/watch?v=7FItlStGMY4
+
+Tone of Dignity but not Dry, think Job
+
 Outline:
 
 1) The boy taken to the bedside of his dying father who whispers to him alone
@@ -36,8 +41,8 @@ Outline:
 10) A blizzard comes. The boy walks blind but he knows the way without his eyes and delivers 
     the water to the charred remains of the tree and collapses against it, cold, tired.
 11) In the morning the villagers awake and find that the tree has blossomed and is filled with
-    bright fruit, the flesh yellow and sweet and nourishing. It leaves green and verdant in 
-    contrast to the dead winter landscape.
+    bright fruit, the flesh yellow and sweet and nourishing. Its leaves verdant against 
+    the mute and colorless landscape.
 
    He was filled with restlessness and there was a hole inside him that made it 
    unbearable to even look at the others. What was he doing out here? They inside 
@@ -50,19 +55,28 @@ Outline:
    mama. I miss my friends. I miss how life was before. Those happy times will never come again, 
    that is for sure. Will they come again?
 
-   I am worse. I am low. My heart feels as if it has no bottom. I don't care about 
-   the tree. I don't care about my father's request. I only do this now because it's 
-   all that I can do. He gestured to the glow from the wigwams. Look at what they have. 
-   Girlfriends to cuddle next to the fire with. I want those things too, mama. You see? 
-   I am not more pure than them. It makes me pathetic. They are right to mock me and 
-   to scorn me like they do.
-
    They will, she assured him, though she did not believe it herself. Do not lose hope, 
    my son. Do not despair.
 
-   She wept for him and comforted him but the thing that had been asked of him by 
-   his father had not been asked of her and therefore she could not join him in the wilds. 
-   She prayed for him and told him she would help as she could and returned to the 
-   village house. He understood this and was not resentful.
+   I am worse than all of them. I am low. My heart feels as if it has no bottom. I 
+   don't care about the tree. I don't care about this burden. I only do it because 
+   it's all that I am fit to do anymore. He gestured to the glow from the wigwams. 
+   Look at what they have. Warm fire, food to eat. Joking and laughing together. 
+   Girlfriends to cuddle next to the fire with. Do you want to know a secret? I 
+   crave those things too. You see? I am sick with envy. I am not more holy than 
+   they. I am not pure. How pathetic I am. They are right to mock me and to scorn 
+   me like they do.
 
-   "We shall not starve."
+   "Over here, the boy with the bucket!"
+
+   She wept for him and comforted him but the thing that had been asked of him had 
+   not been asked of her and therefore Mika knew she would not join him in the wilds. 
+   She prayed to the Great Spirit for strength on his behalf and told him she would 
+   help as best she could and then returned to the village. Mika watched his mother 
+   go in silence. He loved her very much.
+
+   "My boy is gone forever, my beautiful Mika."
+
+   Then the remaining members of the village joined together in a song, and a joyful 
+   song it was, because of what Mika had done for them after all, because they would 
+   not starve.
