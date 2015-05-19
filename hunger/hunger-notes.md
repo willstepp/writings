@@ -29,6 +29,7 @@ Spring
    to his mother to give her the bad news. She cries. 
 *) There is a gathering around the tree the following morning. All the able men 
    of the village will report for hunting duties. The women must gather and fish.
+   'Above all we must be practical.'
 
 Summer
 
