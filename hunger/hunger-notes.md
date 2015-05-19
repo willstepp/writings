@@ -2,10 +2,11 @@ Documentary on Native American Tribes before European Colonization:
 https://www.youtube.com/watch?v=7FItlStGMY4
 
 Tone of Dignity but not Dry, think Job
+Simple, non-dramatic, like the Bible. Do not telegraph your ideas.
 
 Outline
 
-   Spring
+Spring
 
 *) The boy taken to the bedside of his dying father who whispers to him alone
    to water the old, dead tree each day. From the source, a lake on the mountain 
@@ -21,16 +22,16 @@ Outline
    instead. He tells his mother he watered it and she says, 'Aren't you happy to 
    have honored your father's memory?' But that night his view of the stars so 
    bright in the heavens were obscured by his tears.
-*) In the night there comes a powerful storm and lightning strikes the storage building 
-   and burns it to the ground. There is a growing panic because the entire village 
-   relies on those stores to make it through the winter. There is not enough. 
-   The prices of the existing corn rose and rose until only the wealthiest could 
-   afford them. The boy returns to his mother to give her the bad news. She cries. 
-
-   Summer
-
+*) There comes a blight on the crops and destroys even some of the stores. 
+   There is a growing panic because the entire village relies on those stores to 
+   make it through the winter. There is not enough. The prices of the existing 
+   corn rose and rose until only the wealthiest could afford them. The boy returns 
+   to his mother to give her the bad news. She cries. 
 *) There is a gathering around the tree the following morning. All the able men 
    of the village will report for hunting duties. The women must gather and fish.
+
+Summer
+
 *) His mother tells him to forget his father's request. The boy reports and they 
    go into the valley to hunt buffalo and elk with arrows and by other means. He 
    makes a kill alongside his best friend Niko (he was always better than him with 
@@ -44,7 +45,7 @@ Outline
    where he was. Fufilling a request from my father he said. They nod but he could 
    see they did not understand what he said.
 
-   Autumn
+Autumn
 
 *) Weeks go by. The boy walks everyday. And everyday the people of the village 
    resent him more and more. They tell him he and his mother cannot partake of the 
@@ -62,7 +63,7 @@ Outline
    the old Sakima, who is not of the new order. They cut down the tree in order to 
    carve a statue in his honor. Mika wept when he saw what they had done to the tree.
 
-   Winter
+Winter
 
 *) His mother visits him in the wilds and he cries to her. 
 *) The number of people now living in the small space contaminates the water supply 
@@ -116,3 +117,633 @@ Outline
    not starve.
 
    "We shall not starve."
+
+
+   (Maize vs Corn) evolved by Native Americans
+   Potatoes : Chunyu (dried mashed potatoes that could keep for 10 years)
+   Mississippi River Valley
+   Find out how they prepared food, what dishes they would eat
+   Bison, Deer, Turkey, Rabbit, Geese
+   Deerskin Hides
+   Few domesticated animals for Native Americans
+
+   Maybe it takes days. Scavenges for nuts and berries.
+
+   The Bear in the Cave
+   "You will fail. Your tribe will starve. Give up now. Come with me deeper into 
+   the cave. Come now, little one."
+
+   Chunky, game played by Mississippi cultures, including Cherokee
+
+   Smokey Mountains
+   Beadwork
+
+   Hunt with Bow and Spear, blow gun
+   Bone and Leather, Stone
+
+
+Female Names
+
+Adsila
+Amadahy
+Awenasa
+Awinita
+Ayita
+Galilahi
+Leotie
+Usdi
+Galilani 
+Hialeah 
+Immookalee
+Salali 
+Tayanita
+Sequoia
+Ahyoka
+Ama
+Galilani
+Ghigau
+Hiawassee
+Immokalee
+Inola
+Knasgowa
+Nanye-hi
+Ninovan
+Salali
+Tsistunagiska
+Tsula
+Tayanita
+Yona
+
+Blossom
+Forest water
+My home
+Fawn
+First to dance
+Attractive
+Flower of the prairie
+Baby
+Friend
+Beautiful meadow
+Waterfall 
+Squirrel
+Beaver
+Redwood
+She brought happiness
+Water
+Friendly
+Beloved woman
+Meadow
+Tumbling water
+Black fox
+Heron 
+Goes about
+Our home
+Squirrel
+Wild rose 
+Fox
+Young beaver
+Bear
+
+Male Names
+
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+Boy Name
+
+Adahy
+Chea Sequah
+Degataga
+Galegenoh
+Mohe
+Oukonunaka
+Sequoyah
+Waya
+Atsadi
+Atohi
+Diwali
+Dustu
+Gawonii
+Kanuna
+Salal 
+Tsiyi
+Unaduti
+Austenaco
+Chuquilatague
+Kanagagota
+Attakullakulla
+Koatohee
+Oconostota
+Rayetayah
+Yonaguska
+
+In the oak woods
+Red bird
+Standing together
+Stag
+Elk
+White owl
+Sparrow
+Wolf
+Fish
+Woods
+Bowl
+Spring frog
+He is speaking
+Bullfrog
+Squirrel
+Canoe
+Woolly head
+Chief
+Doublehead
+Standing Turkey 
+Chief
+Chief Corn Tassel 
+Warrior of Chota
+Hanging Maw
+Chief
+
+
+
+Family Names
+
+Acorn
+Beanstick
+Bearpaw
+Birdchopper
+Bullfrog
+Buzzard
+Buzzardflopper
+Bean
+Bearclaw
+Bushyhead
+Blackbird
+Coon
+Corntassel
+Cornsilk
+Cloud
+Cricket
+Candy
+Carselowey
+Duckwell
+Deer-in-the-water
+Dirteater
+Dirtpot
+Doublehead
+Deerskin
+Fox
+Fivekiller
+Featherhead
+Fence
+Falling
+Fallingbuzzard
+Gettingdown
+Grapevine
+Grass
+Glory
+Grease
+Groundhog
+Hogshooter
+Hatchet
+Hare
+Hummingbird
+Hitcher
+Horsefly
+Hawk
+Heart
+Kingfisher
+Locust
+Muskrat
+Mouse
+Mixedwater
+Noisywater
+Nakedhead
+Oldfield
+Pumpkin
+Polecat
+Pegg
+Paun
+Pidgeon
+Rabbit
+Redbird
+Risingfawn
+Rattlinggourd
+Raven
+Roastingear
+Squirrel
+Swimmer
+Starr
+Sevenstar
+Soap
+Sixkiller
+Scarcewater
+Soldier
+Spoon
+Springfrog
+Sittingdown
+Spade
+Sweetwater
+Trottingwolf
+Terrapin
+Treekiller
+Trickeater
+Tadpole
+Tincup
+Tail
+Tehee
+Tiger
+Whirlwind
+Walkingstick
+Youngbird
+Yellowbird
+
+
+What life was like
+
+When most people think of an ancient Indian village, they envision scantily clad Native Americans wearing elaborate feather headdresses and living in teepees.  While this image makes for stunning cinematography, it is not an accurate depiction of an ancient Cherokee village.  In fact, the Cherokee people rarely used feathers in their dance or clothing and their way of life was far more elaborate than the typical Hollywood portrayal.  
+
+    Before European contact, the ancient Cherokee’s lived in villages containing as many as 1,000 villagers.  The village was surrounded by a stockade wall, used for protection from intruders and wild animals.  To enter the village, one must pass through a long, narrow opening, large enough for only one person.  The long, passage made it possible for the watchman on duty to capture would-be intruders.
+    
+    Ancient Cherokee villages were built around water for irrigation.  The irrigation system wound through the village so all would have easy access to water, since water was necessary for every aspect of Cherokee daily life.  As expert fishermen, the Cherokee villagers devised some of the world’s first fish traps.  
+    
+    The fish trap was made from river cane, a resource used for many Cherokee tools.  The funnel-like device in front of the fish trap was placed facing the current and fish would swim into the funnel.  Once inside the fish could not escape.  The fish trap was left in the water and whenever the Cherokee needed food they would remove the top, taking only what they needed, as the Cherokee didn’t believe in wasting food.  Wasted food was considered bad luck and would bring sickness to the village.  But fish wasn’t their primary source of food.  The Cherokee people used a variety of food resources including plants, wild animals and meat.  Their most important crop was corn.  They grew other crops such as beans, pumpkin, squash, tomatoes, and sunflowers.
+    
+    The Cherokee of the period were not nomadic, meaning they did not travel to follow the game they hunted.  They never lived in tepees, but in settled villages.  Since they lived in the high hills and mountains, the winters were cold, and they built houses of log and clay.
+    
+    The regular houses varied in size.  Some had flat roofs and some had gabled roofs.  Some of the regular houses had two or three rooms that had been added when one of the sons or daughters got married.  The doors were narrow and low to conserve heat.  Cooking was mostly done out-of-doors, but a fireplace was used sometimes in the regular house.
+    
+    The houses were built by placing poles in the ground vertically, then weaving cane or branches, basket style, between the poles until the walls were complete.  Mud was plastered on both sides to form a fairly solid house for that time.  Some were “whitewashed” on the inside with a material made from crushed sea shells, which they traded with other Indians.  Beds were made of branches or woven cane, placed alongside the walls, and covered with skins.
+    
+    The long house was what the Cherokee called a house owned by a man with a lot of daughters.  The Cherokee were matrilineal, which means they would follow the mother’s lineage.  When the Cherokee boys married a girl, which took place around 14 years of age, he would move in with the girl’s parents and the father would have to build another room.
+    
+    There were two chiefs that ruled a village.  The Peace Chief, which had the most power, and the War Chief.  The Peace Chief would rule at times of peace, and a white flag with seven white egret feathers would be placed somewhere near the entrance of the village.  The War Chief would rule when the village was at war and a red or black flag, with seven red or black feathers, would be put on the outside of the village wall.  White meant peace, red meant blood, and black meant death.
+    
+    Several little round buildings were also placed throughout the Village, known as “o-si’s” or “hot houses.”  Since the winter nights were cold, the Cherokees needed warm places to sleep and an “o-si” was always constructed near the entrance of their regular houses.  A fire would be built in the “o-si” during the day, and when ready to go to sleep, the villagers removed the coals, blocked the entrances with skins and slept warm.
+    
+    Each village contained a square area known as the ceremonial ground.  The size of the square ground depended on the size of the village.  Some covered up to one acre of ground.  The corners of the CherokeeGirl 1899 250square pointed to the four directions of the earth.  In the center was a high pole with branches fastened to it for shade during the ceremonies in the daytime.  A bench stood at the foot of the pole for the drum beaters to sit on during the dances.  The square was level and always swept clean.  It was located in front of the council house.  Arbors were built around the square ground for those who did not take part in the ceremonies.  These were constructed in the manner with coverings for protections from the sun.  Each clan had its own arbor.
+    
+    The council house was the center of social and political activity in every Cherokee village.  Council houses were frequently built on top of mounds and were seven-sided with the entrance facing the east.  They varied in size depending upon the population of the village.  As in the case of the Square Ground, the seating within the council house was divided into sections of each of the seven clans, the Chief and his counselor had special seating.
+    
+    The clan was the most important social unit in the Cherokee society.  Clan affiliation was inherited through the mother’s line.  Marriage within a clan was strictly forbidden.  The names of the clans are Bird, Wolf, Deer, Long Hair, Wild potato, Blue, and Paint.  
+    
+    The number seven has always been sacred to the Cherokee people.  There were seven clans and seven counselors to the chiefs.  There were seven ceremonies which were important to the Cherokee.  Six of these were celebrated each year between March and November.  The seventh ceremony was celebrated once every seven years.  This was a Thanksgiving ceremony conducted by the Chief.  It was at this time that the chief was reconsecrated in his office as high priest.
+    
+    The Cherokee never danced for pleasure.  Their dances had a purpose.  They were done in dedication to the Supreme Being, in thanksgiving, and before going on hunts or to war.  The dances were always done in a counter-clock-wise motion with the lead dancer, either a man or a woman, taking charge of the dance.  They only used drums and rattles for ceremony and never for any other type of pastime or recreation.  
+    
+    The woman often took part in the ceremonial dances.  When they danced, only the women behind the leader wore rattles.  She wore one on each leg, directly below the knee.  This rattle was made from a large piece of animal skin with up to seven terrapin rattles attached to it.
+    
+    The only dance the Cherokee people did in which they used feathers was the Eagle dance.  This dance was only done during times of peace because the eagle was sacred and the symbol of peace.  Only men of the greatest social standing were permitted to wear eagle feathers or carry them at a dance.  The dancers carried an eagle wand which held up to thirteen tail feathers.  The shaft was made from a sacred wood called sourwood.  The dance was done in three parts.  The first was for peace, the second for victory and the third to thank the eagle for the use of his feathers.  It was believed that if the eagle dancer let any part of the eagle wand touch the ground he would soon die.
+    
+    The ancient Cherokee villagers allowed the land to provide for their needs.  They used a variety of natural resources to make weapons, cookware and even transportation.  A primary mode of transportation for the villagers was the canoe.  Canoes were made by the Cherokee from a straight log made of hard wood such as walnut, basswood, or mahogany.  They would pick a few men from the village to go out and pick a likely tree.  Then they would pack wet clay, about two feet, upon the tree.  They would then light a fire at the trunk of the tree and just burn it out from under the tree.  The clay would keep it from burning the whole tree down.  Once the tree was on the ground, they would trim it of all limbs.  Then, they would build little fires on top of the log and let them burn down into the log.  Next they would chop out the charred part of the wood with their stone axes until it was hollowed out enough for some of their warriors to sit in.  They would then shape the ends of the canoes the same Cherokee Heritage Center 250way so it could go just as fast in either direction.  
+    
+    Hunting required additional tools such as the blowgun and the bow and arrow.  The blowgun was used for hunting and was made from river cane or Ih-Ya.  The cane was gathered and stored to dry.  When it was dry, it was crooked so it had to be straightened by rolling it into a fire and then rolling it over the knee.  After the cane was straight, the joints had to be burnt out by dropping a hot coal down the inside of the shaft of the gun.  Then the inside of the gun was polished with a smaller stick or piece of river cane.
+    
+    The darts for the blow gun were made from the down of a Scottish thistle (tsi-tsi).  Placing the down of the thistle between the thumb and the forefinger, it would be rolled on the shaft of the dart with deer sinew.  Blowguns had an effective range of 50-60 feet.
+    
+    Bows were made from bowdarc or horse apple, hedge apple, Osage orange, or yellow locust.  The size of the bow depended on the size of the archer, but most bows were about three feet long.  To make a bow, they would take a small section from the trunk of a tree, slightly longer than the intended length of the bow.  Through a lengthy process of cutting, trimming, and shaving, the bow was carved to the desired shape.  Then it was notched at both ends.  First, a temporary string, made of deer sinew, was placed on the bow.  The bow was strung in the opposite direction of the intended use until the bow was dry, then once it was dry the permanent string was put on.  After completing, the bow was always left unstrung while not in use to keep the strength in the arms of the bow.
+    
+    The arrows were made from either bowdarc or river cane.  The shafts of the arrows were smoothed out along with all the joints and notches.  Then the arrowheads were attached to the end of the shaft with deer sinew, and two feathers were placed on each side of the shaft of the arrow by a glue substance which was made by boiling deer hooves.  The arrow heads are made from a variety of flint.  To make the arrowheads, the person would take two pieces of flint rock, one bigger than the other, and they would chip away until a piece flat enough would break off.  They would shape that piece into an arrowhead using deer antlers to give the arrowhead its shape.  
+    
+    While the men were responsible for the hunting, the women too, used many natural resources for cooking and daily life.  Pots were made from native clay, baskets woven from honeysuckle and grapevine, and beads made for necklaces, bracelets and trading.  
+    
+    The ancient Cherokee people were quite industrious, incorporating the land and its resources into their daily life.  Steeped in history and tradition, the Cherokee people of old created successfully operating villages completely devoid of European influence.
+
+
+
+CHUNKEY
+
+    Our ancient Cherokee ancestors were commonly known for their hard work and industriousness.  They were known for their ability to live off of the land and create sustainable villages.  Arts and crafts from these ancient days have survived today and been passed from generation to generation.  But our ancestors had a playful side as well and knew that all work and no play was not good for the soul.
+The Cherokee had a wide variety of games.  Some were used for settling disagreements, some for sharpening hunting skills and some were merely played for sport.  The game of chunkey is one of the less commonly known about games.
+
+
+Chunkey is played with a disk made of fine-grained stone approximately six inches in diameter.  Hours are spent shaping and polishing the chunkey ball.  Two players carry poles approximately eight feet long.  As the stone is rolled across a smooth surface, two competitors run and throw their poles where they think the ball will stop.  Points are awarded to the person whose pole lands closest to where the ball stops.  
+
+The two-person game was played only by males.  Often times, games lasted for hours or days and it wasn’t uncommon for onlookers to make wagers on the winner.
+
+The Chunkey stone was owned by the town or by a clan, and they were carefully preserved.  Archeologists have unearthed chunkey stones; many of them beautifully crafted works of art.
+
+Eventually the game died out, but occasionally you can catch an exhibition game played by those individuals dedicated to keeping Cherokee history and culture alive.  If you get the chance to watch this game, or even to participate, take that opportunity.  You just might feel a closer connection to those who played before us.
+
+
+
+
+
+
+FLINT NAPPING
+
+
+What began as a primitive survival technique has now become a work of art. Flint knapping began centuries ago as a means of making tools for hunting and for everyday life. Today, many artists do flint knapping as a way to stay connected with their culture.
+
+
+Flint knapping is the art of creating primitive arrowheads, axe heads, knives, spears and other tools, by carefully shaping rocks into cutting instruments by the use of antler tools flintknapper sepia glowand other natural materials. Arrowheads are the most commonly created item today.
+
+
+Arrowheads are made from a variety of flint rock. Various colors of flint are used depending on the geographical area where the natural material is found. The process begins by first finding two larger pieces of flint and chipping away at one with the other until a flat portion breaks away. The unwanted rock of the flat portion is then removed, using various methods, until the piece begins to resemble the arrowhead shape. From there, deer antlers are used to gently flake away the edges of the piece, creating the sharp point.
+
+
+Flint knapping requires the ability to control the way rocks break when they are struck. It requires patience and precision. Many flint knappers will tell you they spend a lot of time selecting the perfect rock with which to work, taking great care with what nature has provided.
+
+
+
+
+
+Cherokee Medicinal Herbs
+The Cherokee have been gifted by the Creator with an understanding of the gathering, use and preservation of medicinal herbs. The Cherokee believe that these plants were put on this earth to provide not only healing methods, but preventative measures, as well.
+Many plants have disappeared throughout the years or have become extremely scarce. Because of this, we recommend extreme care in gathering wild herbs and other plants. The old ones taught that when you gather, only pick or dig every third plant you find. This will ensure that enough specimens remain to continue propagation. 
+Many traditionalists carry on the practice of asking the plant's permission to be gathered, and leave a small gift of thanks. This can be a small bead or other such item. It is also recommended by Cherokee traditionalists that should you find a wild crop of useful herbs, do not share its location unless it is to a person very close to you. This will ensure that large numbers of people do not clean out an entire wild crop in a short time.
+Additional information regarding the gathering, usage and application of medicinal herbs can be found by talking to the elders of a Cherokee family. Many of these people will still recall some of the home remedies that their families used, as well as provide information on herbs which they themselves use.
+We share a few of the herbs common to the old Cherokee country, and their uses. Remember, these plants are very valuable as medicines because of the great chemical powers they contain. At the same time, these chemicals can be potentially dangerous if used in the wrong way. Cherokee herbalists have great experience, and have gone through extensive training and observation. Novice herbal practitioners are advised to seek out and develop a close relationship with Cherokee herbalists or their elders to learn how to use these medicines properly. 
+One of the herbs known the longest time for soothing stomach problems is the blackberry. Using a strong tea from the roots is helpful is reducing and soothing swollen tissues and joints. An infusion from the leaves is also used as a tonic for stimulating the entire system. A decoction from the roots, sweetened with sugar or honey, makes a syrup used for an expectorant. It is also healing for sore throats and gums. The leaves can also be chewed fresh to soothe bleeding gums. The Cherokee historically use the tea for curing diarrhea.
+Cherokee healers use a mild tea made from small pieces of black gum bark and twigs to relieve chest pains.
+Hummingbird Blossom (Buck Brush) is used by Cherokee healers by making a weak decoction of the roots for a diuretic that stimulates kidney function.
+Cat Tail (Cattail) is not a healing agent, but is used for preventative medicine. It is an easily digestable food helpful for recovering from illness, as it is bland. Most all parts of the plant, except for the mature leaves and the seed head, are edible. Due to wide-spread growing areas, it is a reliable food source all across America. The root has a very high starch content, and can be gathered at any time. Preparation is very similar to potatoes, and can be mashed, boiled, or even mixed with other foods. The male plant provides a pollen that is a wonderful source for protein. You can add it as a supplement to other kinds of flour when making breads.
+A decoction of the small roots of Pull Out a Sticker (Greenbriar) is useful as a blood purifier. It is also a mild diuretic. Some healers make a salve from the leaves and bark, mixed with hog lard, and apply to minor sores, scalds and burns. Some Cherokee healers also use the root tea for arthritis.
+Mint teas are a stimulant for the stomach, as it aids in digestion. The crushed and bruised leaves can be used as a cold compress, made into a salve, or added to the bath water which relieves itching skin. Cherokee healers also use an infusion of the leaves and stems to lower high blood pressure.
+Tobacco-like Plant (Mullein) is one of the oldest herbs, and some healers recommend inhaling the smoke from smoldering mullein roots and leaves to soothe asthma attacks and chest congestion. The roots can be made into a warm decoction for soaking swollen feet or reducing swelling in joints. It also reduces swelling from inflammation and soothes painful, irritated tissue. It is particularly useful to the mucous membranes. A tea can be made from the flowers for a mild sedative.
+All parts of Qua lo ga (common Sumac) have a medicinal use. Mild decoctions from the bark can be used as a gargle for sore throats, and may be taken for a remedy for diarrhea. A tea from the leaves and berries also reduces fevers. Fresh bruised leaves and ripe berries are made into a poultice which soothes poison ivy. A drink from the ripened or dried berries makes a pleasant beverage which is a good source of vitamin C.
+The Cherokee commonly recommend a mild tea of Big Stretch, or Nuyigala dinadanesgi utana (Wild Ginger) made from the rootstock which is a mild stimulant for the digestive system. It can also help colic, intestinal gas, or the common upset stomach. A strong, hot infusion of the roots can act as an expectorant in eliminating mucus from the lungs. Fresh wild ginger may be substituted for the regular store-bought ginger roots as a spice for cooking.
+The ripe fruit of What Rabbits Eat, or Jisdu unigisdi (Wild Rose) is a rich source of Vitamin C, and is a reliable preventative and cure for the common cold. The tea from the hips is a mild diuretic, and stimulates the bladder and kidneys. When the infusion of the petals is used, it is an ancient remedy for sore throats. Cherokee healers recommend a decoction of the roots for diarrhea.
+Squirrel Tail, or Saloli gatoga (Yarrow) has many uses. The best known use is to stop excess bleeding. Freshly crushed leaves can be applied to open wounds or cuts, and the properties of the herb will cause the blood to clot. A fresh juice of yarrow, diluted with spring or distilled water, can halt internal bleeding such as stomach and intestinal disorders. The leaves, prepared as a tea, is believed to stimulate intestinal functions and aid in digestion. It also helps the flow of the kidneys, as well as the gallbladder. A decoction made of the leaves and stems acts as an astringent, and is a wonderful wash for all kinds of skin problems such as acne, chapped hands, and other irritations.
+Looks Like Coffee, or Kawi Iyusdi (Yellow Dock) is not only a medicinal herb, but also a food. It is much like spinach, but actually contains more vitamins and minerals. Because of the long taproot, it gathers nutrients from deep underground. The leaves are a source of iron, and also have laxative properties. Juices from the stems, prepared in a decoction, can be made into an ointment with beeswax and olive oil, and used for itching, minor sores, diaper rash, and other irritations. Cherokee herbalists prescribe a warm wash made from the decoction of crushed roots for a disinfectant. Juice from the root, not prepared in any certain way, is said to be a cure for ringworm.
+As always, remember that these plants are very valuable as medicines because of the great chemical powers they contain. At the same time, these chemicals can be potentially dangerous if used in the wrong way. Cherokee herbalists have great experience, and have gone through extensive training and observation. Novice herbal practitioners are advised to seek out and develop a close relationship with Cherokee herbalists or their elders to learn how to use these medicines properly. 
+Information provided by the Cherokee Nation Cultural Resource Center. For information regarding culture and language, please contact: culture@cherokee.org.
+
+DISCLAIMER; LIMITATIONS ON LIABILITY; AFFIRMATION OF SOVEREIGN IMMUNITY
+
+Although it is your inherent right to choose for yourself whatever type and source of health care you deem appropriate, it must be emphasized that practicing such medical freedom not only involves the responsibility of acquiring valid health information and skills, but also the wisdom to recognize when health care is needed and to choose that health care with discretion.
+The Cherokee Nation makes no representations and/or warranties, express or implied, with respect to this information, or any part thereof, including any warranties of title, non-infringement of copyright or patent rights of others, merchantability, or fitness or suitability for purpose. The Cherokee Nation cannot and does not warrant that the information on this server is absolutely current, although every effort is made to ensure that it is kept as current as possible. The Cherokee Nation cannot and does not warrant the accuracy of the information contained on this site beyond the source documents, although we do attempt to work from authoritative sources.
+The information contained on this site is general in nature and is intended for use as an educational aid. It does not cover all possible uses, actions, precautions, side effects, or interactions of the products shown, nor is the information intended as medical advice or diagnosis for individual health problems or for making an evaluation as to the risks and benefits of using a particular product. You should carefully read all product packaging. The Cherokee Nation assumes no responsibility for the results of self-diagnosis and/or self-medication. This site is not intended to prescribe or diagnose in any way nor is the site meant to be a substitute for professional help. 
+The intent is to offer historical uses of herbs and health foods.
+YOU SHOULD ALWAYS SPEAK WITH A HEALTH CARE PRACTITIONER BEFORE TAKING ANY DIETARY, NUTRITIONAL, HERBAL OR HOMEOPATHIC SUPPLEMENT. 
+The statements made about products, herbs, and/or remedies have not been evaluated by the Food and Drug Administration (U.S.). They are not intended to diagnose, treat, cure, mitigate, or prevent any condition or disease. Please consult with your own physician or health care practitioner regarding the statements made on this website. If you have, or think you have, a condition which requires medical attention, you should seek qualified medical care immediately.
+Neither the Cherokee Nation nor any of its agents, employees or other representatives will be liable for damages arising out of or in connection with the use of this site. This is a comprehensive limitation of liability that applies to all damages of any kind, including (without limitation) compensatory, direct, indirect or consequential damages, loss of data, income or profit, loss of damage to property and claims of third parties. Furthermore, nothing contained on this site shall be construed as a waiver of the Cherokee Nation's sovereign immunity.
+By using this site, you signify your assent to these terms of use. If you do not agree to these terms of use, please do not use the site.
+
+
+
+
+
+Shaker Shells
+Shell Shaker
+Women hold an important role in the Stomp Dances of the Southeastern Indian cultures: That of the Shell Shaker. The Shell Shaker is the female counterpart of the Dance Singer.
+
+The first man leads the men and the first woman leads the other women. She wears leg rattles made from box tortoise shells on her lower legs. The woman enters the dance behind the lead singer and produces rythmic rattling sounds made by shuffling her feet. Legend has it that because of the natural designs on the tortoise shell that look like women dancing - Turtle says, "Let Women Dance."
+
+Today, some shell shakers have begun using shackles made from milk cans. This practice originated at Medicine Springs as a form of training for young girls before they moved on to using the turtle shells. Today it is considered respectful for those who wear milk can shackles, unless they are leading in the ceremonial dance, to allow shell shakers with turtle shells to always be in front of them.
+
+
+
+
+Stomps and Ceremonies
+A firekeeper and his assistant begin at dawn building a fire; one intended to last for the duration of the stomp dance. He begins with small slivers of wood from the innermost part of an oak tree (often referred to as the "sponge") using flint and rock to trigger a spark. This fire is sacred to traditional Cherokees. It is customarily built at the bottom of a pit below ground level and is tended continuously so it will burn throughout the stomp dance.
+
+As the sun rises, the men sit around the fire talking about political issues and the women prepare a meal for the day consisting of both traditional and modern food. Later in the afternoon, sermons are given in the Cherokee language. These sermons admonish everyone to have love for all mankind. After the sermon, stickball, an ancient Cherokee game resembling present-day La Crosse, is played.
+
+The sermons continue as the sun begins to set. The ceremonial pipe is passed to each clan member who takes seven puffs from it before passing it on. The chief, medicine men and elders gather together for a meeting, eventually calling for the first dance of the night. This dance is by invitation only and features the tribal elders, medicine men and the heads of clans. A second call for the dance is made.
+
+The dance participants include a leader, assistants and one or more "shell-shakers" wearing leg rattles traditionally made out of turtle shells filled with pebbles. Today some use cans filled with pebbles to provide rhythmic accompaniment while they dance around the fire. The ceremonial observance involves sacrifices made by the ceremonial leaders, prayers, taking medicine, going to water or river for ritual cleansing and smoking of the pipe.
+
+Participants visit, feast and dance far into the night. The stomp dance is considered to be a holy event for worshiping Unetlanv (God, The Creator). There is to be no littering, no consumption of liquor and no rowdy behavior of any kind. The rules are written in the Cherokee language and posted on a board hung up for the public to see.
+
+There are seven arbors encircling the sacred fire. Each arbor represents one of these seven clans: Wolf (a-ni-wa-ya); Wild Potato (a-ni-go-da-ge-wi) also known as the Bear Clan; Paint (a-ni-wo-di); Bird Clan (a-ni-tsi-s-qua); Long Hair (a-ni-gi-lo-hi) also known as Twister or Wind; and Blind Savannah also known as Blue (a-ni-sa-ho-ni).
+
+There are nearly 300,000 Cherokee tribal citizens today. Although many choose to worship through other religious methods and denominations, including Indian Baptist and Methodist among others, many traditional Cherokee continue to worship at stomp dances and are members of one of the several stomp dance grounds located within the Cherokee Nation.
+
+Note: The Keetoowah's bible is not written on paper. The words are woven into seven wampum belts which are shown only in rare occasions. The belts are very old, and are made of pearls and shell beads, woven with seaweed fibers from the Gulf of Mexico. The history behind the belt is said to be that many years ago the tribe was preparing to go on to war with another tribe. The medicine men foresaw which warriors would survive the war and cut the original wampum belt into seven pieces, giving one to each warrior. After the war the belts became scattered, some being hidden and others simply disappearing. Eventually they were all recovered with the last one being found by Redbird Smith more than 80 years ago.
+
+
+
+
+How the Elders Cooked
+The Indian Pioneer Papers are the product of a project developed in 1936. The Oklahoma Historical Society teamed with the history department at the University of Oklahoma to get a Works Progress Administration (WPA) writers' project grant for an interview program. The program was headquartered in Muskogee and was led by Grant Foreman. The writers conducted more than 11,000 interviews and after editing and typing the work, the results were over 45,000 pages long. The following excerpt is from the interview of Margaret Elkins of Westville.
+
+"The family of the Woodalls that came from Georgia were all fullblood Cherokees. They knew cooking the old Cherokee way. They ate the simplest of food. The food that could be found on most of the tables would be wild meats, corn and bean bread, pumpkins and dried fruit. At that time fruit was plentiful in the woods, but fruit jars were not known so most of the fruit was dried.
+
+The way they dried the fruit was by the sun method. They built a scaffold of poles out in the yard. The fruit was peeled and cut in small pieces and placed on the scaffold until dry. This was sacked and stored up in the lofts of their homes.
+
+The sweet potato was another common food in those days. Many sweet potatoes were raised by the Cherokees. They also knew how to take care of them better than they do now.
+
+Plenty of wild meat was stored away in the winter. Hogs ran wild over the hills in this part of the Cherokee Nation and hundreds of them were killed every year. There was no law to prohibit anyone from killing as many as his family could make use of. But they had to have a claim in the woods in order to do this. These hogs stayed fat all the year. There was planty of meat. Soldier Sixkiller was the greatest hog raiser in this part of the country. He owned several hundred."
+
+
+
+
+Kanuchi is considered to be a real delicacy. Hickory nuts are gathered in the fall and allowed to dry for a few weeks before the kanuchi making begins. While it is a straightforward process, it is labor-intensive. Begin by cracking, then shelling the hickory nuts by shaking the pieces through a loosely woven basket, or picking them out by hand.
+
+Traditionally, a section of log or a tree stump was hollowed out into a bowl-like shape. The shelled hickory nuts are placed in the hollowed log bowl and pounded with a long heavy stick until they are of a consistency that can be formed into a ball that will hold its shape. Kanuchi balls are usually about three inches in diameter and must be stored in a cold place. Today kanuchi is usually preserved by freezing.
+
+To prepare kanuchi for the table, place a kanuchi ball in a saucepan with about a quart of water and bring it to a boil to dissolve the ball. Allow the kanuchi to simmer about ten minutes and then poor it through a fine sieve. (A colander lined with cheese cloth works very well for this.) All the remaining shells are left in the sieve. If you have the time and patience you can pick the larger bits of nut meat from the shells in the sieve and add them to the liquid kanuchi. The kanuchi should be about as thick as light cream. Most traditional cooks will add about two cups of homemade hominy to a quart of kanuchi. Some cooks prefer hominy grits, which are prepared according to package directions and added to the kanuchi. Others prefer cooked rice. Such things as thickness, consistency and how much hominy or hominy grits to add are, of course, a matter of personal preference. Add salt or sugar to taste. Serve kanuchi hot much like a bowl of soup.
+
+The John Howard Payne papers, a document from 1835 where elders were interviewed for their knowledge, states that a thick drink was made from hickory nuts which had been pounded, but it was made with cold water and allowed to thicken without the addition of hominy or rice.
+
+
+
+
+Food Basket
+Cooking
+
+
+Cooking is an important part of life for the Cherokee woman. Not only is it necessary for nourishment, for life; it is part of the social fabric of the Cherokee people. In our traditional story of the first man, Kanati, and the first woman, Selu. Selu is also called the "Corn Woman." She lived with her husband, Kanati, and two sons. Each day she would leave her house and return later with a basket full of corn. The boys wondered where the corn came from, so one day they followed her. They saw her go into a storehouse, and they got where they could peek in and watch her. There they saw her place her basket on the ground before her and begin to shake herself. The corn started falling from her body into the basket.
+
+They then thought that their mother must surely be a witch; and that witches must die! Selu could read the boys' thoughts. She told them that after they put her to death, they would need to follow her instructions so that they would continue to have corn for nourishment. "After you kill me, you must clear some ground in front of our house. Then drag my body in a circle seven times. Then, you must stay up all night and watch."
+
+The boys did this, but they got the instructions wrong. They cleared seven areas of ground, and drug her body twice in a circle. Corn began to grow, but only where her blood dropped to the ground. Because the boys were careless in listening to the instructions, corn must now be planted and taken care of in order for it to grow. And to this day, it only grows in certain spots and not the entire earth.
+
+Visit any traditional Cherokee home, and the woman of the house will provide a delicious meal. As a matrilineal society, it is the woman who carries the clan, she who gives nourishment to the growing infant by providing it with her milk. She continues to nourish all who come to her home by providing lovingly prepared food.
+
+Click the links below to learn more about individual dishes and other food related items.
+
+
+
+
+When the Cherokee sat down to Thanksgiving Dinner, they were most likely to see much or all of the following on the table:
+
+
+Venison: - Awi hawiya
+Winter Green Onions: - Gola ehi svgi
+Leeks: - Svgi
+Crawdads: - Tsisdvna
+Sauteed Wisi (a type of mushroom): - Goi gvtsatlanv
+Boiled Crawdads: - Dilitlianv tsisdvna
+Cornmeal and Crawdad Mush: - anisda
+Baked Rabbit: - Disvnatanv tsisdu
+Squirrel Gravy: - Saloli ugami gotlvtanv assusti
+Biscuits and Whole Wheat Bread: - Gadu disvnatanvi ale owodige gadu
+Green Bean Casserole: - Tuya anitse dilisyidi
+Mushroom Soup and Fried Onions: - Dawoli ugami ale gvtsatlanv svgi
+Variety of Rices: - Dilikwa ilusgi iyudalegi
+Raw Vegetable Dish: - Iyudalegi itse tlogesi udenv
+Pear Halves, Pumpkin and Pecan Canoe: - Digadvdi iya sohi aninvhida
+
+
+
+
+Barbecued Fish
+The following excerpt was taken from the interview of Ed Hicks of Tahlequah. - Indian Pioneer Papers
+
+"A custom long prevalent among the full blood Cherokees was to visit the banks of the streams in the summer season and capture large numbers of fish which were slowly roasted or barbecued over fires kindled beneath the shade of the nearby trees.
+
+In order to procure the fish the roots of the buckeye shrub were bruised and beaten into a great mass of pulp and in shallow places above long and deep stretches of water the pounded buckeye was 'planted' and weighted down with heavy stones. The water below was in consequence vitiated and soon numbers of fish arose to the surface, not dead but stupefied from the effects of the buckeye. The men and boys and sometimes the women and girls, then entered the water and engaged in picking up the fish. In the deeper water men in boats used spears or gigs and tossed the larger fish into their canoes or boats but the fish which were too small to be used were allowed to float downstream and upon reaching the pure waters soon recovered and swam away.
+
+When enough fish had been procured everybody went to the shady spots and engaged in cleaning the fish, after which the barbecuing began and the barbecued fishes were delicious. Other eatables were provided, but cornbread, made from fresh Indian corn meal and cooked after the Indian manner, and fish were the principal articles consumed, except that strong black coffee, that favorite Cherokee Indian beverage, was provided and drunk in abundant quantities. After the feast the women sat down and talked together and the men did likewise, smoking their pipes in great enjoyment.
+
+There have been no fish barbecues in many years, the fish and game laws prohibiting the adulteration of the streams with buckeye or other deleterious substances. But in the interval before the laws protected the streams, great damage was done the fish population by men who exploded dynamite in the rivers and creeks.
+
+In one locality near the Illinois River lived two young men who were owners of two very useful dogs and these dogs assisted in bringing fish to the shore when barbecues were held."
+
+[Info provided by the Cherokee Nation Cultural Resource Center, excerpts taken from the Indian Pioneer Papers. Please contact cultural@cherokee.org for any questions. The Indian Pioneer Papers are the product of a project developed in 1936. The Oklahoma Historical Society teamed with the history department at the University of Oklahoma to get a Works Progress Administration (WPA) writers' project grant for an interview program. The program was headquartered in Muskogee and was led by Grant Foreman. The writers conducted more than 11,000 interviews and after editing and typing the work, the results were over 45,000 pages long.]
+
+Cultural information may vary from clan to clan, location to location, family to family, and from differing opinions and experiences. Information provided here are not 'etched in stone'.
+
+
+
+
+How Salt Was Made
+The Indian Pioneer Papers are the product of a project developed in 1936. The Oklahoma Historical Society teamed with the history department at the University of Oklahoma to get a Works Progress Administration (WPA) writers' project grant for an interview program. The program was headquartered in Muskogee and was led by Grant Foreman. The writers conducted more than 11,000 interviews and after editing and typing the work, the results were over 45,000 pages long. The following excerpt is from the interview of Henry Downing of Nowata.
+
+"There is a place near Salina that has salt springs, I well remember when I was a small boy, my parents and some of the neighbors would go there every year to make salt for their year's supply.
+
+They had three large kettles, four feet across the top and about three feet deep. They would build up a large fire under each of these kettles and fill them up with this salt water and boil it until the water was all boiled away. Then they would take out the salt that was left in the kettles.
+
+As near as I can remember we got about three or four gallons at a salt cooking, and the part I played in making this salt was to keep the fires burning for there had to be just so much fire burning all the time under each kettle and it was up to us boys to keep that fire just so.
+
+After the old people would get the kettles all filled with water they would all gather around and smoke their pipes until the water was all boiled away and the salt ready to take out. We would get about five cooking off in a day's work. There would be as many as twenty-five families at a time gather to make their year's supply of salt.
+
+I remember there were three springs very close together. Two of the springs had water that was clear, cool and good to drink. The other spring was where we got our water for the salt."
+
+-- Henry Downing
+
+
+
+
+Cherokee Recipes
+Bean Bread
+1 cup of cornmeal 
+½ cup flour 
+2 tsp baking powder 
+1 tbsp sugar 
+2 cups milk 
+¼ cup melted shortening 
+1 beaten egg 
+2 tbsp honey 
+4 cups drained brown beans
+
+Mix all of these ingredients, except beans, thoroughly, and then fold in the beans. Pour into greased, heated pan. Bake at 450 until brown (usually 30 minutes or so)
+
+ 
+
+Fried Hominy
+2 strips of good bacon 
+2 cups of hominy 
+2 or 3 green onion 
+Fry bacon while cutting green onions into small pieces. Crumble bacon, and add onions. When the onions start appearing to be frying, add hominy and cook for about 10 to 15 minutes first on high heat, then on low.
+
+ 
+
+Grape Dumplings
+1 cup flour 
+1 ½ tsp baking powder 
+2 tsp sugar 
+¼ tsp salt 
+1 tbsp shortening 
+½ cup grape juice 
+Mix flour, baking powder, sugar, salt and shortening. Add juice and mix into stiff dough. Roll dough very thin on floured board and cut into strips ½" wide (or roll dough in hands and break off pea-sized bits). Drop into boiling grape juice and cook for 10 - 12 minutes.
+
+Who were the Cherokees? 
+
+Quick History: For whatever reason, about 4,000 years ago, the Cherokee people left the southwest region of what would become the United States, in search of a home. They moved through the Great Plains. They settled for a while around the Great Lakes region, but they were not welcomed. The Iroquois were not happy to see them. The Iroquois forcibly pushed the Cherokee from their land. The Cherokee moved on. 
+
+They wandered finally into North Carolina, where they discovered a land full of forests, mountains, rivers, streams, and fertile valleys. Wildlife was plentiful. They settled down happily. Life continued for thousands of years. 
+
+As their population grew, and as they conquered other tribes in the area, the Cherokee Nation grew. At one time, it covered 8 states including all or portions of the present day states of Georgia, Tennessee, North Carolina, South Carolina, Kentucky, Alabama, Virginia and West Virginia. 
+
+It was not until the 1600's that the Cherokee met the first white man in their region. White traders found it easy to trade with the Cherokee. As long as you wished them no harm, the Cherokee were peaceful, even helpful. The Cherokee traded deerskins for cloth, hammers, tools, and guns. 
+
+There were many wars and problems in the intervening years. But it was not until 1830 that, once again, the Cherokee were forcibly pushed from their land, this time by the United States government. The Cherokee were given a new place to live - a reservation located in the southwest, an area they had left 4000 years earlier. The Cherokee were forced to walk all they way to Oklahoma. Many people died on the walk, which is why this move is called "The Trail of Tears". 
+
+About 200 years ago, the Cherokee developed a written language of their own. They wrote everything down, all their legends and stories and customs, so they could more easily teach their children the old ways. 
+
+Today, the Cherokee live in the modern world. They still follow some of their old customs and they still teach their children the old ways. The children do not always listen, as they did once, but most are as fascinated by their heritage as we are. 
+
+Come meet the Southeast Cherokee in olden times. 
+
+What did they eat? 
+
+Agriculture: The Cherokee were farmers, hunters and gatherers. They grew corn, squash and beans, along with pumpkin, melons, sunflowers, tobacco, and other crops. Corn was the most important food. The women made sure they planted enough crops to provide food for two years. 
+
+Hunting & Fishing: The Cherokee were wonderful hunters. Legend says ... They could hit a fly from 30 feet away. They did not hunt for sport. The men only hunted what they needed to feed their families. Every part of the animal was used. The most important animal for their needs was the deer. They hunted turtles for food, and used turtle shells for rattles. 
+
+Tools: They made blowguns, bows and arrows, animal traps, nets to catch fish, and spears. 
+
+What did they wear? 
+
+Clothing: Women wore deerskin tops, skirts, and moccasins. Men wore deerskin loin clothes in the summer, and added leggings, shirts, and robes in the winter, all made of deerskin. 
+
+Tattoos and Body Paint: Men commonly decorated their bodies and faces with tattoos or paint. 
+
+Jewelry/Beads: They made jewelry of shells and silver. Women made painted clay beads. 
+
+Government 
+
+Red Chief, White Chief: The Cherokee lived in villages. Each village had two chiefs - a "white" chief who led in times of peace, and a "red" chief who led in times of war. Unless the Cherokee were at war, the war chief had nothing to do except drill and keep himself and his warriors fit. This was very smart. The Cherokee could response instantly to a war threat with able leadership. 
+
+Village Council: Peace chiefs did not rule alone. They had able council. In peacetime, his right-hand and his speaker, along with six other men, helped the chief. These 9 men made up the Village Council. The Council made important decisions for the village. 
+
+Village Council House: The council met in the Council House. The council house was the most important building in each village. It was large enough to hold all the villagers, including the children. When the council had an announcement to make, everyone in the village could hear them. 
+
+Role of Women in Cherokee Village Government: Women have always been part of Cherokee government. Only men were priests and chiefs, but women could offer advice, and later on, participated as council members when chosen, just like the men. 
+
+Cherokee Nation Council: The Cherokee Nation was ruled in the same way. It had a chief and a council who made decisions for the Cherokee Nation. 
+
+How did they live? 
+
+Village Life: The Cherokee lived in villages. Each village was home to about 400-500 people. In each village, there were 30-60 homes, a plaza, a town square, and a council house large enough to hold all the villagers during a village meeting. A wall of tall poles tied together surrounded each village. There was a summer village and a winter village. 
+
+Homes: Each family had two homes. These homes were located in the two different villages, the summer village and the winter village. 
+
+Winter Round Homes: Round homes were made of wood, and covered with mud for additional protection against the cold. Homes had bark roofs. The homes were decorated with colorful rugs, baskets, and wall hangings. Each home had a fire burning in the center. Homes had smoke holes at the top to let out the smoke. 
+
+Summer Rectangle Homes: Summer homes were bigger. They were made in the shape of huge rectangles. Cone shaped roofs were made of bark, covered with long grass. The house was made with long sticks. These homes were cool and airy, and let in light. 
+
+
+Roles of Men and Women: In the Cherokee culture, men and women were considered equals. 
+
+Cherokee Men: Men cut down trees to clear land for planting. They used the wood to build canoes, homes, and the pole fences around the villages. They hunted and fished. They made traps, nets, and other tools. They fixed moccasins. Sometimes a man would move in with his wife's family, and sometimes he might build a home for his wife. 
+
+Cherokee Women: The role of Cherokee women in the past was very different than the role of other American women. In the Cherokee Nation, women were warriors. Women ruled the home. Although the men built the homes, the women owned them. Women had power over their families, participated in government, and fought as warriors. Very few women had these rights in Colonial America. 
+
+They also did the same jobs as did other Indian women. They were very proud of their colorfully designed baskets. Baskets were used to gather nuts in the fall, and store goods. The women were the farmers. They planted seed and harvested crops. They stored food. Young girls pounded corn into flour. Women used the skins of animals to make clothing and other goods. They also raised the children. 
+
+
+7 Clans: The Cherokee Nation was divided into seven clans. A clan is a family of related people. The seven clans are: Long Hair, Paint, Bird, Wolf, Wild Potato, Deer, and Blue. When a child was born, he or she became a member of the mother's clan. 
+
+Villages were a mix of clans. This was good because Cherokee law clearly stated that you could not marry someone from your own clan. There were many ways to meet people. Villages helped each other. They got together for local festivals. Relatives visited. Often, there was a different mix of people in the summer villages than in the winter villages. Plus, all the clans got together for annual festivals. There were many chances to meet people from other clans. 
+
+Marriage 
+
+The rules were clear. You could not marry someone from your own clan. But once you found someone from another clan that you wanted to marry, there were other rules you had to follow. 
+
+First, you had to ask a family member if this was a good decision. You had to get a positive answer. You might have to hunt through several family members before you found someone who agreed with you that yes, this would be a good decision. If you could not find someone to agree with you, then you could not marry that person. 
+
+Second, you had to ask the chief of the woman's village to determine if your marriage would be a good one. The chief would put two roots in his hand, and say a prayer. If the two roots moved at the same time, it meant good luck, and yes, you could marry. If only one root moved, it meant bad luck, and no, you could not marry.

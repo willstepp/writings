@@ -1,20 +1,16 @@
 HUNGER by Daniel Stepp
 
-I.
 
-Mika was led to the wigwam at the far end of a small hamlet that made up the 
-shaman's area of the village. Here there were three wigwams altogether. The one on 
-the end was where they took those with life-threatening hunting injuries or for 
-illnesses that had no known cure. Mika's father was the shaman of the village 
-and normally would have been performing the ritual tonight but since it was he who 
-was sick the rites were being performed by his pupil Yaholo, a man of middle-age who 
-did not have much gift for the role, but always did his best.
+Mika was led to a tiny mud house at the far end of a hamlet of buildings that made 
+up the healing area of the village. The one on the end was where they took those with 
+fatal hunting injuries or for illnesses that had no cure. Mika's father was the shaman 
+and would have been performing the ritual tonight if it were not him who was on his 
+deathbed. Instead the rites were being performed by his pupil Yaholo, a man of middle-age 
+paunch who did not have much talent for the role but was well-liked anyway because he 
+never pretended to be more than he was.
 
-From the low position of the moon Mika knew it was early morning and hours before 
-sunrise. He was still in a twilight of consciousness from being awoken only moments before but 
-prepared himself for what was to come. Already he heard cries of pain from within. 
-Hearing his father shout with such weakness pained him in a way he could not understand. 
-Then there was a scream so loud everyone outside the entrance grasped their chests in 
-reflex. He was awake now. 
+From the low, crescent-shaped moon in the Eastern sky the boy knew it was morning 
+and yet still hours before the sunrise. He walked in a twilight of consciousness 
+from being roused so abruptly only moments before.
 
 But his father was no longer there. It was only a body.
