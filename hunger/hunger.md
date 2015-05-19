@@ -3,7 +3,7 @@ HUNGER by Daniel Stepp
 
 A crescent moon hung among the stars in the night sky to the East. Mika saw the 
 moon above the hills and therefore knew it was morning and yet hours before sunrise. 
-He followed behind those who had roused in a twilight of consciousness and imagined 
+He followed behind those who had roused him in a twilight of consciousness and imagined 
 when he saw the rows of girls dancing and chanting together in such mournful song 
 that all of this might be some bad dream he had yet to awaken from. The boy was led 
 to a small mud house at the far end of a hamlet of buildings that made up the healing 
