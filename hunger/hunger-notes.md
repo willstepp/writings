@@ -70,6 +70,7 @@ Winter
    and plague breaks out in the village and spoils the food stores. There are too many 
    people and they begin to fight. Eventually they begin to eat the dead. They set 
    fire to the tree and it mostly burns. Only a charred trunk and a few limbs remain.
+   Help us! You are a coward. Selfish. You are a shame on your father's name.
 *) The first blizzard of winter comes. The boy walks blind but he knows the way without 
    his eyes and delivers the water to the remains of the tree and collapses against 
    it, cold and alone, his extremeties numb.
