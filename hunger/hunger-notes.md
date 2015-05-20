@@ -6,39 +6,61 @@ Simple, non-dramatic, like the Bible. Do not telegraph your ideas.
 
 Outline
 
-Spring
+SPRING
 
 *) The boy taken to the bedside of his dying father who whispers to him alone
-   to water the old, dead tree each day. From the source, a lake on the mountain 
-   to the East. His father dies before he agrees to do it.
+   to water the old, dead tree each day:
+
+      From the source of the river
+      A lake in the mountain
+      Water our tree
+      Until it grows again
+
+   His father dies before he agrees to do it, "Will you?", "Will he?" He runs out 
+   and sits underneath the tree and falls asleep. His mother finds him and puts 
+   a blanket over him.
+
 *) The funeral feast where all the people mourn the passing of the great shaman, 'His 
-   memory shall live in our hearts forever'.
-*) The boy plays ball with his friends but sees the tree and is reminded of his 
-   father's request. He sulks alone and his mother asks him what is the matter. 
-   He tells her of the request and says he can no longer enjoy the games like he 
-   did before. But I want to play with my friends. That is your decision to make. 
+   memory shall live in our hearts forever'. Mika gets up to tell them all what 
+   he said, but hesitates, as it 'was not for them'. He ends by enjoying the company 
+   of his friends and neighbors, and eating and drinking until he burst. He was 
+   happy.
+
+*) For the next few days the boy plays ball with his friends, and eats berries, 
+   but sees the distant mountains from the field and gets distracted causing his 
+   team to lose the game. The old men of the village, who used to put all their 
+   bets on Mika switch to his friend. He sulks alone and his mother asks him what 
+   is the matter. He says he can no longer enjoy the games like he did before. 
+   But I want to play with my friends. Your heart is divided. You must obey it or 
+   you will suffer.
+
 *) The next day he takes the bucket and attempt to walk to the mountain but gets 
-   lost and turns around and fills the bucket with water from the nearby stream 
-   instead. He tells his mother he watered it and she says, 'Aren't you happy to 
-   have honored your father's memory?' But that night his view of the stars so 
-   bright in the heavens were obscured by his tears.
+   lost and tired and turns around and fills the bucket with water from the nearby 
+   stream instead. He tells his mother he watered it for Father and she says, 
+   'Aren't you happy to have honored your father's memory?' But that night his 
+   view of the stars so bright in the heavens were obscured by his tears.
+
 *) There comes a blight on the crops and destroys even some of the stores. 
    There is a growing panic because the entire village relies on those stores to 
-   make it through the winter. There is not enough. The prices of the existing 
-   corn rose and rose until only the wealthiest could afford them. The boy returns 
-   to his mother to give her the bad news. She cries. 
+   make it through the winter. There is not enough, though usually there are enough 
+   crops for two winters. The prices of the existing corn rose and rose until 
+   only the wealthiest could afford them. The boy returns to his mother to give 
+   her the bad news. She cries.
+
 *) There is a gathering around the tree the following morning. All the able men 
    of the village will report for hunting duties. The women must gather and fish.
    'Above all we must be practical.'
 
-Summer
 
-*) His mother tells him to forget his father's request. The boy reports and they 
-   go into the valley to hunt buffalo and elk with arrows and by other means. He 
-   makes a kill alongside his best friend Niko (he was always better than him with 
-   the bow) and is lifted onto the shoulders of the other boys. He is a hero. 
-   His mother tells him how proud she is. But all he could think about was the 
-   empty bucket in the corner.
+SUMMER
+
+
+*) The boy reports and they go into the valley to hunt buffalo and elk with arrows 
+   and by other means. He makes a kill alongside his best friend Niko (he was 
+   always better than him with the bow) and is lifted onto the shoulders of the 
+   other boys. He is a hero. His mother tells him how proud she is. But all he 
+   can think about was the empty bucket in the corner.
+
 *) The next day Mika does not go to the hunt. Instead he takes the bucket and 
    follows the river and hours later reaches the lake on the mountain. He returns 
    with tired legs and arms and pours the water at the base of the tree. Nothing 
@@ -46,38 +68,50 @@ Summer
    where he was. Fufilling a request from my father he said. They nod but he could 
    see they did not understand what he said.
 
-Autumn
+
+AUTUMN
+
 
 *) Weeks go by. The boy walks everyday. And everyday the people of the village 
    resent him more and more. They tell him he and his mother cannot partake of the 
    food if he does not join in. His mother tells him to abandon the deed, his father 
    was feverish when he told him. Not in his right mind. His friends mock him and 
    ridicule the bucket he carries. He grows thin. So he returns to the hunt.
+
 *) They accept him back. He eats and kills but always there is the bucket at the end 
-   of the day, empty. So he tries to do both and fails. Then he abandons the hunt 
-   completely. Finally they condemn him for not taking care of his mother. She 
-   goes to live with their cousin and he is told not to stay in the inner encampment. 
+   of the day, empty. So he tries to do both and fails. He listens to the things 
+   they care about and feels an emptiness. He no longer cares about the hunt. 
+   After that he abandons the hunt completely. Finally they condemn him for not 
+   taking care of his mother. She goes to live with their cousin and he is told not to stay in the inner encampment. 
    So he goes to the wilds and sleeps on the ground.
+
 *) The hunters fight with another tribe who are hunting in the valley also. They 
    triumph and Niko approaches them with an agreement to combine their forces. The 
    village grows by orders of magnitude. His best friend becomes the new leader, ousting 
    the old Sakima, who is not of the new order. They cut down the tree in order to 
    carve a statue in his honor. Mika wept when he saw what they had done to the tree.
 
-Winter
+
+WINTER
+
 
 *) His mother visits him in the wilds and he cries to her. 
+
 *) The number of people now living in the small space contaminates the water supply 
    and plague breaks out in the village and spoils the food stores. There are too many 
    people and they begin to fight. Eventually they begin to eat the dead. They set 
    fire to the tree and it mostly burns. Only a charred trunk and a few limbs remain.
    Help us! You are a coward. Selfish. You are a shame on your father's name.
+
 *) The first blizzard of winter comes. The boy walks blind but he knows the way without 
    his eyes and delivers the water to the remains of the tree and collapses against 
    it, cold and alone, his extremeties numb.
+
 *) In the morning the villagers awake and find that the tree has blossomed and is filled with
    bright fruit, the flesh yellow and sweet and nourishing. Its leaves verdant against 
    the mute and colorless landscape, a true paradox.
+   
+*) ...throughout the winter nourished them.
 
 
 
