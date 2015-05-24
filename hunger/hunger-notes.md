@@ -2,7 +2,10 @@ Documentary on Native American Tribes before European Colonization:
 https://www.youtube.com/watch?v=7FItlStGMY4
 
 Tone of Dignity but not Dry, think Job
-Simple, non-dramatic, like the Bible. Do not telegraph your ideas.
+Simple, non-dramatic, like the Bible. 
+
+Do not telegraph your ideas. An important moment in the story should sit equal 
+beside any other. Trust the reader to put things together.
 
 "Readers should always feel that you know more about your subject than you've 
  put into the writing." - On Writing Well
