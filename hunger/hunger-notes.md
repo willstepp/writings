@@ -4,6 +4,29 @@ https://www.youtube.com/watch?v=7FItlStGMY4
 Tone of Dignity but not Dry, think Job
 Simple, non-dramatic, like the Bible. Do not telegraph your ideas.
 
+"Readers should always feel that you know more about your subject than you've 
+ put into the writing." - On Writing Well
+
+Write with confidence, faith. Don't squirm around details. Craft scenes so that 
+they build upon one another and flow from the previous in a natural way. It's 
+worth taking the time to get right. And know the purpose of every scene and within 
+every scene, every paragraph. Don't be sloppy.
+
+Avoid psychology. The actions and words of the characters should reveal most 
+of what we know about them. But don't be dogmatic about this idea either.
+
+Let every character have his own narrative arc, some large, some small.
+
+Time disappears for Mika on his way to and from the lake. When he returns they 
+tell him he has been gone for days, maybe weeks.
+
+Give things names that derive from Native American culture, yet do not place it 
+in a specific tribe or place.
+
+The tree is ancient. From another era. Primal. Not a part of the surrounding landscape.
+
+Lake Itasca, source of the Mississippi
+
 Outline
 
 SPRING
@@ -11,8 +34,9 @@ SPRING
 *) The boy taken to the bedside of his dying father who whispers to him alone
    to water the old, dead tree each day:
 
-      From the source of the river
-      A lake in the mountain
+      "From the source of the river, a lake in the mountains, water our tree 
+      until it grows again.""
+
       Water our tree
       Until it grows again
 
@@ -142,9 +166,9 @@ WINTER
 
    She wept for him and comforted him but the thing that had been asked of him had 
    not been asked of her and therefore Mika knew she would not join him in the wilds. 
-   She prayed to the Great Spirit for strength on his behalf and told him she would 
-   help as best she could and then returned to the village. Mika watched his mother 
-   go in silence. He loved her very much.
+   She prayed for strength on his behalf and told him she would help as best she 
+   could and then returned to the village. Mika watched his mother go in silence. 
+   He loved her very much.
 
    "My boy is gone forever, my beautiful Mika."
 
