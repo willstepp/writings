@@ -24,6 +24,9 @@ Give things names that derive from Native American culture, yet do not place it
 in a specific tribe or place.
 
 The tree is ancient. From another era. Primal. Not a part of the surrounding landscape.
+Mika sometimes looked at the tree and wondered what the world was like when it had 
+been alive, what strange creatures might have fed on its leaves. He wondered if there 
+were people around then to sit underneath its canopy and daydream like he was doing now.
 
 Lake Itasca, source of the Mississippi
 
