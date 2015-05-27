@@ -13,7 +13,7 @@ beside any other. Trust the reader to put things together.
 Write with confidence, faith. Don't squirm around details. Craft scenes so that 
 they build upon one another and flow from the previous in a natural way. It's 
 worth taking the time to get right. And know the purpose of every scene and within 
-every scene, every paragraph. Don't be sloppy.
+every scene, every paragraph. Don't be sloppy as you have been in the past.
 
 Avoid psychology. The actions and words of the characters should reveal most 
 of what we know about them. But don't be dogmatic about this idea either.
@@ -31,7 +31,24 @@ Mika sometimes looked at the tree and wondered what the world was like when it h
 been alive, what strange creatures might have fed on its leaves. He wondered if there 
 were people around then to sit underneath its canopy and daydream like he was doing now.
 
+"My father bade me."
+
 Lake Itasca, source of the Mississippi
+
+Break each of 4 sections into roughly 7 scenes. 7 scenes of 1000 words is 28000.
+
+Mika and his best friend have a secret greeting, two interlocking fingers.
+
+Express what you can through indirection when characters speak to one another. 
+Saying things declaratively lands with such a thud. Daily conversation is 
+not like that. It's all short-hand from relationships and contexts of the 
+situation. Make your characters speak like that.
+
+A girl approaches Mika to bring him a bowl of kanuchi. He eats as she tries to 
+make conversation. Then leaves. Clear that she likes him.
+
+Don't be cute or clever in narration. Be serious and write about things with 
+authority. Do not over-explain.
 
 Outline
 
@@ -61,8 +78,7 @@ SPRING
    team to lose the game. The old men of the village, who used to put all their 
    bets on Mika switch to his friend. He sulks alone and his mother asks him what 
    is the matter. He says he can no longer enjoy the games like he did before. 
-   But I want to play with my friends. Your heart is divided. You must obey it or 
-   you will suffer.
+   But I want to play with my friends. Your heart is divided. You must obey it.
 
 *) The next day he takes the bucket and attempt to walk to the mountain but gets 
    lost and tired and turns around and fills the bucket with water from the nearby 
@@ -112,8 +128,8 @@ AUTUMN
    of the day, empty. So he tries to do both and fails. He listens to the things 
    they care about and feels an emptiness. He no longer cares about the hunt. 
    After that he abandons the hunt completely. Finally they condemn him for not 
-   taking care of his mother. She goes to live with their cousin and he is told not to stay in the inner encampment. 
-   So he goes to the wilds and sleeps on the ground.
+   taking care of his mother. She goes to live with their cousin and he is told 
+   not to stay in the inner encampment. So he goes to the wilds and sleeps on the ground.
 
 *) The hunters fight with another tribe who are hunting in the valley also. They 
    triumph and Niko approaches them with an agreement to combine their forces. The 
@@ -135,7 +151,7 @@ WINTER
 
 *) The first blizzard of winter comes. The boy walks blind but he knows the way without 
    his eyes and delivers the water to the remains of the tree and collapses against 
-   it, cold and alone, his extremeties numb.
+   it, cold and alone, his extremeties numb. The water stays warm, does not freeze.
 
 *) In the morning the villagers awake and find that the tree has blossomed and is filled with
    bright fruit, the flesh yellow and sweet and nourishing. Its leaves verdant against 
@@ -195,9 +211,10 @@ WINTER
 
    Maybe it takes days. Scavenges for nuts and berries.
 
-   The Bear in the Cave
-   "You will fail. Your tribe will starve. Give up now. Come with me deeper into 
-   the cave. Come now, little one."
+   The Bear in the Cave, a voice like a bear but not a bear. Something more 
+   ancient than that. Perhaps it was alive when the tree was.
+   "You will fail. Your people will starve. Give up now. Come with me deeper 
+   into the cave. Come now, little one."
 
    Chunky, game played by Mississippi cultures, including Cherokee
 
