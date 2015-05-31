@@ -2,7 +2,10 @@ Documentary on Native American Tribes before European Colonization:
 https://www.youtube.com/watch?v=7FItlStGMY4
 
 Tone of Dignity but not Dry, think Job
-Simple, non-dramatic, like the Bible. 
+Simple, non-dramatic, like the Bible.
+
+Simplify the style of your writing. Keep words and phrasing simple. No ornamentation.
+No flowery or evocative words when there is a simpler option.
 
 Do not telegraph your ideas. An important moment in the story should sit equal 
 beside any other. Trust the reader to put things together.
@@ -49,6 +52,76 @@ make conversation. Then leaves. Clear that she likes him.
 
 Don't be cute or clever in narration. Be serious and write about things with 
 authority. Do not over-explain.
+
+A blight that wipes out crops, destroyed the food stores, poisoned the beasts 
+and livestock.
+
+Notes from Records of the Moravians among the Cherokees:
+
+- Warrior is the highest title they confer, obtained by merit
+- Kettle of cooked, dried peaches
+- Clay dishware, dirty, licked clean by the dogs
+- Bread made from ground corn, beans, ground pumpkin
+- Soured hominy is main food
+- Women do all household work, stamping hominy, carrying wood
+- Have eggs, so chickens
+- chiefs, hunters, warriors
+- hunt beaver
+- hang meat to dry from roof beams
+- dwelling houses, 14 feet long, 10 feet wide, 7 feet high, small doors, heavily plastered
+- each family also has a hothouse, sweathouse, where they go when its cold, heated 
+  by heated coal embers
+- beds made from cane
+- in the middle of town is a mound where the chief stands, twenty feet high, to 
+  summon the village people to do collective work
+- all work together to harvest crops, although each crop is tended by one family
+- In times of war, they meet at a town house in the evening and each must say what 
+  he has done and will do the next day
+- Little is made from the dead, for chiefs they build a coffin of reeds ten feet 
+  high where it rots away, for the poor they place in the house and burn it down
+- skins have trade value, women make them from the hunted beasts
+- kindling to make a fire is something carried with you on a journey
+- a rising river is a danger, angry fast moving, when you are camped beside it
+- Tay, Tye, Kulsatahi, Aarcowee, Kulsathee, Kotaquisky - male names
+- Cutfinger (thief who lost fingers) and Timberleg - colorful names
+- honey-locust pod soup, served cold - sweet and wild taste
+- sour corn mush
+- tobacco smokers, pipes, ornate, dark green soapstone, a dove carved in one end
+- ear ornamentation common, piercing the lobe and inserting stone or metal discs
+- apples
+- Owah - yes, Katuh - bread, Ammah - water, Canali - friend, Utajuh - God, Woyer - warrior, high position
+- blow pipe with the pointed ends of reed-like grass, for amusement, shooting at birds
+- trees and shrubs: pine, oak, hickory, walnut, persimmon, mullberry, honey-locust,
+  maple, poplars
+- Chota, name of ancient city
+- shaking by the arm, a gesture of friendship, more than a handshake
+- corn-cribs on poles, a place to store corn?
+- beans, pumpkin, tobacco, cabbage
+- green corn dance, a ceremony lasting a few days, when the first corn is ripe
+- used sumac leaves as a poor man's tobacco, picked when leaves are red, then dried 
+  in the sun, then smoked
+- crossing a rocky creek, clear mountain water, smooth stones
+- cakes of corn and beans, wrapped in a rag, provisions for travellers
+- flock of wild turkeys
+- woven cane benches used for tables, seats, beds
+- houses, thin logs, no floor, roof of bark and rind of trees
+- fields of wild strawberries
+- Usage of 'Great Spirit' to refer to God, Creator
+- Take counsel, get and give advice
+- children go without clothes altogether
+- painted red and black
+- Frogeaters, a term of derision, meaning uncultured
+- Owakoi, name of a place
+- stuffed stag head, used for hunting as a decoy for deer, put over arm and moved
+  in a realistic way, deer come within ten feet
+- clouds on the mountain
+- children howling when someone dies
+- buried in a sweathouse?
+- frogs at night
+- tomahawk as weapon
+- use turkey wings as a fan to cool during heat
+- Estanali, a cave with strange stone figures, they have sweated and froze so they 
+  look like they are made of ice
 
 Outline
 
