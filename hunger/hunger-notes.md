@@ -903,3 +903,21 @@ The rules were clear. You could not marry someone from your own clan. But once y
 First, you had to ask a family member if this was a good decision. You had to get a positive answer. You might have to hunt through several family members before you found someone who agreed with you that yes, this would be a good decision. If you could not find someone to agree with you, then you could not marry that person. 
 
 Second, you had to ask the chief of the woman's village to determine if your marriage would be a good one. The chief would put two roots in his hand, and say a prayer. If the two roots moved at the same time, it meant good luck, and yes, you could marry. If only one root moved, it meant bad luck, and no, you could not marry.
+
+
+
+6/1/2015
+
+
+* Mika shown to his dying father in the sweat house
+* The rites performed by Yaholo
+* The chicken in the corner
+* Mika holds his father’s hand, the whisper in his ear
+* The agony and outburst
+* Mika runs out to the tree in the center of the village
+* His mother comes later and places a blanket around him
+
+Mika - the protagonist of the story, son of Sakima
+Sakima - the shaman of the village, dying
+Ama - the wife of Sakima, mother to Mika
+Yaholo - pupil of Sakima, performing the rites
