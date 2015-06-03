@@ -31,4 +31,45 @@ The air outside was cool. The others stood in silence and looked to Mika for any
 
 In the middle of the ceremonial ground was an old, dead tree. It had wide, gnarled branches good to climb and rose high above the surrounding trees of the forest. It bark was smooth and stone-like. The tree was sacred to the village. It was even the symbol of their tribe. The tree was from another, more ancient time. Mika had climbed on it since he was a boy and he asked his father about it, where it had come from, and his father had always said he didn’t know.
 
-Now he sat at the base of the tree alone. It was the darkest time of night. The stars gone. The morning to come soon. He remembered those times and soon fell asleep against the tree. Then later, after his father had passed on, his mother found him there and covered him with a blanket.
+Now he sat at the base of the tree alone. It was the darkest time of night. The stars now gone. The morning yet to come. He remembered times he shared with his father and soon fell asleep underneath the tree. Then later, after Sakima had passed from this world into the next, his mother found him there and wrapped a blanket around him.
+
+
+The next day a platform woven from reed was raised within the ceremonial grounds. It stood six feet off the ground. The dead shaman was placed upon it and his body was then anointed with oils and the women arranged sashes made from flowers about the base. Here Sakima would lie until the counsel of elders decided it was time to bury him. It was the same for every great man.
+
+Then there was the feast, or what was called *the ceremony of the dead*. For three evenings a large bonfire was kindled on the ceremonial grounds and food was gathered and prepared. The men set up roasting spits and skewered them with deer, pigs, rabbits and other game. Long tables were brought out and set upon them were clay bowls and pots filled with sour mashed hominy, locust-pod soup, honey, bean and corn bread, dried peaches, dried apples, kanuchi. All the families of the village brought something and all were welcome to partake and pay their respects to the beloved leader. Gathered together they numbered in the hundreds.
+
+Mika walked among them. He was alone and tried to stay invisible though it was hard. He did not like to be consoled for the loss of his father. He did not like to be reminded what a great man his father was. He even avoided his mother because of the way she now looked at him.
+
+He found a hidden spot away from the crowd and sat there and watched the people of the village. They were kind people. He did not resent them. He just wanted to be alone with his thoughts.
+
+As he sat there his thoughts turned to the ancient tree in the shadow of the bonfire flames just beyond the festivities. There it loomed over them all. Ignored but happy to be ignored. Just like him. He was reminded of the last words his father spoke to him and wondered what they meant. He wanted the ghost of his father to visit him in his dreams and tell him what they meant. Why he must do this particular thing. But inside he knew such things did not happen. Only in stories did they happen.
+
+At the edge of the fires he saw his good friend Tye. He wanted to go up to him and joke with him and do the things they always did together. But it was not appropriate now. Tye was a hunter like Mika and it did not take him long to spy his friend hidden in the dark. Tye was savvy. He knew Mika and did not approach him. Instead he made a gesture with his hands by interlocking his two forefingers like a chain. A symbol of their friendship. Mika returned the gesture. His eyes welled with tears.
+
+But as he exchanged gestures with his friend someone else had discovered him and approached from behind. She emerged into the flickering of the light carrying a small bowl. Her hair was braided and hung down one shoulder. She was beautiful indeed. The last time Mika had seen her she was part of the group of girls who had chanted with the turtle shell rattles.
+
+She placed the bowl on the ground in front of him and demurred. Mika watched her and then looked at the bowl.
+
+You must eat, she said.
+
+He picked up the bowl and drank the soup down. Kanuchi was one of his favorites. She sat a wrapped cloth full of bread and roasted deer meat. Still hot. Steam rising from within.
+
+Eat, Mika.
+
+He noticed she did not try to console him though he could see the pity in her eyes. He unraveled the cloth and ate. His mood changed as the food restored energy to his body. The meat was good. The bread too. He had not realized how hungry he was.
+
+Thank you, Leoti.
+
+She smiled and sat with him for awhile. He was happy she was here. He looked at all the people and for the first time that evening understood that it was love that had brought them together. And he felt it himself. He was happy.
+
+The elders of the tribe then gathered around the fire and the people gathered around them and sat. Mika and Leoti came closer and sat beside the others. Then, in turn, each of the village elders told stories about his father, Sakima the Shaman. As he listened Mika was filled with such pride at the things they said. Half of them he had never heard before.
+
+At last Kulsathee rose from his spot in the center of the group of elders, a large rotund man the same age as his father. He was what they called the *Chief of Peace* and had been the leader of the tribe ever since before Mika was born. There were deep lines in his face and when he smiled, which he did often, the lines grew deeper still, like bunched up leather.
+
+The old Kulsathee told a story of how he and Sakima were out hunting one day, far away from the village, when they were just boys. Far away, he repeated. Many weeks. They were hunting bison  in the plains and decided to explore the valleys of the Southern Mountains. He spread his arms around him. 
+
+These green valleys, he said. How we loved them. We found deer, pigs, squirrels. Turkey, geese. And then my friend, Sakima the brave and good, he took a walk one morning and discovered our tree. Kulsathee raised his arm and pointed the dead, ancient branches hung over the group. The people knew it well.
+
+Sakima found our tree and had a vision that day, that our tribe would establish here. On this spot. So we returned and told the elders what we had found and about the vision Sakima had.
+
+

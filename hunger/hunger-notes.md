@@ -906,8 +906,20 @@ Second, you had to ask the chief of the woman's village to determine if your mar
 
 
 
-6/1/2015
 
+'it was a blessing to be able to do good for others. Not a burden, as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.'
+
+'He wanted the ghost of his father to visit him in his sleep and tell him why he must do this particular thing. But inside he knew such things did not happen. Only in stories did they happen.'
+
+'And walking, ever walking.'
+
+Appalachian at home, plains, rock mountains, make journey impressionistic
+
+vivid with tastes, smells, sounds, sights, specific flora and fauna, give things names, avoid the generic
+
+
+
+6/1/2015
 
 * Mika shown to his dying father in the sweat house
 * The rites performed by Yaholo
@@ -921,3 +933,19 @@ Mika - the protagonist of the story, son of Sakima
 Sakima - the shaman of the village, dying
 Ama - the wife of Sakima, mother to Mika
 Yaholo - pupil of Sakima, performing the rites
+
+
+6/2/2015
+
+* The ceremony for three nights
+* The food they have
+* His friend, the girl, who brings him food that he eats
+* The elders tell stories of Sakima, how he founded their village while hunting
+* Mika stands up to tell what his father had whispered to him before he died, 
+  but realizes it was not for them
+
+Leoti - a girl who likes him, brings him kanuchi and roasted rabbit
+Kulsathee - the chief of peace, knew sakima when they were boys
+Tye - his good friend, not as good at sports or hunt
+
+'His memory shall live in our hearts forever'
