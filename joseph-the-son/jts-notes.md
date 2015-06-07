@@ -1,5 +1,35 @@
 REVISION NOTES:
 
+6/7/2015
+
+Rewrite the *entire* book to be more realistic. Give Joseph a tangible goal.
+Have him be working after school at the church to save up money to fix up the old 
+house. Jacob has an affair with Kelly and murders Steven and runs off with the 
+money the church raises for the Hight family. After grandpa dies, Will returns.
+
+Give it more flavor of the small town south. Set it in the eighties, when you 
+were the age of Joseph.
+
+Jacob is more like a Southern Baptist preacher and less of a mystic, or rather, 
+expresses himself more like a preacher. He can still have the ideas of a mystic.
+
+Will still has the dream of his grandfather, but they do not talk.
+The story opens with the fulfillment of fixing the fence.
+
+Move the setting to late summer. Instead of fall festival, Fourth of July.
+
+Research the story in Rome, about the murder by the preacher.
+
+
+
+
+
+
+
+
+
+
+
 - Add internal monologues by Joseph throughout to blend in with the internal 
   monologue by Will at the very end of the story. Nobody else.
 

@@ -948,4 +948,11 @@ Leoti - a girl who likes him, brings him kanuchi and roasted rabbit
 Kulsathee - the chief of peace, knew sakima when they were boys
 Tye - his good friend, not as good at sports or hunt
 
+
+6/3/2015
+
+* The elders tell stories of Sakima, how he founded their village while hunting
+* Mika stands up to tell what his father had whispered to him before he died, 
+  but realizes it was not for them
+
 'His memory shall live in our hearts forever'
