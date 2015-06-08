@@ -5,11 +5,11 @@ I.
 
 One
 
-As he stepped off the plane onto the walkway between the exit door and the terminal gate, he felt a bitterly cold July wind whip in through one of the slits in the fabric joins. He weaved through the passengers, stumbling and bleary-eyed, and found his way to the nearest restroom, where he found some jeans he had brought just in case, and an old flannel shirt he kept tucked in a side pouch of his duffle. A fat man, Chilean, emerged from the last stall. He looked surprised to see a half-naked American there, but made no eye contact and walked straight out with a frown. The man pulled up his jeans and washed his face in the dirty sink. He caught himself in the mirror. The dim neon lights shadowed his face with older and more tired lines. He never could sleep on a plane, or a bus, or any other place for that matter. Not without pills anyway. And he wanted to conserve those for when it got bad again.
+As he stepped off the plane onto the walkway between the exit door and the terminal gate he felt a bitterly cold July wind whip in through one of the slits in the fabric joins. He weaved through the passengers, stumbling and bleary-eyed, and made his way to the nearest restroom, where he found some jeans and an old flannel shirt he kept tucked in the side pouch of his duffle, just in case. A fat man, Chilean, emerged from the last stall and was surprised to see a half-naked American standing there, but made no eye contact and walked straight out with a frown. The man pulled up his jeans and washed his face in the dirty sink. He caught himself in the mirror. The dim neon lights shadowed his face with older and more tired lines. He never could sleep on a plane, or a bus, or any other place for that matter. Not without pills anyway. And he wanted to conserve them for when it got bad.
 
 "Muchas gracias, señor," he greeted his reflection in the mirror.
 
-"De nada," he answered back.
+"De nada."
 
 From the gates to customs was a cavernous hallway with brick-lined walls. It looked old, a modern architecture from thirty years ago. Everything was bathed in a neon half-light. Above were skylights, but outside it was still early morning, dark, yet the the sky lightening against the dark clouds. The floors shined. You could see fifty yards ahead. Down there, close to a row of doors was a janitor, slowly mopping. The man kept pace with the others, most sleepwalking without really knowing where they were headed. There were signs in Spanish, and arrows. He had downloaded a translator app before leaving, but did not feel the need to pull it out just now. There seemed only one way to go.
 
