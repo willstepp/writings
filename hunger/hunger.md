@@ -15,11 +15,11 @@ There was a jar of water and he picked it up and poured some into his hand and g
 
 Son, his father said, come to me.
 
-Mika placed his head against his father’s chest and smelled the salve of the ritual. He looked up and saw the shadows of Yaholo move across the charcoal-burned plaster of the ceiling. In the corner underneath the cane bench there he saw a hen sat and grew angry at it being there. What place did it have here? Those stupid black eyes watching all.
+Mika placed his head against his father’s chest and smelled the salve of the ritual. He looked up and saw the shadows of Yaholo move across the charcoal-burned plaster of the ceiling. In the corner underneath the cane bench he saw a chicken perched. He grew angry at it being there. What place did it have here? Those stupid black eyes watching all.
 
 Then his father Sakima whispered something into his ear and Mika forgot the hen and listened and everything else in the hut disappeared while he spoke. And when his father was finished he collapsed back and went unconscious again. The boy rose and looked at his father, unsure if he had heard the words of his father correctly. Then he looked at his mother in the corner. Her eyes were wet with tears. He went to console her.
 
-At that point Yaholo approached his father and his words grew louder. He pulled a baton decorated with green soapstone carvings and shook it over Sakima. Together he and his mother watched. The old shaman came to life once more and shook from the core of his body and seemed in great pain. Mika left to tend to him but his mother pulled him back. He saw the stupid hen under the bench was now scratching and pecking at the dirt and this filled Mika with rage. He escaped his mother’s embrace and ran to the hen but then his father let out a cry unlike anything he had ever heard from him.
+At that point Yaholo approached his father and his words grew louder. He pulled a baton decorated with green soapstone carvings and shook it over Sakima. Together he and his mother watched. The old shaman came to life once more and shook from the core of his body and seemed in great pain. Mika left to tend to him but his mother pulled him back. He saw the stupid chicken under the bench now pecking at the dirt and this filled Mika with rage. He escaped his mother’s embrace and tried to snatch it up but then his father let out a cry unlike anything he had ever heard from him.
 
 He was awake again. His eyes were wide. He raised from the bed and shouted in anger at Yaholo. There were tears in his pupil’s eyes but he continued the words of the ceremony. Then Sakima looked at his son. His eyes were wild. There was fear in them.
 
@@ -45,11 +45,11 @@ He found a hidden spot away from the crowd and sat there and watched the people 
 
 As he sat there his thoughts turned to the ancient tree in the shadow of the bonfire flames. There it loomed over them all. Ignored but happy to be ignored. Just like him. He was reminded of the last words his father spoke to him and wondered what they meant. He wanted the ghost of his father to visit him in his dreams and tell him what they meant. Why he must do this particular thing. But inside he knew such things did not happen. Only in stories did they happen.
 
-At the edge of the fires he saw his good friend Tye. He wanted to go up to him and joke with him and do the things they always did together. But it was not appropriate now. Tye was a hunter like Mika and it did not take him long to spy his friend hidden in the dark. Tye was savvy. He knew Mika and did not approach him. Instead he made a gesture with his hands by interlocking his two forefingers like a chain. A symbol of their friendship. Mika returned the gesture and his eyes welled with tears.
+At the edge of the fires he saw his good friend Tye. He wanted to go up to him and joke with him and do the things they always did together. But it was not appropriate now. Tye was a hunter like Mika and it did not take him long to spy his friend hidden in the dark. Tye was savvy. He knew Mika and did not approach him. Instead he made a gesture with his hands by interlocking his two forefingers like a chain, a secret symbol of their friendship. Mika returned the gesture with a solemn nod.
 
-But as he exchanged gestures with his friend someone else had discovered him and approached from behind. She emerged into the flickering of the light carrying a small bowl. Her hair was braided and hung down one shoulder. She was beautiful indeed. The last time Mika had seen her she was part of the group of girls who had chanted with the turtle shell rattles.
+But someone else had discovered him there and approached from behind. She emerged into the flickering light carrying a small bowl. Her hair was braided and hung down one shoulder. She was beautiful indeed. The last time Mika had seen Leoti she was part of the group of girls who chanted with the turtle shell rattles outside the sick house.
 
-She placed the bowl on the ground in front of him and demurred. Mika watched her and then looked at the bowl.
+Leoti placed the bowl on the ground in front of him and demurred. Mika watched her and then looked at the bowl.
 
 You must eat, she said.
 
