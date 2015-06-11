@@ -43,11 +43,11 @@ The men set up roasting spits and skewered them with deer, pigs, rabbits and oth
 
 Mika walked among them. He was alone and tried to stay invisible though it was hard. He did not like to be consoled for the loss of his father. He did not like to be reminded what a great man his father was. He even avoided his mother because of the way she looked at him now. Those sad eyes, filled with pity.
 
-He found a hidden spot, away from the crowd, and sat upon a log to watch the people of the village. They were kind. He did not resent them. He only wanted to be alone.
+He found a hidden spot, away from the crowd, and sat upon a log to watch the villagers. They were kind people who meant well. He did not resent them. He wanted only to be left alone.
 
-As he sat his thoughts turned to the ancient tree in the shadow of the bonfire flames. There it loomed over them all. Ignored but happy to be ignored. Just like him. He was reminded of the last words his father spoke to him and wondered what they meant, those mysterious words. He wanted the ghost of his father to visit him in his dreams and tell him what they meant and what to do about them. Why he must do the particular thing. But inside he knew such things did not happen. Only in stories did they happen.
+As he sat his thoughts turned to the ancient tree in the shadow of the bonfire flames. There it loomed over them all. Ignored, but happy to be ignored. Just like him. He thought of the last words his father had spoken to him and wondered what they meant. He wanted the ghost of his father to visit him in his dreams and tell him what they meant and what to do about them. Why he must do that particular thing. But inside he knew such things did not happen. Only in stories did they happen.
 
-Then at the edge of the bonfire he saw his good friend Tye. He wanted to go up to him and joke with him and do the things they always did together. Yet he knew it was not appropriate now. Tye was a hunter like Mika and therefore it did not take him long to spy his friend hidden in the darkness. Tye was savvy. He knew Mika and did not approach him. Instead he made a gesture with both hands by interlocking his two forefingers like a chain. It was the secret symbol of their friendship. Mika returned the gesture with solemnity. His true friend.
+Then at the edge of the bonfire he saw his good friend Tye. He wanted to go up to him and joke with him like before. Yet he knew it was not appropriate now. Tye was a hunter like Mika and so it did not take him long to spy his friend hidden in the darkness. Tye was savvy. He did not approach. Instead he made a gesture with both hands by interlocking his two forefingers like a chain, a secret symbol of their friendship. Mika returned the gesture from his spot on the log with solemnity. Tye his true friend.
 
 But someone else had discovered him there in the darkness of the bonfire light and approached him from behind, in secret. She emerged carrying a small bowl. Her hair was braided and hung down one shoulder. She was beautiful indeed. The last time Mika had seen Leoti she was part of the group of girls who chanted with the turtle shell rattles outside the sick house. She placed the bowl on the ground in front of him and demurred. Mika watched her and then glanced at the bowl.
 
@@ -73,16 +73,14 @@ These green valleys he said. How we loved them. We found deer and pigs, squirrel
 
 Sakima found our tree and had a vision that day. He foresaw that our tribe would establish here on this very spot. So we returned and told the elders what we had found and about the vision Sakima had. They laughed at him and called him just a boy. But the next year was the bloody war among the plains people and we uprooted. We traveled there as it seemed a safe haven from the death and desolation of the plains.
 
-The old *chief of peace* continued to tell stories of Sakima, well into morning. He told of the establishment of the tribe in the hills around. He told of the first council that united the neighboring tribes together. And when he was done there were tears in his eyes and the people watching were amazed as they had never seen him show emotion as he did that night.
+The old *Chief of Peace* continued to tell stories of Sakima, well into morning. He told of the establishment of the tribe in the hills around. He told of the first council that united the neighboring tribes together. And when he was done there were tears in his eyes and the people watching were amazed as they had never seen him show emotion as he did that night.
 
 It was then, in the lull between speakers, that Mika felt compelled himself to rise and tell the crowd about what his father had spoken to him just before his death.
 
 Mika rose from his spot in the darkness, to Leoti’s surprise, and approached the center of the circle, near the flames of the bonfire. No one spoke when they saw him approach. 
 
-He stood before them with his head bowed. Moments went by in silence as he collected his thoughts. Then he raised his head and observed them. He looked into their eyes. Each one. They were expectant and hopeful. They wanted to hear something to inspire them. To let them know it was okay for a great man to die. 
+He stood before them with his head bowed. Moments went by in silence as he collected his thoughts. Then he raised his head and observed them. He looked into their eyes. Each one. They were expectant and hopeful. They wanted to hear something to inspire them. To let them know it was okay for a great man to die. But Mika did not speak. It was not for them, those words his father spoke to him. He had not understood until that moment, as he stood before those hundreds that what had been asked of him was not for them to know and that it would be a betrayal to the memory of his father to repeat those words to those whom it had not been given.
 
-But Mika did not speak. It was not for them, those words his father spoke to him. He had not understood until that moment, as he stood before those hundreds that what had been asked of him was not for them to know and that it would be a betrayal to the memory of his father to repeat those words to those whom it had not been given.
-
-He met their eyes and kept silent. The people stirred and wanted him to say something, yet he would not. Some took it as arrogance and wrinkled their noses in disgust. Some said he was not the man his father was.
+He met their eyes and kept silent. The people stirred and wanted him to say something, yet he would not. Some took it as arrogance and wrinkled their noses in disgust. Some laughed at him. Some said he was not the man his father was.
 
 ~
