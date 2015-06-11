@@ -79,7 +79,7 @@ It was then, in the lull between speakers, that Mika felt compelled himself to r
 
 Mika rose from his spot in the darkness, to Leoti’s surprise, and approached the center of the circle, near the flames of the bonfire. No one spoke when they saw him approach. 
 
-He stood before them with his head bowed. Moments went by in silence as he collected his thoughts. Then he raised his head and observed them. He looked into their eyes. Each one. They were expectant and hopeful. They wanted to hear something to inspire them. To let them know it was okay for a great man to die. But Mika did not speak. It was not for them, those words his father spoke to him. He had not understood until that moment, as he stood before those hundreds that what had been asked of him was not for them to know and that it would be a betrayal to the memory of his father to repeat those words to those whom it had not been given.
+He stood before them with his head bowed. Moments went by in silence as he collected his thoughts. Then he raised his head and observed them. He looked into their eyes. Each one. They were expectant and hopeful. They wanted to hear something to inspire them. To let them know it was okay for a great man to die. But Mika did not speak. It was not for them, he now understood. He had not understood until then that what had been asked of him was not for them to know and that it would be a betrayal to the memory of his father to utter them to those whom it had not been given.
 
 He met their eyes and kept silent. The people stirred and wanted him to say something, yet he would not. Some took it as arrogance and wrinkled their noses in disgust. Some laughed at him. Some said he was not the man his father was.
 
