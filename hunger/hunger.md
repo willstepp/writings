@@ -175,15 +175,44 @@ Look at me, Mika.
 
 He looked.
 
-My son, your heart is divided. You must do what it asks of you or there will be no end to your suffering. You must do the thing your father has asked of you. Do not be afraid. Your friends will still be here. You will play games with them again. Like it was before. But first there must be peace within you.
+My son, your heart is divided. You must do what it asks of you or there will be no end to your suffering. You must do the thing your father has asked of you. Do not be afraid. Your friends will still be here. You will play games with them again. Like it was before. But first you must find peace within.
 
 Is all that true? Mika asked. His eyes lifted and he smiled.
 
-It is.
+Yes it is.
 
-Mika and his mother embraced and then returned inside the gates of the village. The late afternoon sun shone through the gate poles and lit geometrical shapes on the path where they walked. It was time for supper and in the air was an aroma of fresh barbecued fish and bread baking on the fire.
+Mika and his mother embraced and then returned inside the gates of the village. The late afternoon sun shone through the gate poles and lit geometrical shapes onto the path where they walked. It was time for supper and in the air was an aroma of fresh barbecued fish and bread baking on the fire.
 
 ~
 
+Before light Mika rose. He was careful not to wake his mother who slept next to him. In the darkness of morning he found his knife and the sheathe with a strap to go around his shoulder. Ama the night before had prepared some fried bread cakes, good food for travel, and wrapped them in a thin cloth. He put those in a satchel also strapped around his shoulder. There was no need to take any water as he would be following the river and could drink from it whenever he was thirsty.
 
+There was an old bucket in the storage shed his father had used. Most of the contents of the shed were now dispersed to others in the tribe, but nobody had yet found a need for this bucket, and Mika was happy to find it there just as he remembered.
 
+With these few items he stepped on the path that headed outside the Northern gate. His good friend Gawoni stood guard that morning and Mika found him snoring under the platform built for archers.
+
+Let me out you lazy dog, Mika said. 
+
+He gave his friend a soft kick in the side and Gawoki startled awake. Mika laughed.
+
+Why do you laugh? Gawoni said. He stretched both arms above him and yawned like a mountain lion. I was awake.
+
+Again Mika asked his friend to open the gate. Gawoni, when his eyes adjusted to the dim light of morning, gave Mika a strange look.
+
+Where are you going so early in the morning?
+
+Mika answered, To do the thing my father asked of me just before he passed away.
+
+Why?
+
+I don’t know why. I only know it was asked of me. So I must do it.
+
+What is the bucket for?
+
+That I cannot say.
+
+You are a strange one, Gawoni said. It was much too early to argue and he swung open one of the gates. Mika walked outside and heard the gate close behind him. He turned to see Gawoni headed back under the archer platform.
+
+So long, my friend.
+
+So long and safe travels.
