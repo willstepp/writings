@@ -956,3 +956,10 @@ Tye - his good friend, not as good at sports or hunt
   but realizes it was not for them
 
 'His memory shall live in our hearts forever'
+
+
+
+
+Mother is teaching a girl to flesh a deer skin
+Moho is flirting with Leoti
+He could see the disappointment

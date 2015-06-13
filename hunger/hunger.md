@@ -83,15 +83,15 @@ The people stirred and wanted him to say something yet Mika remained silent. Som
 
 ~
 
-Those were days when the meadows turned green and blossomed in wildflowers and strawberries bushes. A myriad of colors replaced the grays and browns of Winter. The river that ran through the village and irrigated their crops glistened in the mild afternoon sunlight. The women went daily along its clear banks and pulled trout from traps in the small, rocky cascades. Those fish they would barbecue and feed to their families for supper. There was no need to salt them for storage during this time of abundance.
+Those were the days of abundance when the meadows in the valley turned green and blossomed with wildflowers and berries. A myriad of colors replaced the grays and browns of Winter. The river which ran through the village and irrigated their crops glistened in those mild afternoons. The women went daily along its banks and pulled trout from traps they built in the small cascades. Those fish they would barbecue that same evening to feed their families for supper. There was no need to salt them for storage during this time of the year.
 
-The men hunted game in the nearby forest or busied themselves with construction work that had been put off during the cold season. They fixed roofs and erected summer shelters. This they did communally from shared materials, harvested and stored in a building on the Northern side of the village. 
+The men hunted game in the nearby forests or busied themselves with construction that had been put off during the cold season. They fixed leaky roofs and erected summer shelters that allowed the breeze to blow through. This work they did communally from shared materials, harvested and stored in a building on the Northern side of the village. 
 
-The young children spent their days running in the forest or playing hide and seek. They went shirtless and ate berries until their mouths and fingers were stained red and blue. 
+The young children ran in the fields and played games in the woods like hide and seek. They went shirtless and ate strawberries and blackberries until their mouths and fingers were stained purple. 
 
 The older children collected in a wide open area on the Southern edge of the village grounds. There a field had been cleared of all shrubs and grass so that only a dirt floor remained. Over the years it had been hardened by the weather and by their footsteps. Here they played dice and ball games. Stick ball was popular when there were many in the group, but the game that required the most skill and therefore attracted the attention of even the elders was *tchungkee*. 
 
-*Tchungkee* was a game for hunters since it required the use of a spear. There was a stone disc about the size of a grapefruit, polished smooth, with two concave indentations carved into opposite sides. This caused the disc to roll in unpredictable patterns. Two competitors lined up at the edge of a small arena whose boundaries were marked with rocks. The roller would stand between the boys and let out of a *yip* as he tossed the disc hard into the arena. The boys with the spears then had only a few seconds to gauge where they thought the disc would end up and throw their spears. Whoever threw nearest to the place where the disc ended up got the point.
+Tchungkee was a game for hunters since it required the use of a spear. There was a stone disc about the size of a grapefruit, polished smooth, with two concave indentations carved into opposite sides. This caused the disc to roll in unpredictable patterns. Two competitors lined up at the edge of a small arena whose boundaries were marked with rocks. The roller would stand between the boys and let out of a *yip* as he tossed the disc hard into the arena. The boys with the spears then had only a few seconds to gauge where they thought the disc would end up and throw their spears. Whoever threw nearest to the place where the disc ended up got the point.
 
 This game was so popular the elders gathered under the shade of the trees that ran along the dirt arena. They brought their pipes and blankets and gambled with each other about who would win and by how many points. They all had their favorites but by far the most favored was Mika the son of Sakima, since he had the most steady throw and consistently scored more points than any of the other boys.
 
@@ -109,21 +109,81 @@ Old buzzards, Mika said, don’t they have anything else to do? Like smoke their
 
 They are worried about their bets, that’s all.
 
-Tye looked towards the field and saw Mohe was trying to get the attention of a group of girls who sat in a circle.
+Tye looked towards the field and saw Mohe was trying to get the attention of a group of girls who sat in a circle under a tree, sewing bead necklaces. Leoti was among them. She glanced back towards Mika and Tye.
 
-Mohe seems pleased.
+Mohe is fond of Leoti. Are you going to let that happen?
 
 I don’t care.
 
 His friend dropped his own spear in front of Mika.
 
-Use mine. Challenge him again. I want to see the look on his face when you prove to him it was just bad luck.
+Use mine. Challenge him again. I want to see the look on his face when you prove it was just bad luck.
 
 Mika looked at his friend.
 
 My spear is good. See for yourself.
 
-Tye picked up the spear and examined it. He felt all the leather straps and ran his hand along the spine.
+Tye picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for imperfections.
 
-He agreed, Your spear is good. No splinters. No warp. But how did you lose to Mohe?
+He agreed. Your spear is good. No splinters. No warp. But how did you lose to Mohe?
+
+I tell you my head is not right. I cannot stop thinking about my father.
+
+His friend nodded. Tye’s brother had died in a hunting accident two summers ago so he understood loss.
+
+It will get better, Tye said. He rose and clasped on hand on his friend’s shoulder and looked him in the eyes. You are the best tchungkee thrower of them all.
+
+Tye left to join a game of dice across the field but then shouted over his shoulder, Except for me!
+
+Mika grinned.
+
+Soon another round of tchungkee started and Mohe took the lead in points since Mika did not feel like playing anymore. His friends were disappointed. The gambling elders gave up on him and placed their bets on Mohe instead. Mika watched the game from the sidelines for awhile longer then went to find his mother.
+
+Ama was outside their summer house teaching a group of young girls how to flesh deer hides for tanning. She was old but still strong. When she scraped the broad flint blade across a hide draped along a flat wooden incline she moved like a woman twenty years younger than she was. The girls each took turns and were not nearly as quick and efficient as Ama, but they were learning and Mika’s mother was patient with them.
+
+When she saw her son approach she wiped her hands on a cloth and embraced him. That look of pity she always gave him was present and though Mika still resented it he wanted her counsel.
+
+Mama, I am sad.
+
+Let us talk, his mother said. 
+
+She told the girls to keep up the work and to finish the hide they were working on and then they could take a break. This renewed their enthusiasm.
+
+Mika and Ama walked together along the road that led out of the village. The gates were open this time of year. From here they could hear the children playing in the arena, their laughter.
+
+Why are you not in the arena with your friends?
+
+I was there. I lost to Mohe.
+
+Is that why you are sad?
+
+No, mama.
+
+Of course it isn’t. Ama looked at him with understanding. Now tell me what is wrong, my son.
+
+Mika was upset to the point of tears. He wondered if he should tell his mother everything, her eyes so full of compassion. She wanted him to be happy. But he could not tell her. Not even her.
+
+Father asked something of me, the night of his death, a thing I must do. So I tell myself Mika this thing can wait. There is time enough to do it later. But when I try to enjoy the things I did before it is there and there is no joy in those things anymore.
+
+Mika stopped in the road and his mother did the same. He looked towards the far mountains partially hidden by the hills. His mother followed his eyes but did not speak or asked him why he looked there.
+
+I want to play games with my friends again. I want it to be like it was before when life was fun and carefree. Now there is always the voice of my father. It pulls me away from them.
+
+Ama reached out and feathered the hair that fell into Mika’s eyes. This show of tenderness caused a tear to fall and he was ashamed because that was not a thing men did.
+
+Look at me, Mika.
+
+He looked.
+
+My son, your heart is divided. You must do what it asks of you or there will be no end to your suffering. You must do the thing your father has asked of you. Do not be afraid. Your friends will still be here. You will play games with them again. Like it was before. But first there must be peace within you.
+
+Is all that true? Mika asked. His eyes lifted and he smiled.
+
+It is.
+
+Mika and his mother embraced and then returned inside the gates of the village. The late afternoon sun shone through the gate poles and lit geometrical shapes on the path where they walked. It was time for supper and in the air was an aroma of fresh barbecued fish and bread baking on the fire.
+
+~
+
+
 
