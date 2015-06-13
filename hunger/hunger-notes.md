@@ -963,3 +963,5 @@ Tye - his good friend, not as good at sports or hunt
 Mother is teaching a girl to flesh a deer skin
 Moho is flirting with Leoti
 He could see the disappointment
+
+'I don't know why. I only know it was asked of me.'
