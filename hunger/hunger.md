@@ -193,7 +193,7 @@ With these few items he stepped on the path that headed outside the Northern gat
 
 Let me out you lazy dog, Mika said. 
 
-He gave his friend a soft kick in the side and Gawoki startled awake. Mika laughed.
+He gave his friend a soft kick in the side and Gawoni startled awake. Mika laughed.
 
 Why do you laugh? Gawoni said. He stretched both arms above him and yawned like a mountain lion. I was awake.
 
@@ -201,18 +201,26 @@ Again Mika asked his friend to open the gate. Gawoni, when his eyes adjusted to 
 
 Where are you going so early in the morning?
 
-Mika answered, To do the thing my father asked of me just before he passed away.
+Mika answered, To do the thing my father asked of me.
 
-Why?
+But where?
 
-I don’t know why. I only know it was asked of me. So I must do it.
+To the mountains in the far north.
+
+Why must you do this?
+
+I don’t know why. I only know that it was asked of me.
 
 What is the bucket for?
 
-That I cannot say.
+That I cannot tell.
 
-You are a strange one, Gawoni said. It was much too early to argue and he swung open one of the gates. Mika walked outside and heard the gate close behind him. He turned to see Gawoni headed back under the archer platform.
+It was much too early to argue like this so Gawoni swung open one of the wooden gates just enough for him to pass.
 
-So long, my friend.
+You are a strange one, Mika, but I wish you luck.
 
-So long and safe travels.
+Mika walked and heard the gate shut behind him. He turned to see Gawoni returning to his spot underneath the archer platform.
+
+So long, Gawoni.
+
+When you return make sure it is not so early in the morning, okay?
