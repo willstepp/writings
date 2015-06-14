@@ -173,9 +173,9 @@ Ama reached out and feathered the hair that fell into Mika’s eyes. This show o
 
 Look at me, Mika.
 
-He looked.
+He did so.
 
-My son, your heart is divided. You must do what it asks of you or there will be no end to your suffering. You must do the thing your father has asked of you. Do not be afraid. Your friends will still be here. You will play games with them again. Like it was before. But first you must find peace within.
+My son, your heart is divided. You must do what it asks of you or there will be no end to your suffering. Do not be afraid. Your friends will still be here. You will play games with them again. Like it was before. But first you must find peace within you.
 
 Is all that true? Mika asked. His eyes lifted and he smiled.
 
@@ -201,7 +201,7 @@ Again Mika asked his friend to open the gate. Gawoni, when his eyes adjusted to 
 
 Where are you going so early in the morning?
 
-Mika answered, To do the thing my father asked of me.
+To do what my father asked of me.
 
 But where?
 
@@ -209,21 +209,21 @@ To the mountains in the north.
 
 Why must you do this thing?
 
-I don’t know why. I only know that it was asked of me.
+I was not told why. I was only told what to do.
 
 What is the bucket for?
 
-That I cannot tell.
+That I do know but I cannot tell you. Please don't be angry.
 
-It was much too early to argue like this so Gawoni swung open one of the wooden gates just enough for him to pass.
+Gawoni sighed. It was much too early for this so he swung open one of the wooden gates just enough for Mika to pass.
 
-You are a strange one, Mika, but I wish you luck.
+You are a strange one, Mika. Safe travels.
 
-Mika walked and heard the gate shut behind him. He turned to see Gawoni returning to his spot underneath the archer platform.
+Mika walked outside and heard the gate shut behind him. He turned to see Gawoni returning to his napping spot under the platform.
 
 So long, Gawoni.
 
-When you return make sure it is not so early in the morning, okay?
+Do me a favor. When you return make sure it is after sunrise.
 
 Now that he was alone it was not so bad. The dirt path ended not too far away from the village and then there was just the river to guide him. But it was a fine guide. The directions clear. When the morning sun appeared over the hills it reflected off of the surface of the water and shined into his eyes. He shielded them and kept walking.
 
