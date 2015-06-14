@@ -1,24 +1,25 @@
 HUNGER by Daniel Stepp
 
 
-A crescent moon hung in the stars to the East and when Mika saw it behind the trees he knew it was morning and yet hours before sunrise. The boy followed behind an old woman who had roused him from slumber only moments before. How strange this was. The hush in the air. The frowns of the tribal elders they passed. The chants of the young women, some his friends, who beat on turtle-shell rattles and whose eyes seem to gaze upon a faraway place. He wondered if this were some dream he had yet to awaken from. 
+A crescent moon hung in the stars to the East and when Mika saw it behind the trees he knew it was morning and yet hours before sunrise. The boy followed behind the old woman who had roused him from slumber only moments before. How strange it all was. The hush in the village at this hour. The frowns of the tribal elders they passed by on their way. The chants of the young girls, some his friends, who beat on turtle-shell rattles and whose eyes seem to gaze upon a faraway place. He wondered if this were some dream he had yet to awaken from. 
 
 Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The one on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. Mika's father was the shaman of the village and would have been performing the ritual tonight were it not him who lay inside.
 
-His guide parted the deerskin that hung over the small entrance and then stood aside and joined the girls in their chant. Mika entered alone.
+His guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. Mika entered alone.
 
-Inside were three others. Yaholo was a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the rite. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And next to the wall on a bed woven from reed was his father, Sakima.
+Inside were three others. Yaholo was there, a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the ritual. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And on a bed woven from reed was his father Sakima.
 
-No one had told him what to do, but he approached the bed and placed his hand upon his father's. The skin was dry and cold. This was surprising because it was so hot in the sweat house, the coals in the center giving off so much heat and light he felt his back getting hot. The old man was not conscious. His eyes rolled back. His head turned from one side to the other. He seemed in great pain.
-Mika turned to Yaholo and made eye contact with him. But Yaholo only repeated the words and looked through him. He also gazed upon a faraway place.
+No one had told him what to do once inside, but he approached his father and placed his hand upon his. The skin was dry and cold. This surprised him since it was so hot in the house, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not conscious. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
 
-There was a jar of water on a table and Mika picked it up and poured some into his hand and gave it to his father. When the moisture hit Sakima's lips he came around and his eyes focused on his son. There were tears in them. Strength returned to his hand and he took the smaller hand of his son into his.
+Mika turned to Yaholo and made eye contact with him. But Yaholo looked through him. He also gazed upon the faraway place.
+
+There was a jar of water on a table and Mika poured some into his hand and fed it to his father. When the moisture hit Sakima's lips he came around and recognized his son. There were tears in his eyes. He took the smaller hands of his son into his and squeezed them.
 
 Son, his father said, come to me.
 
-Mika placed his head against his father's chest and smelled a bitter salve. He looked upward at the ceiling and saw the shadows of Yaholo's movements dance across the mud plaster of the ceiling. Then in the corner, underneath a bench, he saw a chicken perched. Mika grew angry at it being there. What place did it have here? Those stupid black eyes watching all.
+Mika placed his head against his father's chest and smelled a bitter salve. He looked towards the ceiling and saw the shadows of Yaholo's movements dance across the ceiling plaster. Then in the corner, underneath a bench, he saw a chicken perched. Oblivious to what was going on. Mika grew angry at it being there. What place did it have here? Its stupid black eyes watching all.
 
-Then his father Sakima whispered something into his ear and Mika forgot the chicken and everything else in the hut vanished. There were only the words and the weak, foul breath in his ear. Sakima asked something of him, his will. And when there was nothing more to say the old man collapsed onto his back and went unconscious again. The boy rose and looked at his father, unsure if he had heard right. Then he looked at his mother in the corner. Her eyes were wet with tears. He went to console her.
+Then his father Sakima whispered something into his ear and Mika forgot the chicken and everything else in the hut. There were only the words and the sick, foul breath in his ear. Sakima asked something of him, his will. And when there was nothing more to say the old man collapsed onto his back and went unconscious again. The boy rose and looked at his father, unsure if he had heard right. Then he looked at his mother in the corner. Her eyes were wet with tears. He went to console her.
 
 Yaholo approached Sakima and suddenly his voice grew in volume. He pulled a baton decorated in green soapstone and shook it rhythmically over the sick man. From the corner of the building Mika and his mother watched. Sakima came to life once more and shook from the core of his body. He was in great pain. Mika left to tend to him but his mother pulled him back. He saw the stupid chicken under the bench now pecking at the dirt and this filled Mika with rage. He escaped his mother's embrace and chase it outside but then his father let out a cry unlike anything he had ever heard from him.
 
@@ -72,7 +73,7 @@ The old Kulsathee told a story of how he and Sakima were out hunting one day, fa
 
 These green valleys, he said. How we loved them. We found deer and pigs, squirrels and turkey. And then my good friend, Sakima the brave, he took a walk by himself one morning in a dense fog and discovered our tree by accident. Kulsathee gestured toward its dead, ancient branches and everyone looked at it.
 
-Sakima discovered the tree and had a vision that misty morning. He foresaw that our people would establish a village here on this same spot. So we returned and told the elders what we had found and about the vision Sakima had been given. But the elders laughed at Sakima and called him just a boy. The next year was the bloody war among the plains people and we were uprooted, our homes burned, our crops destroyed. We traveled here as it seemed a safe haven from the death and desolation of the plains. From that point on his visions were respected and he became shaman.
+Sakima discovered the tree and had a vision on that misty morning. He foresaw that our people would establish a village here on this same spot. So we returned and told the elders what we had found and about the vision Sakima had been given. But the elders laughed at Sakima and called him just a boy. The next year was the bloody war among the plains people and we were uprooted, our homes burned, our crops destroyed. We traveled here as it seemed a safe haven from the death and desolation of the plains. From that point on his visions were respected and he became shaman.
 
 The old *Chief of Peace* continued to tell stories of Sakima well into the morning. He told of the establishment of the tribe in the hills around. He told of the first council that united the neighboring tribes together. And when he was done there were tears in his eyes and the people watching were amazed as they had never seen him show emotion as he did that night.
 
@@ -242,7 +243,7 @@ He kindled a fire in the grass and watched the sun go down and the stars emerge 
 
 Mika had thought the nights rest would heal the soreness in his legs and back and make the blisters on his palms better. But it was worse today. He walked slower but made progress.
 
-You are soft, Mika, he scolded himself, This deed is not for boys but for men.
+You are soft, Mika, he scolded himself, This deed is not for a boy but for a man. And you are no man.
 
 He wrapped the handle of the bucket with blades of grass to make it softer but it helped little. They bled and the pain from them was nearly constant. He had to stop for rest more often on the second day. He ate more of the food. Indeed there was not much of it left, but that was no matter. When he stopped for the day he caught a fish in the river with some line he brought in the satchel and cooked it over the fire. Again he felt his strength return.
 
@@ -252,6 +253,32 @@ But he was lonely. He missed the people from his tribe. Missed seeing them each 
 
 After the third day the fried cakes ran out and he relied on the fish in the river alone to nourish him. He made steady progress even as the landscape inclined. But on the third night he caught no fish, there were none, and that night he went to bed hungry and woke up the next morning with no strength even to fish let alone continue his journey.
 
-How weak I am, Mika said aloud, what would my father say if he could see me now? My last request was wasted on you. You are not ready. You cry like a baby because your feet hurt and your palms bleed. Shameful.
+How weak I am, Mika said aloud, what would my father say if he could see me now? You are not ready to do the thing I asked of you. You cry like a baby because your feet hurt and your palms bleed. I am ashamed.
 
-Mika lay in the grass feeling ashamed and hungry and lonely for his tribe. He was so hungry. Just a little nourishment and he would be fine again. He could continue. Where were the fish? Why could he not catch a single one? He sat up and looked towards the far mountains. So far away they were. They did not look any closer than when he first began. The day ended and he had not made any progress and was low in spirit. He slept with no fire that night.
+Mika lay in the grass feeling low and hungry and lonely for company. He was so hungry. Just a little nourishment and he would be good again. He could continue. Where were the fish? Why had the river not produced any for him? He sat up and looked towards the far mountains. So far away they were. They looked no closer than when he first began. The day ended and Mika had not made any progress and was low in spirit and very hungry. He slept with no fire that night.
+
+He arose early the next morning and began the journey home. He followed the tracks he had made the entire way and felt a deep shame. His hunger never abated. He never caught any fish. Sometimes he found a bush with berries and they gave him some energy. He reached the place where the plains ended and the trees of the valley began. 
+
+It was late afternoon when he rounded the bend and saw the familiar wooden walls that protected his village. Since it was day the gates were open and he walked in. Several of his friends saw him.
+
+Where have you been? They asked, but Mika did not answer. He went to the summer hut he shared with his mother and found her there boiling beans over a fire. When she saw her son she gasped.
+
+How thin you are. And weak. Come inside and rest. I will make you something to eat.
+
+She prepared bread and salted meat and also dried peaches. He ate it all down as his mother looked on, worried but silent. In the corner she saw the empty bucket he had brought inside, but did not ask what it was for. When he was done she washed the blisters on his palms. By now it was evening and the stars had begun to appear overhead.
+
+Mika lay down. His mother gave him a kiss on the forehead.
+
+How does it feel now that you have done your father’s will? He is surely proud of his son. I am proud of you.
+
+That night Mika could not sleep at all and his view of the bright stars from the opening in the roof was obscured by tears.
+
+~
+
+One of his chores each morning was to feed the chickens in the yard but on this morning when he went out there with the bag of feed he did not see them. He did not hear them either so he went to the small shed with hay inside where they slept. Just outside he saw the same chicken who was in the sweat house the night his father died. It lay on its side unmoving. Its stupid black eyes covered in a milky film. Mika knelt and looked inside at the others. They were all dead.
+
+He inspected the feed in the bag and saw that some kernals were covered in a fuzzy black mold. He found some on the ground and saw the same mold.
+
+Mika ran into the center of the village where the feed was stored and saw a group gathered there. They all carried bags of corn and other dried goods. There was a sense of worry in the air as they showed one another the contaminated grains and debated about what it could be. Mika recognized the same fuzz on all their food.
+
+Yonaguska was in charge of the dry good storage and someone ran to wake him. When he arrived he inspected the grains and deeply frowned. He told one of the boys to fetch Kulsathee and the other elders. Then he led the group into the graineries where all the corn was kept in the village. There was a central place for it but every person had access to it and could take whatever  they needed.
