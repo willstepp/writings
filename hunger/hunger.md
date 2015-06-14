@@ -2,6 +2,7 @@ HUNGER by Daniel Stepp
 
 
 A crescent moon hung in the stars to the East and when Mika saw it behind the trees he knew it was morning and yet hours before sunrise. The boy followed behind an old woman who had roused him from slumber only moments before. How strange this was. The hush in the air. The frowns of the tribal elders they passed. The chants of the young women, some his friends, who beat on turtle-shell rattles and whose eyes seem to gaze upon a faraway place. He wondered if this were some dream he had yet to awaken from. 
+
 Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The one on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. Mika's father was the shaman of the village and would have been performing the ritual tonight were it not him who lay inside.
 
 His guide parted the deerskin that hung over the small entrance and then stood aside and joined the girls in their chant. Mika entered alone.
@@ -26,9 +27,10 @@ He was awake again. His eyes wide. He raised from the bed like a statue and yell
 Will you?
 
 All turned to Mika as his father asked him this question repeatedly. Mika did not answer. Then Sakima collapsed onto the bed again and shouted in pain and a few minutes later grew silent, eyes rolled back in his head, much as he had when Mika had first entered the hut. And when the boy saw the chicken again next to the bed he could take no more of it and ran outside.
-The air outside was cool. The others stood in silence and looked to Mika see find out what was going on. He ignored them and ran to the center of the village, a clearing one acre square, the ceremonial ground where many times he and his father had sat together.
 
-In the middle of the ceremonial ground was an old, dead tree. It had wide, gnarled branches good to climb and rose high above the surrounding trees of the forest. It bark was smooth and stone-like. The tree was sacred to the village. Its symbol in fact. The tree was not from this time. It was from another, more ancient world than theirs. Mika had climbed on it since he was a boy and he asked his father about it, where it had come from, and his father had always said he didn't know. He used to imagine the creatures who inhabited the world when it lived, feeding on its leaves.
+The air outside was cool. The others stood in silence and looked to Mika in order to know what was going on. He ignored them and ran to the center of the village, a clearing one acre square, the ceremonial ground where many times he and his father had sat together.
+
+In the middle of the ceremonial ground was an old tree. It had wide, gnarled branches good to climb and rose high above the surrounding trees of the forest. It bark was smooth and stone-like. The tree was sacred to the village. Its symbol in fact. The tree was not from this time. It was from another, more ancient world than theirs. Mika had climbed on its limbs since he was a boy and had always asked his father questions about it, how old it was, where it had come from, and his father had always answered that nobody knew. Mika used to imagine the strange creatures who must have inhabited the world when it lived and who were perhaps nourished by its leaves.
 
 Now he sat at the base of the tree alone. It was the darkest time of night. The stars were gone. The morning yet to come. He remembered times he shared with his father under the tree and soon fell asleep. Later, after the shaman had passed from this world into the next, his mother found him there shivering and wrapped a blanket around him.
 
@@ -158,7 +160,7 @@ Is that why you are sad?
 
 No, mama.
 
-Of course it isn’t. Ama looked at him with understanding. Now tell me what is wrong, my son.
+Ama looked at him with understanding. Of course it isn’t. Now tell me what is wrong, my son.
 
 Mika was upset to the point of tears. He wondered if he should tell his mother everything, her eyes so full of compassion. She wanted him to be happy. But he could not tell her. Not even her.
 
@@ -174,17 +176,17 @@ Look at me, Mika.
 
 He did so.
 
-My son, your heart is divided. You must do what it asks of you or there will be no end to your suffering. Do not be afraid. Your friends will still be here. You will play games with them again. Like it was before. But first you must find peace within you.
+My son, your heart is now divided. You must do what it asks of you or you will have no peace. Do not be afraid. Your friends will wait for you. You will play games with them again. Like it was before, it will be again. But first you must find peace.
 
-Is all that true? Mika asked. His eyes lifted and he smiled.
+Is all that really true? Mika asked. His eyes welled with tears but he smiled with hope.
 
-Yes it is.
+Yes it is true.
 
 Mika and his mother embraced and then returned inside the gates of the village. The late afternoon sun shone through the gate poles and lit geometrical shapes onto the path where they walked. It was time for supper and in the air was an aroma of fresh barbecued fish and bread baking on the fire.
 
 ~
 
-Before light Mika rose. He was careful not to wake his mother who slept next to him. In the darkness of morning he found his knife and the sheathe with a strap to go around his shoulder. Ama the night before had prepared some fried bread cakes, good food for travel, and wrapped them in a thin cloth. He put those in a satchel also strapped around his shoulder. There was no need to take any water as he would be following the river and could drink from it whenever he was thirsty.
+Before dawn Mika rose. He was careful not to wake his mother who slept next to him. In the darkness of morning he found his knife and the sheathe with a strap to go around his shoulder. Ama the night before had prepared some fried bread cakes, good food for travel, and wrapped them in a thin cloth. He put those in a satchel also strapped around his shoulder. There was no need to take any water as he would be following the river and could drink from it whenever he was thirsty.
 
 There was an old bucket in the storage shed his father had used. Most of the contents of the shed were now dispersed to others in the tribe, but nobody had yet found a need for this bucket, and Mika was happy to find it there just as he remembered.
 
@@ -194,13 +196,13 @@ Let me out you lazy dog, Mika said.
 
 He gave his friend a soft kick in the side and Gawoni startled awake. Mika laughed.
 
-Why do you laugh? Gawoni said. He stretched both arms above him and yawned like a mountain lion. I was awake.
+Why do you laugh? Gawoni said. He stretched both arms above him and yawned like a mountain lion. I was awake the whole time.
 
 Again Mika asked his friend to open the gate. Gawoni, when his eyes adjusted to the dim light of morning, gave Mika a strange look.
 
 Where are you going so early in the morning?
 
-To do what my father asked of me.
+To do what my father has asked of me.
 
 But where?
 
@@ -208,23 +210,23 @@ To the mountains in the north.
 
 Why must you do this thing?
 
-I was not told why. I was only told what to do.
+He did not say. He only told me what to do.
 
 What is the bucket for?
 
-That I do know but I cannot tell you. Please don't be angry.
+I cannot tell you. Please don't be angry.
 
 Gawoni sighed. It was much too early for this so he swung open one of the wooden gates just enough for Mika to pass.
 
-You are a strange one, Mika. Safe travels.
+You are a strange one, Mika, that is for sure. Safe travels to you.
 
 Mika walked outside and heard the gate shut behind him. He turned to see Gawoni returning to his napping spot under the platform.
 
 So long, Gawoni.
 
-Do me a favor. When you return make sure it is after sunrise.
+Do me a favor and when you return make sure it is after sunrise.
 
-Now that he was alone it was not so bad. The dirt path ended not too far away from the village and then there was just the river to guide him. But it was a fine guide. The directions clear. When the morning sun appeared over the hills it reflected off of the surface of the water and shined into his eyes. He shielded them and kept walking.
+Now that he was out here it was not so bad. The dirt path ended not too far away from the village and then there was just the river to guide him. But it was a fine guide. The directions clear. When the morning sun appeared over the hills it reflected off of the surface of the water and shined into his eyes. He shielded them and kept walking.
 
 Once he left the valley he came to a wide plain. Here for the first time he had a clear view of the far mountains. The peaks of it were covered in snow.
 
@@ -234,15 +236,13 @@ The bucket he carried in his left hand started to blister the palms so he switch
 
 His legs hurt. His back was sore. He rested in a field of tall grass. He went to the river bank and dunked his head under. The cold revitalized him. He cupped some water and drank it down. Then he sat in the grass and ate a few pieces of the fried bread. His energy returned.
 
-That is enough progress for today, he said aloud. Now I will rest for tomorrow.
+That is enough progress for today, he said aloud.
 
-He kindled a fire in the grass and watched the sun go down and the stars emerge in the heavens. So bright they were that night because it was the new moon. Then he lay in the grass and fell asleep almost immediately. He did not dream and did not open his eyes once until the morning sun rose over the horizon and illuminated the plains.
-
-He held one arm over his eyes to shield himself from the low sunrise. Its radiance warmed his skin and dried up the dew on the grass within the hour.
+He kindled a fire in the grass and watched the sun go down and the stars emerge in the heavens. So bright they were that night because it was the new moon. Then he lay in the grass and fell asleep almost immediately. He did not dream and did not open his eyes once until the morning sun rose over the horizon and illuminated the plains. He held one arm over his eyes to shield himself from the low sunrise. Its radiance warmed his skin and dried up the dew on the grass within the hour.
 
 Mika had thought the nights rest would heal the soreness in his legs and back and make the blisters on his palms better. But it was worse today. He walked slower but made progress.
 
-You are soft, Mika, he scolded himself, and this deed is not for boys.
+You are soft, Mika, he scolded himself, This deed is not for boys but for men.
 
 He wrapped the handle of the bucket with blades of grass to make it softer but it helped little. They bled and the pain from them was nearly constant. He had to stop for rest more often on the second day. He ate more of the food. Indeed there was not much of it left, but that was no matter. When he stopped for the day he caught a fish in the river with some line he brought in the satchel and cooked it over the fire. Again he felt his strength return.
 
@@ -250,7 +250,7 @@ Three more days passed in the same way. The soreness did not get better but he d
 
 But he was lonely. He missed the people from his tribe. Missed seeing them each morning. He missed his friends. He missed his mother. He thought of them always. What they were doing. What gossip there was. What they were eating for supper. He even missed Mohe. When he returned he would challenge him to a round and show him what’s what. These thoughts passed the time but they made him very lonely and especially at night when there was nothing else around to distract him.
 
-After the third day the fried bread ran out and he relied on the fish in the river alone to nourish him. He made steady progress even as the landscape inclined. But on the third night he caught no fish, there were none, and that night he went to bed hungry and woke up the next morning with no strength even to fish let alone continue his journey.
+After the third day the fried cakes ran out and he relied on the fish in the river alone to nourish him. He made steady progress even as the landscape inclined. But on the third night he caught no fish, there were none, and that night he went to bed hungry and woke up the next morning with no strength even to fish let alone continue his journey.
 
 How weak I am, Mika said aloud, what would my father say if he could see me now? My last request was wasted on you. You are not ready. You cry like a baby because your feet hurt and your palms bleed. Shameful.
 
