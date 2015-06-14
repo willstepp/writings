@@ -205,9 +205,9 @@ Mika answered, To do the thing my father asked of me.
 
 But where?
 
-To the mountains in the far north.
+To the mountains in the north.
 
-Why must you do this?
+Why must you do this thing?
 
 I don’t know why. I only know that it was asked of me.
 
@@ -224,3 +224,35 @@ Mika walked and heard the gate shut behind him. He turned to see Gawoni returnin
 So long, Gawoni.
 
 When you return make sure it is not so early in the morning, okay?
+
+Now that he was alone it was not so bad. The dirt path ended not too far away from the village and then there was just the river to guide him. But it was a fine guide. The directions clear. When the morning sun appeared over the hills it reflected off of the surface of the water and shined into his eyes. He shielded them and kept walking.
+
+Once he left the valley he came to a wide plain. Here for the first time he had a clear view of the far mountains. The peaks of it were covered in snow.
+
+But though he was away from the village, away from his friends and all the people that loved him, finally there was a calm inside him. He did not think of the words of his father now. He had no need to. 
+
+The bucket he carried in his left hand started to blister the palms so he switched it to the right. But then after an hour it began to blister the right and he switched again. This time there was no avoiding the blisters and he knew when the skin broke because it was a sharp pain now.
+
+His legs hurt. His back was sore. He rested in a field of tall grass. He went to the river bank and dunked his head under. The cold revitalized him. He cupped some water and drank it down. Then he sat in the grass and ate a few pieces of the fried bread. His energy returned.
+
+That is enough progress for today, he said aloud. Now I will rest for tomorrow.
+
+He kindled a fire in the grass and watched the sun go down and the stars emerge in the heavens. So bright they were that night because it was the new moon. Then he lay in the grass and fell asleep almost immediately. He did not dream and did not open his eyes once until the morning sun rose over the horizon and illuminated the plains.
+
+He held one arm over his eyes to shield himself from the low sunrise. Its radiance warmed his skin and dried up the dew on the grass within the hour.
+
+Mika had thought the nights rest would heal the soreness in his legs and back and make the blisters on his palms better. But it was worse today. He walked slower but made progress.
+
+You are soft, Mika, he scolded himself, and this deed is not for boys.
+
+He wrapped the handle of the bucket with blades of grass to make it softer but it helped little. They bled and the pain from them was nearly constant. He had to stop for rest more often on the second day. He ate more of the food. Indeed there was not much of it left, but that was no matter. When he stopped for the day he caught a fish in the river with some line he brought in the satchel and cooked it over the fire. Again he felt his strength return.
+
+Three more days passed in the same way. The soreness did not get better but he did get better at living with it. Now in the distance he could see the end of the plains because there were hills and the grass became more sparse. 
+
+But he was lonely. He missed the people from his tribe. Missed seeing them each morning. He missed his friends. He missed his mother. He thought of them always. What they were doing. What gossip there was. What they were eating for supper. He even missed Mohe. When he returned he would challenge him to a round and show him what’s what. These thoughts passed the time but they made him very lonely and especially at night when there was nothing else around to distract him.
+
+After the third day the fried bread ran out and he relied on the fish in the river alone to nourish him. He made steady progress even as the landscape inclined. But on the third night he caught no fish, there were none, and that night he went to bed hungry and woke up the next morning with no strength even to fish let alone continue his journey.
+
+How weak I am, Mika said aloud, what would my father say if he could see me now? My last request was wasted on you. You are not ready. You cry like a baby because your feet hurt and your palms bleed. Shameful.
+
+Mika lay in the grass feeling ashamed and hungry and lonely for his tribe. He was so hungry. Just a little nourishment and he would be fine again. He could continue. Where were the fish? Why could he not catch a single one? He sat up and looked towards the far mountains. So far away they were. They did not look any closer than when he first began. The day ended and he had not made any progress and was low in spirit. He slept with no fire that night.

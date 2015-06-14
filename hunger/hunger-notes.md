@@ -965,3 +965,4 @@ Moho is flirting with Leoti
 He could see the disappointment
 
 'I don't know why. I only know it was asked of me.'
+Mika sees the same hen with the black eyes dead
