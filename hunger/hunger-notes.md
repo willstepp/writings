@@ -53,7 +53,7 @@ make conversation. Then leaves. Clear that she likes him.
 Don't be cute or clever in narration. Be serious and write about things with 
 authority. Do not over-explain.
 
-A blight that wipes out crops, destroyed the food stores, poisoned the beasts 
+A blight that wipes out crops, destroyed the food stores, poisoned the game 
 and livestock.
 
 Notes from Records of the Moravians among the Cherokees:

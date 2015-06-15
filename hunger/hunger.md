@@ -275,10 +275,43 @@ That night Mika could not sleep at all and his view of the bright stars from the
 
 ~
 
-One of his chores each morning was to feed the chickens in the yard but on this morning when he went out there with the bag of feed he did not see them. He did not hear them either so he went to the small shed with hay inside where they slept. Just outside he saw the same chicken who was in the sweat house the night his father died. It lay on its side unmoving. Its stupid black eyes covered in a milky film. Mika knelt and looked inside at the others. They were all dead.
+One of Mika’s chores every morning was to feed the chickens in the yard, but on this morning when he went out there with the bag of feed he did not see them. He did not hear them either so he went to the small shed with hay inside where they slept. Just outside he saw the same chicken who was in the sweat house the night his father died. It lay on its side without moving. Its black eyes were covered in a milky film. The boy knelt and looked inside the shed at the others. They were all dead.
 
-He inspected the feed in the bag and saw that some kernals were covered in a fuzzy black mold. He found some on the ground and saw the same mold.
+He looked at the feed in the bag and saw that a few kernals were covered in a black fuzz. He found some kernals on the ground and discovered the same thing.
 
-Mika ran into the center of the village where the feed was stored and saw a group gathered there. They all carried bags of corn and other dried goods. There was a sense of worry in the air as they showed one another the contaminated grains and debated about what it could be. Mika recognized the same fuzz on all their food.
+Mika ran into the center of the village where all the corn in the village was stored and saw people gathered. They all carried bags of corn and other dry goods. There was a sense of worry in the air as they showed one another the contaminated grains and debated about what it could be. Mika recognized the same black fuzz on all their food.
 
-Yonaguska was in charge of the dry good storage and someone ran to wake him. When he arrived he inspected the grains and deeply frowned. He told one of the boys to fetch Kulsathee and the other elders. Then he led the group into the graineries where all the corn was kept in the village. There was a central place for it but every person had access to it and could take whatever  they needed.
+Yonaguska was in charge of the dry good storage in the village he was duly fetched. When he arrived he inspected the grains and  frowned deeply. He told one of the boys to fetch Kulsathee and the other elders. Then he led the group into the graineries where all the corn was kept. There was a central place for it but every person had access to it and could take from it whatever they needed.
+
+It was dark inside but with some of the light from the door it was still plain all the corn inside was also contaminated.
+
+When the elders arrived they were shown the grains. They also frowned. Then one of Mika’s neighbors spoke up.
+
+My pigs ate of this food and now some are sick. Some are dead. What do we do now?
+
+Others said the same thing of their own livestock. Mika told how he had discoverd his chickens. Though it made no sense, the black fuzz had seemed to appear overnight, as nobody had seen it before. By this time the group had grown to a hundred people, everyone carrying examples of contaminated food. Nothing seemed immune to it.
+
+The elders next wanted to inspect the crops in the fields. As a group they went to the Western side of the village where there were large square plots of soil. Every other plot was planted with a particular crops since they rotated by season to not deplete the nutrients. There was mostly corn. Some beans. Peppers. Some squash and pumpkin. Potatoes. Tomatoes. Even spices like mint and cinnamon. From a distance the crops looked fine but upon inspection there was the same black mold growing.
+
+A group of hunters returned at noon that day and they reported game in the forests had been found ill, just as the livestock had been. They brought examples of the mold growing on wild plants.
+
+Panic had been increasing since the morning. Then there was a cry that came from the house of Ninovan and a mother ran through the village carrying Kanuna, her young boy. His skin was blue and there was no life in his eyes which were open. She found the group gathered by the storage buildings and lay him on the ground and asked for their help. Yaholo was fetched and looked the boy over. He said a few words of prayer but there was nothing to be done. He was gone. The mother of Kanuna said her son had eaten some bread and peaches this morning.
+
+Then there were reports from others that some elderly become very sick after eating. Children too.
+
+Kulsathee and the elders told everyone to avoid the food all around until it was determined safe to eat. Since nobody knew how to determine what was safe every kind of food was brought and inspected. The sick were asked what they had eaten that morning and the night before. Strangely it seemed potatoes were the only thing not contaminated by the mold so far and each family horded what they had of them in secret.
+
+Yaholo was asked to perform rites of purification. He consulted some old writings, since that ritual had not been performed for many, many years. And thought nobody truly believed it would work they did not know what else to do.
+
+The potato crops were harvested early and kept secure in an isolated shed by Yonaguska. Each day they were rationed out to the families since every other food source was unsafe.
+
+In the following days they discovered more crop contaminated by the black mold and livestock in the village and game in the wilds were found dead or dying. Of the tribe illness affected the elderly and the young more than the others. A very sick elder passed the second night. No other children died.
+
+As the stores of potatoes grew scarce there was a growing panic among the people. Some families ran out faster than others and began to trade clothing and hunting equipment. Some who kept more potatoes than others profited greatly in those days.
+
+Mika and his mother kept an average share of potatoes. They did without breakfast and supper and consumed a single one between them daily, cooking it slow in a pot of boiling water. A struggling father of four came to their hut that night and begged a single potato and at first Ama refused but pitied the man, who had once been a proud hunter, and gave him two.
+
+Kulsathee called a meeting in the ceremonial grounds the following day and made it mandatory for every member of the tribe to attend. That night there was silence throughout the village as each family prayed to be saved from this blight.
+
+~
+
