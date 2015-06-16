@@ -301,7 +301,7 @@ Then there were reports from others that some elderly become very sick after eat
 
 Kulsathee and the elders told everyone to avoid the food all around until it was determined safe to eat. Since nobody knew how to determine what was safe every kind of food was brought and inspected. The sick were asked what they had eaten that morning and the night before. Strangely it seemed potatoes were the only thing not contaminated by the mold so far and each family horded what they had of them in secret.
 
-Yaholo was asked to perform rites of purification. He consulted some old writings, since that ritual had not been performed for many, many years. And thought nobody truly believed it would work they did not know what else to do.
+Yaholo was asked to perform rites of purification in order to cleanse the food. He consulted some old writings since that particular ritual had not been performed for generations. Though nobody truly believed in the words of the rite to do anything it gave the tribe hope and had value for that reason.
 
 The potato crops were harvested early and kept secure in an isolated shed by Yonaguska. Each day they were rationed out to the families since every other food source was unsafe.
 
@@ -309,9 +309,41 @@ In the following days they discovered more crop contaminated by the black mold a
 
 As the stores of potatoes grew scarce there was a growing panic among the people. Some families ran out faster than others and began to trade clothing and hunting equipment. Some who kept more potatoes than others profited greatly in those days.
 
-Mika and his mother kept an average share of potatoes. They did without breakfast and supper and consumed a single one between them daily, cooking it slow in a pot of boiling water. A struggling father of four came to their hut that night and begged a single potato and at first Ama refused but pitied the man, who had once been a proud hunter, and gave him two.
+Mika and his mother kept an average share of potatoes. They did without breakfast and supper and consumed a single one between them daily, cooking it slow in a pot of boiling water. A struggling father of four came to their hut that night and begged a single potato and at first Ama refused but pitied the man, who was a proud hunter, and gave him two.
 
-Kulsathee called a meeting in the ceremonial grounds the following day and made it mandatory for every member of the tribe to attend. That night there was silence throughout the village as each family prayed to be saved from this blight.
+Kulsathee called a meeting in the ceremonial grounds the following day and made it mandatory for every member of the tribe to attend. That night there was silence throughout the village as each family prayed to be saved from the blight.
 
 ~
+
+When the sun was directly overhead Kulsathee and the elders entered the ceremonial grounds. They wore wampum and carried the  staffs of tradition which bore carvings of great deeds from their tribal history. This they did at every meeting of vital importance to the tribe.
+
+Under the tree the people had gathered. The joy and easy living of Spring had been replaced by a desperate anxiety for what was to come. Mika and his mother sat on the ground in silence. He looked around for his friends and saw Leoti and her family near the back. She tended to her baby brother on a blanket and when she saw him she waved. He then saw Tye and his family. Theirs was a large family and had been struggling to feed everyone.
+
+The trunk and branches of the ancient tree provided some shade to them though it bore no leaves. Once again Mika thought of his father and the thing that had been asked of him. Because of the panic in the village he had put it out of his mind, but now it came back to him. His failure came back. But now was not the time for such things. Especially now.
+
+Kulsathee rose from the log bench and the entire group, perhaps three hundred of them, became silent in deference to their revered *Chief of Peace*. His old back was curved but he still carried the presence of a true leader. His voice boomed (when he wanted it too) and sounded something like the sound a large skin drum makes when it is struck. He said,
+
+Let me speak a few words and then you may return to your homes. You must know that a blight has come over our valley these last few days. It has affected our stores, our crops, our livestock. It has even affected the plants of the wilds and therefore has also affected the game that roam our forests. The only thing not affected at this time appears to be potatoes. Some people became ill and we lost a few dear ones. This is why we gave counsel to cease eating any food we know to be contaminated or with a danger to become contaminated.
+
+We do not know the source of this blight. We do know it acts like a mold and spreads from contact with other contaminated foods. It seems to spread through all varieties of plant, grain, vegetable, and fruit, except potato. We do not know why potatoes are immune and we counsel you to take care and inspect what you eat. Although the blight does not spread via animals or people it can make you sick, or in the case of the sick or small ones, it can kill.
+
+What can we do? A young father shouted. How can we feed our families when the potato stores are depleted?
+
+Some nearby scolded the man for his disrespect but Kulsathee calmed them with a wave of his hand. He was not upset by the outburst.
+
+Do not blame this man for his outburst. This good father has said what all of you want to say. I understand this well. Do not forget I am a father, and a grandfather, and soon to be a great grandfather!
+
+The people laughed and Kulsathee gestured to his large family sat nearby. His grand-daughter rubbed her belly and smiled bashfully.
+
+Fear not. Fear not because together we will overcome this blight. Myself and the elders have discussed many things over the past few days. We have taken counsel with the chief farmers and hunters among you in order to see what can be done. This is what we will do.
+
+Every man who is able to hunt will tomorrow set off on a journey to the next valley. It is a five day journey and we do not believe the blight has spread that far. Thus we will enter this valley and hunt deer, rabbit and other wild game. Accompanying this group will be a small group of women to gather fruits that can be dried and nuts and wild vegetables. There will also be a group of women whose specific job will be to dress the kills and salt them for the journey back. Because we want the hunters to hunt they will remain in the valley and we will set up a system of checkpoints whereby the kills will be delivered and passed onto the next. Then after a week the hunters will return for a break to see their families and to rest. And then we start the process again.
+
+By doing this we will be able to store enough meat to last through the year and through next Winter. The days are now long but we must not forget they will not always be so. We must not forget that our Mother the Earth is kind but she is also harsh. Above all we must be practical.
+
+~
+
+
+
+
 

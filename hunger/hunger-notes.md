@@ -966,3 +966,6 @@ He could see the disappointment
 
 'I don't know why. I only know it was asked of me.'
 Mika sees the same hen with the black eyes dead
+
+Second part opens after they have been on a week-long hunt outside the valley. Mika 
+is the hero, killing more than anyone else. Tye is at his side.
