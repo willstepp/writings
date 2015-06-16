@@ -1201,7 +1201,7 @@ As he walked out the front door, pushing the old dog sleeping out of the way, he
 
 Soon a cab pulled up quickly to the curb, Will wasted no time and jumped in the back seat. He gave the driver directions to the Clinic, but the driver nodded before he finished, knowing the place. He put down the flag, looked over his shoulder, and pulled back into the street. Will sat back and glanced out the window towards the group of beggars. There, on the old man's lap, was a crudely drawn sign in green marker.
 
-"Stop," Will said, "Let me out here. I have to do something else first."
+"Stop," Will said, "Let me out here. I have to do something."
 
 The driver stopped the cab and turned around to face him with an annoyed look.
 
@@ -1948,7 +1948,7 @@ He paused. Catalina noticed his hesitation.
 
 "What do you mean?"
 
-"I had this unbearably sad feeling. All the things that happened from the day before had left an darkness inside me, an unclean feeling. And when I saw that crippled old man there, he had the same look on his face, a look of utter sorrow. I wanted to reach out to him. I stopped the cab because I felt like if I could help him then it might cleanse those feelings my from heart. And so, that's what I did. I found out he wanted to visit his son in San Bernardo and I tried to pay his way but it was hopeless. He could not make it on his own. That became clear. But I couldn't back out of it. I knew I was going to be late to meet Constanza, but this felt more important than that. I don't know. Maybe I was still angry with her. But it wasn't that. It was so I could feel good again, to feel that lightness in my heart again.”
+"I had this unbearably sad feeling inside. All the things that happened from the day before had left me with a sadness I can't explain. And when I saw that crippled old man, he had the same look on his face. I wanted to reach out to him. I stopped the cab because I felt like if I could help him then, I don't know really. So that's what I did. I found out he wanted to visit his son in San Bernardo and I tried to pay his way but that was futile. He couldn't make it to the end of the block on his own. That was obvious. But I couldn't back out of it. I knew I was going to be late to meet Constanza but this felt more important. I don't know. Maybe I was still angry with her. But it wasn't that. It was the chance to feel something good again. One good thing.”
 
 Catalina had stopped writing down and watched him. Her eyes welled up as he spoke. She took his hand. Will felt the warmth of her hand wrap around his. He did not pull away. He did think it was a bit strange a government worker acting like this. He saw the cross on her necklace and understood.
 
