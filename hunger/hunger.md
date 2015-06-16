@@ -315,15 +315,15 @@ Kulsathee called a meeting in the ceremonial grounds the following day and made 
 
 ~
 
-When the sun was directly overhead Kulsathee and the elders entered the ceremonial grounds. They wore wampum and carried the  staffs of tradition which bore carvings of great deeds from their tribal history. This they did at every meeting of vital importance to the tribe.
-
 Under the tree the people had gathered. The joy and easy living of Spring had been replaced by a desperate anxiety for what was to come. Mika and his mother sat on the ground in silence. He looked around for his friends and saw Leoti and her family near the back. She tended to her baby brother on a blanket and when she saw him she waved. He then saw Tye and his family. Theirs was a large family and had been struggling to feed everyone.
 
-The trunk and branches of the ancient tree provided some shade to them though it bore no leaves. Once again Mika thought of his father and the thing that had been asked of him. Because of the panic in the village he had put it out of his mind, but now it came back to him. His failure came back. But now was not the time for such things. Especially now.
+The trunk and branches of the ancient tree provided some shade to the families though it bore no leaves. Once again Mika thought of his father and the thing that had been asked of him. Because of the panic in the village he had put it out of his mind, but now it came back to him. His failure came back. But now was not the time for such things. Mika understood this.
 
-Kulsathee rose from the log bench and the entire group, perhaps three hundred of them, became silent in deference to their revered *Chief of Peace*. His old back was curved but he still carried the presence of a true leader. His voice boomed (when he wanted it too) and sounded something like the sound a large skin drum makes when it is struck. He said,
+When the sun was directly overhead the elders emerged together from a large house and entered the ceremonial grounds. They wore wampum and carried the staffs of tradition, which bore carvings of great deeds from the tribe’s history. This they did at every meeting of vital importance to the tribe.
 
-Let me speak a few words and then you may return to your homes. You must know that a blight has come over our valley these last few days. It has affected our stores, our crops, our livestock. It has even affected the plants of the wilds and therefore has also affected the game that roam our forests. The only thing not affected at this time appears to be potatoes. Some people became ill and we lost a few dear ones. This is why we gave counsel to cease eating any food we know to be contaminated or with a danger to become contaminated.
+Kulsathee led the elders to the log bench and faced the entire group, perhaps three hundred of them. Everyone grew quiet in deference to the *chief of peace*. His old back was curved but he still carried the presence of a true leader. His voice boomed like the sound a large skin drum makes when it is struck.
+
+You must know that a blight has come over our valley these last few days. It has affected our stores, our crops, our livestock. It has even affected the plants of the wilds and therefore has also affected the game that roam our forests. The only thing not affected at this time appears to be potatoes. Some people became ill and we lost a few dear ones. This is why we gave counsel to cease eating any food we know to be contaminated or with a danger to become contaminated.
 
 We do not know the source of this blight. We do know it acts like a mold and spreads from contact with other contaminated foods. It seems to spread through all varieties of plant, grain, vegetable, and fruit, except potato. We do not know why potatoes are immune and we counsel you to take care and inspect what you eat. Although the blight does not spread via animals or people it can make you sick, or in the case of the sick or small ones, it can kill.
 
@@ -337,9 +337,9 @@ The people laughed and Kulsathee gestured to his large family sat nearby. His gr
 
 Fear not. Fear not because together we will overcome this blight. Myself and the elders have discussed many things over the past few days. We have taken counsel with the chief farmers and hunters among you in order to see what can be done. This is what we will do.
 
-Every man who is able to hunt will tomorrow set off on a journey to the next valley. It is a five day journey and we do not believe the blight has spread that far. Thus we will enter this valley and hunt deer, rabbit and other wild game. Accompanying this group will be a small group of women to gather fruits that can be dried and nuts and wild vegetables. There will also be a group of women whose specific job will be to dress the kills and salt them for the journey back. Because we want the hunters to hunt they will remain in the valley and we will set up a system of checkpoints whereby the kills will be delivered and passed onto the next. Then after a week the hunters will return for a break to see their families and to rest. And then we start the process again.
+Every man who is able to hunt will tomorrow set off on a journey to the next valley. It is a five day journey and we do not believe the blight has spread that far. Thus we will enter this valley and hunt deer, rabbit and other wild game. Accompanying this group will be a small group of women to gather fruits that can be dried and nuts and wild vegetables. There will also be a group of women whose specific job will be to dress the kills and salt them for the journey back. Because we want the hunters to hunt they will remain in the valley and we will set up a system of checkpoints whereby the kills will be delivered and passed onto the next. Then after a week the hunters will return for a break to see their families and to rest. And then we start again.
 
-By doing this we will be able to store enough meat to last through the year and through next Winter. The days are now long but we must not forget they will not always be so. We must not forget that our Mother the Earth is kind but she is also harsh. Above all we must be practical.
+By doing this we will be able to store enough meat to last through the year and through next Winter. The days are now long but we must not forget they will not always be so. We must not forget that our Mother the Earth is kind but she is also harsh. But our tribe is strong and will survive. We will not starve.
 
 ~
 
