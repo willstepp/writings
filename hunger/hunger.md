@@ -319,11 +319,11 @@ Under the tree the people had gathered. The joy and easy living of Spring had be
 
 The trunk and branches of the ancient tree provided some shade to the families though it bore no leaves. Once again Mika thought of his father and the thing that had been asked of him. Because of the panic in the village he had put it out of his mind, but now it came back to him. His failure came back. But now was not the time for such things. Mika understood this.
 
-When the sun was directly overhead the elders emerged together from a large house and entered the ceremonial grounds. They wore wampum and carried the staffs of tradition, which bore carvings of great deeds from the tribe’s history. This they did at every meeting of vital importance to the tribe.
+When the sun was directly overhead the elders emerged together from a large house and entered the ceremonial grounds. They wore wampum and carried the staffs of tradition, which bore carvings of great deeds from the tribe’s history.
 
 Kulsathee led the elders to the log bench and faced the entire group, perhaps three hundred of them. Everyone grew quiet in deference to the *chief of peace*. His old back was curved but he still carried the presence of a true leader. His voice boomed like the sound a large skin drum makes when it is struck.
 
-You must know that a blight has come over our valley these last few days. It has affected our stores, our crops, our livestock. It has even affected the plants of the wilds and therefore has also affected the game that roam our forests. The only thing not affected at this time appears to be potatoes. Some people became ill and we lost a few dear ones. This is why we gave counsel to cease eating any food we know to be contaminated or with a danger to become contaminated.
+You must know that a blight has come over our valley. It has affected our stores, our crops, our livestock. It has contaminated plants in the wilds and therefore has sickened game that roam our forests. The only thing not affected at this time are potatoes. Some of our people became ill and we lost some dear ones. This is why we gave counsel to cease eating any food we know to be contaminated or in danger to become contaminated.
 
 We do not know the source of this blight. We do know it acts like a mold and spreads from contact with other contaminated foods. It seems to spread through all varieties of plant, grain, vegetable, and fruit, except potato. We do not know why potatoes are immune and we counsel you to take care and inspect what you eat. Although the blight does not spread via animals or people it can make you sick, or in the case of the sick or small ones, it can kill.
 
@@ -337,13 +337,36 @@ The people laughed and Kulsathee gestured to his large family sat nearby. His gr
 
 Fear not. Fear not because together we will overcome this blight. Myself and the elders have discussed many things over the past few days. We have taken counsel with the chief farmers and hunters among you in order to see what can be done. This is what we will do.
 
-Every man who is able to hunt will tomorrow set off on a journey to the next valley. It is a five day journey and we do not believe the blight has spread that far. Thus we will enter this valley and hunt deer, rabbit and other wild game. Accompanying this group will be a small group of women to gather fruits that can be dried and nuts and wild vegetables. There will also be a group of women whose specific job will be to dress the kills and salt them for the journey back. Because we want the hunters to hunt they will remain in the valley and we will set up a system of checkpoints whereby the kills will be delivered and passed onto the next. Then after a week the hunters will return for a break to see their families and to rest. And then we start again.
+Every man who is able to hunt will tomorrow set off on a journey to the next valley. It is a five day journey from here and we do not believe the blight has spread that far. Thus we will enter the next valley to hunt deer, rabbit and other wild game. Accompanying this group will be a small group of women to gather fruits that can be dried and nuts and wild vegetables. There will also be a group of women whose job will be to dress the kills and salt them for the journey back. 
 
-By doing this we will be able to store enough meat to last through the year and through next Winter. The days are now long but we must not forget they will not always be so. We must not forget that our Mother the Earth is kind but she is also harsh. But our tribe is strong and will survive. We will not starve.
+Because we want the hunters to hunt they will remain in the valley and we will set up a system of checkpoints whereby the kills will be delivered and passed onto the next. Then after a week the hunters will return for a break to see their families and to rest. Then we start again.
+
+By doing this we will be able to store enough meat to last throughout the year. Through next Winter. The days are now long but we must not forget they will not always be so. We must not forget that our Mother the Earth is kind but she is also harsh. Our people are strong and by working together will survive this blight. We will not starve.
 
 ~
 
+The early Summer morning was humid but there was a gentle mountain breeze that blew across the high grass in the meadow where Tye and Mika crouched together. They were stalking deer. Nearby a small creek fed into a pond and this particular spot had been lucky to them several times before. Tye strapped the decoy to his right arm and crawled flat on his stomach to the edge of the water. Then he lifted the mock deer head in a realistic way so that it could just be seen from afar.
 
+Mika gave a shrill bird call when the deer was in the right spot and Tye bobbed its head up and down. Waiting for the deer sometimes took an hour or more so when he became tired he would switch out arms. Being the decoy fell on Tye because Mika was the truer aim. The elder hunters had decided it and Tye did not resent that it was never him to kill the deer when he and Mika hunted together. He knew his time would come.
 
+As they waited Mika adjusted the tension on his bow and rolled the arrows that lay in the pile next to him. Today was a good day. The sky clear. There was bad weather the week before and that made things harder than usual. But this was good. They were well ahead of quota. The day before he had killed two deer and Tye killed a rabbit on their return to the camp.
 
+There was a rustling in the grass close to the pond and Mika refocused and pulled his bow into a ready position, with the arrow already notched and resting against the wood. Tye had heard the sound also and adjusted his movements to not startle whatever it was that had made the sound.
 
+Soon there was more rustling and then a large buck and doe appeared together at the edge of the pond. Two of them. They drank from the pond and did not seem to regard the decoy at all. This was good. It gave Mika more time to choose the best shot.
+
+He raised up on his haunches so that his eyeline was level with the top of the grass. Without thinking he timed his breaths so they would not interfere with any potential shot that came.
+
+The deer were not in the best position. Mika needed them to walk around the other side. As close as they were he could not risk moving even one inch from his spot. The sound would give him away.
+
+After a few minutes the deer made their way around the other side of the pond. Mika saw the decoy bob and hoped Tye was strong enough to keep it aloft for however long it took. He knew from experience how difficult it was. But now the deer were faced broadside to Mika and he wasted no time and let the arrow fly. It struck the large buck hard just behind his foreleg.
+
+Both deer sprung away as Mika prepared another shot. He wanted to get that doe before it got too far away. He readied the arrow and took a poor shot that missed and disappeared into the grass.
+
+But then Tye rose from his spot near the pond, in the perfect position to hit the fleeing deer, took aim at the doe and shot. His aim was true and struck it mid-stride, causing it to collapse right there.
+
+Wahooo! Tye shouted.
+
+Mika rose and interlocked his fingers and Tye beamed, returning the gesture of their friendship. Mika was so happy for his friend. They collected their gear and stopped at the doe. The buck they would have to track a bit but they were sure he wouldn’t get too far.
+
+[dress the deer, return to camp, adulations from peers]

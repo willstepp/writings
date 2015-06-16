@@ -180,12 +180,20 @@ SUMMER
    other boys. He is a hero. His mother tells him how proud she is. But all he 
    can think about was the empty bucket in the corner.
 
+   a) mika and tye kill a deer (skilled at other things) (1250)
+   b) the return to the village where he is celebrated as a hero, scene with leoti, at night sees the bucket (rewarded for his skills) (1250)
+   c) his mother wakes in the morning and tries to discourage him (loved ones don't believe) (1250)
+
 *) The next day Mika does not go to the hunt. Instead he takes the bucket and 
    follows the river and hours later reaches the lake on the mountain. He returns 
    with tired legs and arms and pours the water at the base of the tree. Nothing 
    happens. Silence all around. Later the hunters return with their kill and ask 
    where he was. Fufilling a request from my father he said. They nod but he could 
    see they did not understand what he said.
+
+   a) the journey to the lake, the crevasse, the hunger (faith required) (1250)
+   b) the cave and lake, the bear that is not a bear (temptation) (1250)
+   c) the return, nothing happens when pouring the bucket, resentment from others (no immediate rewards) (1250)
 
 
 AUTUMN
