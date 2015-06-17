@@ -345,11 +345,13 @@ By doing this we will be able to store enough meat to last throughout the year. 
 
 ~
 
-The early Summer morning was humid but there was a gentle mountain breeze that blew across the high grass in the meadow where Tye and Mika crouched together. They were stalking deer. Nearby a small creek fed into a pond and this particular spot had been lucky to them several times before. Tye strapped the decoy to his right arm and crawled flat on his stomach to the edge of the water. Then he lifted the mock deer head in a realistic way so that it could just be seen from afar.
+The pre-dawn mornings of Summer were humid but today there was a gentle breeze that blew across the high grass in the meadow where Tye and Mika hunted together. They were stalking deer. Nearby, a small creek fed into a pond and this particular spot had been lucky to them several times before and they hoped it would be today. 
 
-Mika gave a shrill bird call when the deer was in the right spot and Tye bobbed its head up and down. Waiting for the deer sometimes took an hour or more so when he became tired he would switch out arms. Being the decoy fell on Tye because Mika was the truer aim. The elder hunters had decided it and Tye did not resent that it was never him to kill the deer when he and Mika hunted together. He knew his time would come.
+Tye strapped the decoy to his right arm and crawled flat on his stomach to the edge of the water. Then he lifted the mock deer head in a realistic way so that it could just be seen from afar.
 
-As they waited Mika adjusted the tension on his bow and rolled the arrows that lay in the pile next to him. Today was a good day. The sky clear. There was bad weather the week before and that made things harder than usual. But this was good. They were well ahead of quota. The day before he had killed two deer and Tye killed a rabbit on their return to the camp.
+Mika gave a shrill call when the deer was in the right spot and Tye bobbed its head up and down. Waiting for the deer sometimes took hours so when he became tired he would switch out arms. Being the decoy fell on Tye because Mika had the truer aim. The elder hunters had decided this during target practice and Tye did not resent that it was never him to kill the deer when he and Mika hunted together. He respected the elder huntsmen and knew someday his time would come.
+
+As they waited Mika adjusted the tension on his bow and rolled the arrows that lay in the pile next to him. Today was a good day to hunt. The sky was clear. There had been thunderstorms the week before which made things harder, though they still met quota. But today was good, and this week they were well ahead of quota so far. The day before Mika had killed a doe and Tye killed two rabbits on their return to the camp.
 
 There was a rustling in the grass close to the pond and Mika refocused and pulled his bow into a ready position, with the arrow already notched and resting against the wood. Tye had heard the sound also and adjusted his movements to not startle whatever it was that had made the sound.
 
@@ -367,6 +369,32 @@ But then Tye rose from his spot near the pond, in the perfect position to hit th
 
 Wahooo! Tye shouted.
 
-Mika rose and interlocked his fingers and Tye beamed, returning the gesture of their friendship. Mika was so happy for his friend. They collected their gear and stopped at the doe. The buck they would have to track a bit but they were sure he wouldn’t get too far.
+Mika stood upright and beamed at Tye, interlocking his fingers in the gesture of their friendship. He was happy for his friend.  Tye returned the gesture.
 
-[dress the deer, return to camp, adulations from peers]
+They each collected their gear and walked over to where the doe lay next to the pond. The buck they would have to track but they were pretty sure he wouldn’t get too far. Together they set to work field dressing the doe. With their flint knives they opened and gutted her and then stretched out the body in an upright angle so the blood would drain out. Tye tossed the entrails into the grass to be consumed by other animals.
+
+Then they tracked the blood trail that led to the buck. He had made it further than they thought but was easily found in the grass a few hundred yards away. They dressed him out and bound him for the walk to camp. Then they hauled him together to where the doe was.
+
+By now it was midday and they were hungry. They pulled some dried meat and fried potato cakes from the satchel and ate next to the pond. Because they were so famished the food tasted especially good today. They talked about their good fortune. These were good sized kills. This put them well ahead of the other hunting pairs for the week.
+
+I never saw somebody go from decoy to kill shot with such speed, Mika said.
+
+Tye downplayed the compliment but his pride was evident. 
+
+It was a team effort, he said. Your kill shot set me up. All I had to do was aim and shoot.
+
+All you had to do, Mika said, mocking his friend.
+
+After their meal they drank from their water bladders and then refilled them in the pond. With deer of this size it was going to be an arduous haul back to camp. Better to get it over with, Tye sighed. And they set off.
+
+It was late afternoon before they were in sight of the camp. There were other groups of hunters returning also, but it seemed that once again Mika and Tye had the best luck. They were greeted by a group of young women who were in the middle of processing meat from the hunt two days ago. They giggled and pointed at the young hunters, too shy to speak to them. Mika and Tye exchanged glances and nodded as they passed.
+
+Help came when they reached the center of the camp. A group of apprentice hunters took the doe and buck and dragged them to the processing tents to be strung up to dry, before being processed, cut for salting, then carried in packs to the first delivery checkpoint.
+
+Mika and Tye smelled game roasting on a spit over the large fire in the center of camp. They cleaned themselves and joined the hunters there, some of whom rested on their backs, some napping arrowheads for the next days hunt, or sharpening their knives. All in cheerful mood. Things were going well.
+
+The two hunters were welcomed like heroes even among their peers. They fed themselves and sat around the fire. Every night the topic was the day’s hunt, what each man had killed, how he did it, the best spots to find deer or other game. 
+
+Word had already got around how fine Mika and Tye’s kills had been today. The hunters assumed it had been all Mika, but he quickly corrected them and told them all about his friend’s impressive feat. He rose in front of the fire and re-enacted the scene in detail. He described where Tye had been with the decoy, where the pond was, where he himself was, and then from which direction the deer approached. Everyone was impressed. Everyone was happy for their tribal brethren. 
+
+The elder huntsmen came over to congratulate Mika and Tye. Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. That night the exhausted hunters slept well and dreamed not about the hunt but about home and being reunited with their loved ones.
