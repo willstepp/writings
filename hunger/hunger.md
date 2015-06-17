@@ -381,9 +381,9 @@ I never saw somebody go from decoy to kill shot with such speed, Mika said.
 
 Tye downplayed the compliment but his pride was evident. 
 
-It was a team effort, he said. Your kill shot set me up. All I had to do was aim and shoot.
+It took the both of us, he said. Your kill shot set me up. All I had to do was aim and shoot.
 
-All you had to do, Mika said, mocking his friend.
+Mika mocked his friend, All you had to do. They laughed.
 
 After their meal they drank from their water bladders and then refilled them in the pond. With deer of this size it was going to be an arduous haul back to camp. Better to get it over with, Tye sighed. And they set off.
 
@@ -398,3 +398,47 @@ The two hunters were welcomed like heroes even among their peers. They fed thems
 Word had already got around how fine Mika and Tye’s kills had been today. The hunters assumed it had been all Mika, but he quickly corrected them and told them all about his friend’s impressive feat. He rose in front of the fire and re-enacted the scene in detail. He described where Tye had been with the decoy, where the pond was, where he himself was, and then from which direction the deer approached. Everyone was impressed. Everyone was happy for their tribal brethren. 
 
 The elder huntsmen came over to congratulate Mika and Tye. Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. That night the exhausted hunters slept well and dreamed not about the hunt but about home and being reunited with their loved ones.
+
+~
+
+Because the hunters were so excited to be going home the journey took four days instead of five. When they rounded the hill and saw the wooden gates their hearts grew large and they quickened their pace even more. A lookout spotted them and let out a call through the village. They opened both gates and all the families met them there.
+
+Mika’s mother was there, standing with his aunt and nephews. She hugged her son then looked him up and down. His skin was darker from long days in the sun. His hair mattted and dirty from many days without cleaning. She ruffled his hair and kissed him on the forehead.
+
+My son, the hunter.
+
+I swear he has grown by two inches, one of his aunts remarked.
+
+I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika the hunter with the truest aim. I am so proud of you.
+
+The boy blushed and they walked home together.
+
+That evening a feast was held with meat roasted on spits and potatoes boiled. The days of panic had passed when they found plenty of food in the neighboring valley. A stockpile of dried and salted meat had already been stored.
+
+There was dancing. There was a large circle where the young people sang together. The boys and girls sang and beat on skin drums and danced to the rhythmic music inside the circle. The girls sang songs about love. Leoti was there. She saw Mika but was very shy. She stood near him but did not look in his direction. When he saw her he touched her shoulder.
+
+They faced one another. Mika had never seen her so beautiful. Her dark, smooth hair pulled to one side, the light from the fire illuminating her soft cheeks. Hunting deer in the valley did not make him nearly as nervous as he was around her.
+
+Hello, Leoti, Mika said. We returned today, from the valley.
+
+Yes, my eyes and ears work fine, she answered. 
+
+Then she walked away as if she were uninterested in speaking to him. But was that a smile on the corner of her mouth? In the dark it was hard to tell. Mika followed her.
+
+Leoti walked along the circumference of the ceremonial grounds. She walked slow and Mika kept behind. At some point she heard him and turned around.
+
+Are you tracking me, hunter?
+
+Mika blushed. Then he walked up and stood by her side. She did not refuse his boldness. They walked together around the empty grounds. They said nothing to one another. There were only the sounds of the celebration on the other side and the light of the large bonfire that reached them by way of a dim glow.
+
+Finally Leoti spoke. You have grown stronger, Mika.
+
+Everyone keeps saying that. I don’t know how I could have grown in only a few weeks.
+
+It is true. Or maybe it is your reputation that makes you seem larger. Mika the great hunter. The savior of our tribe. The elders beam when they speak your name. The children tell stories about you like you are the hero in a legend. They play hunt in the forest and every boy wants to be Mika.
+
+I only do what has been asked of me.
+
+Great, and humble too. She laughed.
+
+They walked underneath the ancient tree and Leoti sat beneath it. Mika joined her and they did not speak again. But it was a good silence. He turned to look at her in the firelight. At last he could see in her eyes that same look they had shared so many times before. A gentleness and a sense of belonging. She was his and he was hers. Both of them knew it was true. He kissed her.

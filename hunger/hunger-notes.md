@@ -984,3 +984,10 @@ is the hero, killing more than anyone else. Tye is at his side.
 It is best to tag and dress your deer where it lays (the wild animals will eat the entrails) because it will be easier to drag out of the woods and there will be no question as to where or when it was shot. Know and understand how to properly dress your deer or you will contaminate the meat, making it unfit for consumption. Hang your deer in a cool place for a day or two before processing to let the meat tenderize.
 
 When processing your own meat be sure to remove as much sinew as possible to avoid the 'wild, gamey' taste, producing good flavored venison. Otherwise, be sure to find someone who does a fine job of processing deer meat.
+
+
+After the homecoming Mika is alone and sees the bucket in the corner. He thinks about 
+his failure to fulfill the wish of his father. He thinks about how everything to do with 
+the hunt seems meaningless, the thrill of the kill, the adulation of his peers, the celebration. 
+He told himself it was for a good thing. For the tribe. And yet the feeling never left him that 
+it was all meaningless and a waste of time.
