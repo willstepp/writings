@@ -1,7 +1,7 @@
 HUNGER by Daniel Stepp
 
 
-A crescent moon hung in the stars to the East and when Mika saw it behind the trees he knew it was morning and yet hours before sunrise. The boy followed behind the old woman who had roused him from slumber only moments before. How strange it all was. The hush in the village at this hour. The frowns of the tribal elders they passed by on their way. The chants of the young girls, some his friends, who beat on turtle-shell rattles and whose eyes seem to gaze upon a faraway place. He wondered if this were some dream he had yet to awaken from. 
+A crescent moon hung in the stars to the East and Mika saw it behind the trees he knew it was morning and yet hours before sunrise. The boy followed behind the old woman who had roused him from slumber only moments before. How strange it all was. The hush in the village at this hour. The frowns of the tribal elders they passed by on their way. The chants of the young girls, some his friends, wore turtle-shell rattles on their arms and legs. Their eyes seem to gaze upon a faraway place. The boy wondered if this were some dream he had yet to awaken from. 
 
 Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The one on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. Mika's father was the shaman of the village and would have been performing the ritual tonight were it not him who lay inside.
 
