@@ -5,7 +5,7 @@ A new moon hung low among the stars to the East. Mika saw its crescent shape beh
 
 Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
 
-Inside were three others. Yaholo was there, a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the ritual. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And on a bed woven from reed was his father Sakima.
+Yaholo was there, a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the ritual. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And on a bed woven from reed was his father Sakima.
 
 No one had told him what to do once inside, but he approached his father and placed his hand upon his. The skin was dry and cold. This surprised him since it was so hot in the house, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not conscious. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
 
