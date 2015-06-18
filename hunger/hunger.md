@@ -35,7 +35,7 @@ Now he sat at the base of the tree alone. It was the darkest time of night. The 
 
 ~
 
-There was a three-day feast in the village, what was known among tribes of the southern valleys as a *ceremony of the dead*. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to visit the body of Sakima but also to enjoy the good food and the company of their neighbors.
+Then there was a festive gathering. It was known among the clans of the southern valleys as the *Celebration of the Dead*. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to pay their respects to the great Sakima, but also to enjoy the good food and the company of their neighbors.
 
 A high platform constructed from reed was raised within the ceremonial grounds and the beloved shaman was placed upon it. His body was anointed with strongly-scented oils and adorned with the beadwork he wore throughout his lifetime. The platform where he rested stood six feet off the ground and some of the children dared one another to climb up the sides to have a peek but when the parents saw what they were doing they scolded them harshly and reminded them to show respect. The young women arranged flower sashes all about the base of the platform. Here the shaman would lie until the elders decided it was time to bury him in the ground. It was the same for every great man.
 
