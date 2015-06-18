@@ -191,9 +191,9 @@ SUMMER
    where he was. Fufilling a request from my father he said. They nod but he could 
    see they did not understand what he said.
 
-   a) the journey to the lake, the crevasse, the hunger (faith required) (1250)
+   a) the journey to the lake, the crevasse, the hunger (tests of body, mind, faith) (1250)
    b) the cave and lake, the bear that is not a bear (temptation) (1250)
-   c) the return, nothing happens when pouring the bucket, resentment from others (no immediate rewards) (1250)
+   c) the return, nothing happens when pouring the bucket, resentment from others, 'boy with the bucket' (no immediate reward) (1250)
 
 
 AUTUMN
@@ -995,3 +995,10 @@ it was all meaningless and a waste of time.
 
 In bed that night he dreams of Leoti and sees the tree. His thoughts drift to it and he remembers everything he had forgotten.
 He wakes and finds the empty bucket now being used for broken earthware and other refuse.
+
+
+
+
+[mika prepares for the journey while others prepare to return to the hunt, his mother begs him 
+not to go, gawoni asks him why he is not with the others, I am not going with them, and where his 
+bow is]
