@@ -403,25 +403,27 @@ The elder huntsmen came over to congratulate Mika and Tye. Then they told everyo
 
 Because the hunters were so excited to be going home the journey took four days instead of five. When they rounded the hill and saw the wooden gates their hearts grew large and they quickened their pace even more. A lookout spotted them and let out a call through the village. They opened both gates and all the families met them there.
 
-Mika’s mother was there, standing with his aunt and nephews. She hugged her son then looked him up and down. His skin was darker from long days in the sun. His hair mattted and dirty from many days without cleaning. She ruffled his hair and kissed him on the forehead.
+Mika’s mother was there, standing with his aunt and nephews. She hugged her son then looked him up and down. His skin was darker from long days in the sun. His hair matted and dirty from many days without cleaning. She ruffled his hair and kissed him on the forehead.
 
 My son, the hunter.
 
 I swear he has grown by two inches, one of his aunts remarked.
 
-I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika the hunter with the truest aim. I am so proud of you.
+Mika blushed.
 
-The boy blushed and they walked home together.
+I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika, the hunter with the truest aim. I am so proud of you.
+
+They walked home together and Mika told her about all the things he had done that week.
 
 That evening a feast was held with meat roasted on spits and potatoes boiled. The days of panic had passed when they found plenty of food in the neighboring valley. A stockpile of dried and salted meat had already been stored.
 
 There was dancing. There was a large circle where the young people sang together. The boys and girls sang and beat on skin drums and danced to the rhythmic music inside the circle. The girls sang songs about love. Leoti was there. She saw Mika but was very shy. She stood near him but did not look in his direction. When he saw her he touched her shoulder.
 
-They faced one another. Mika had never seen her so beautiful. Her dark, smooth hair pulled to one side, the light from the fire illuminating her soft cheeks. Hunting deer in the valley did not make him nearly as nervous as he was around her.
+They faced one another. Mika had never seen her so beautiful. Her dark, smooth hair draped down side of her deerskin dress, the light from the fire illuminating her soft cheeks. Hunting  in the valley did not make him nearly as nervous as he was around her.
 
 Hello, Leoti, Mika said. We returned today, from the valley.
 
-Yes, my eyes and ears work fine, she answered. 
+Yes, my eyes and ears still work, she answered. 
 
 Then she walked away as if she were uninterested in speaking to him. But was that a smile on the corner of her mouth? In the dark it was hard to tell. Mika followed her.
 
@@ -429,7 +431,7 @@ Leoti walked along the circumference of the ceremonial grounds. She walked slow 
 
 Are you tracking me, hunter?
 
-Mika blushed. Then he walked up and stood by her side. She did not refuse his boldness. They walked together around the empty grounds. They said nothing to one another. There were only the sounds of the celebration on the other side and the light of the large bonfire that reached them by way of a dim glow.
+Mika turned red. Then he walked up and stood by her side. Leoti did not refuse his boldness. They walked together around the empty grounds. They said nothing to one another. There were only the sounds of the celebration on the other side and the light of the large bonfire that reached them by way of a dim glow.
 
 Finally Leoti spoke. You have grown stronger, Mika.
 
@@ -439,6 +441,20 @@ It is true. Or maybe it is your reputation that makes you seem larger. Mika the 
 
 I only do what has been asked of me.
 
-Great, and humble too. She laughed.
+Leoti laughed. And he is humble too.
 
-They walked underneath the ancient tree and Leoti sat beneath it. Mika joined her and they did not speak again. But it was a good silence. He turned to look at her in the firelight. At last he could see in her eyes that same look they had shared so many times before. A gentleness and a sense of belonging. She was his and he was hers. Both of them knew it was true. He kissed her.
+They walked underneath the branches of the ancient tree and she sat against its trunk. Mika joined her there and they did not speak again for some time. But it was a good silence. And when he did at last turn to look at her in the firelight he could see in her eyes the thing they had shared so many times before. It was a sense of gentleness and belonging. Leoti was his and Mika was hers and life in the future would be something for them to share.
+
+That night Mika went to sleep and dreamed of Leoti. In his dreams they held one another under the tree and then he kissed her and they merged into a single happy being, full of love. And then he gazed up where they sat and saw those branches which spiraled from the base of the ancient tree and all of a sudden remembered the things he had forgotten. He remembered the words of his father on his death bed and what had been asked of him.
+
+Then Mika woke. Above him the night sky was clear. His mother was asleep in the bed nearby. His bare feet planted on the cool earth flooring he sat there for some time. It came back like a bolt from a thundercloud. The tree, his father, the bucket, the failure of the journey, his tears. For the longest time he had forgotten about them. So long that he could no longer be sure that it had happened. Perhaps it never had.
+
+When the blight came there was no time to even consider such things as his father’s request. He had decided that himself. But not decided really. Everyone had been so afraid. Everyone had been so focused on coming up with a plan to survive through next Winter. It was assumed Mika would help. Join in. And he did so. And look how well it had turned out so far. There was plenty again. They were going to be okay. Mika was a hero. His skills at hunting had inspired them all to be better, and now they were. He had so much to be happy for.
+
+And yet he was not happy. The opposite in fact. His success at hunting felt devoid of purpose. Meaningless. And this confused him greatly. The tribe loved him now. Families he barely knew now went out of their way to be kind to him. Children re-enacted the great kills he and Tye had achieved in the valley. More importantly the tribe had overcome the blight from the great stores of meat they gained by the work he and the other hunters did. And yet to him it was all like an old, fallen log you sometimes find in the forest. Outward seeming strong but revealed to be brittle when sat upon. Hollow and dead inside.
+
+And his mother. Leoti. They were very proud and it was his happiness to make them happy. So why this feeling when he was reminded of the tree and his father and the thing that had been asked of him? Did he not want them to be happy? To be proud of him? Mika could not say.
+
+He went outside and walked along the rows of the houses. He heard the people sleeping in their homes. And in the forests he heard the animals and the chirping of the insects. And in the sky the stars far away and the moon low. In the ceremonial grounds the embers of the bonfire still burned. You could still smell the food but it did not make Mika hungry because had stuffed himself. Like everyone had. It was good. Everything was good and yet nothing was. Mika felt that to be true.
+
+Next to the house he shared with his mother was the storage shed. In what little light there was at this hour he entered and found the bucket, once again filled with refuse in the corner. He emptied it and took it outside and looked at it for a long time. He remembered how the handle had blistered his fingers before. There were still some strands of dried grass from when he wrapped it out there.

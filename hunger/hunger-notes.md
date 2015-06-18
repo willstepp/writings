@@ -991,3 +991,7 @@ his failure to fulfill the wish of his father. He thinks about how everything to
 the hunt seems meaningless, the thrill of the kill, the adulation of his peers, the celebration. 
 He told himself it was for a good thing. For the tribe. And yet the feeling never left him that 
 it was all meaningless and a waste of time.
+
+
+In bed that night he dreams of Leoti and sees the tree. His thoughts drift to it and he remembers everything he had forgotten.
+He wakes and finds the empty bucket now being used for broken earthware and other refuse.
