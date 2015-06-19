@@ -393,23 +393,27 @@ Mika and Tye smelled game roasting on a spit over the large fire in the center o
 
 The two hunters were welcomed like heroes even among their peers. They fed themselves and sat around the fire. Every night the topic was the day’s hunt, what each man had killed, how he did it, the best spots to find deer or other game. 
 
-Word had already got around how fine Mika and Tye’s kills had been today. The hunters assumed it had been all Mika, but he quickly corrected them and told them all about his friend’s impressive feat. He rose in front of the fire and re-enacted the scene in detail. He described where Tye had been with the decoy, where the pond was, where he himself was, and then from which direction the deer approached. Everyone was impressed. Everyone was happy for their tribal brethren. 
+Word had already got around how fine Mika and Tye’s kills had been today. The hunters assumed it had been all Mika, but he quickly corrected them and told them all about his friend’s impressive feat. He rose in front of the fire and re-enacted the scene in detail. He described where Tye had been with the decoy, where the pond was, where he himself was, and then from which direction the deer approached. Everyone was impressed. Everyone was happy for their tribal brethren.
 
-The elder huntsmen came over to congratulate Mika and Tye. Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. That night the exhausted hunters slept well and dreamed not about the hunt but about home and being reunited with their loved ones.
+The three elder huntsmen came over to congratulate Mika and Tye. 
+
+You have made us proud today, Mika and Tye. One day you will lead us all. This is true!
+
+Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. That night the exhausted hunters slept well and dreamed not about the hunt but about home and being reunited with their loved ones.
 
 ~
 
 Because the hunters were so excited to be going home the journey took four days instead of five. When they rounded the hill and saw the wooden gates their hearts grew large and they quickened their pace even more. A lookout spotted them and let out a call through the village. They opened both gates and all the families met them there.
 
-Mika’s mother was there, standing with his aunt and nephews. She hugged her son then looked him up and down. His skin was darker from long days in the sun. His hair matted and dirty from many days without cleaning. She ruffled his hair and kissed him on the forehead.
+Mika’s mother was there, standing with his aunt and nephews. She hugged her son then looked him up and down. His skin was darker from long days in the sun. His hair matted and dirty from many days without cleaning. She ruffled his hair and kissed him on the forehead. He shied away from her touches, embarassed to be seen coddled by his mother. But she did it anyway.
 
-My son, the hunter.
+My son, the hunter. The filthy hunter.
 
 I swear he has grown by two inches, one of his aunts remarked.
 
 Mika blushed.
 
-I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika, the boy with the bow, as they say. The hunter with the truest aim. I am so proud of you.
+I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika, the Boy with the Bow, as the children are saying. The hunter with the truest aim. I am so proud of you!
 
 They walked home together and Mika told her about all the things he had done that week.
 
@@ -445,7 +449,7 @@ Leoti laughed. And he is humble too.
 
 They walked underneath the branches of the ancient tree and she sat against its trunk. Mika joined her there and they did not speak again for some time. But it was a good silence. And when he did at last turn to look at her in the firelight he could see in her eyes the thing they had shared so many times before. It was a sense of gentleness and belonging. Leoti was his and Mika was hers and life in the future was something for them to share.
 
-That night Mika went to sleep and dreamed of Leoti. In his dreams they held one another under the tree and then he kissed her and they merged into a single happy being, full of love. And then he gazed up where they sat and saw those branches which spiraled from the base of the ancient tree and all of a sudden remembered the things he had forgotten. He remembered the words of his father on his death bed and what had been asked of him.
+That night Mika went to sleep and dreamed of Leoti. Of her youthful beauty and tenderness. In his dreams they held one another under the tree. Then he kissed her on the lips and they merged into a single happy being, full of an all-knowing love. And then he gazed up where they sat and saw those branches which spiraled from the base of the ancient tree and all of a sudden remembered the things he had forgotten. He remembered the words of his father on his death bed and what had been asked of him.
 
 Then Mika woke. Above him the night sky was clear. His mother was asleep in the bed nearby. His bare feet planted on the cool earth flooring he sat there for some time. It came back like a bolt from a thundercloud. The tree, his father, the bucket, the failure of the journey, his tears. For the longest time he had forgotten about them. So long that he could no longer be sure that it had happened. Perhaps it never had.
 
@@ -461,9 +465,9 @@ Next to the house he shared with his mother was the storage shed. In what little
 
 ~
 
-It was time for the hunters to return to the valley. That morning there was bustle as the men readied their hunting gear and women gathered provisions for the camp. The children could sense the solemnity and played quietly together. There were no smiles and laughter as there had been the day of their return.
+It was time for the hunters to return to the valley. That morning there was bustle as the men readied their hunting gear and women gathered provisions for the camp. The children could sense the solemnity and played quietly together. There were no smiles and laughter as there had been the day of their return. But there were many embraces and kisses to show their love to one another.
 
-Before the journey to the valley there was a small ceremony held on the grounds under the tree. Yaholo anointed the hunters with oils and essense and spoke the words of their ancestors to hunt well and to be safe in their journey, both going there and coming back. Only the closest members of the family attended.
+Always before the journey back to the valley a small ceremony was held on the grounds underneath the tree. Yaholo anointed the hunters with oils and essense and spoke the words of their ancestors to hunt well and to be safe in their journey, both going there and coming back. Only the closest members of the family attended.
 
 And yet when Ama looked around the group she did not see her son Mika there. Others noticed him missing also and approached her.
 
@@ -471,7 +475,7 @@ Where is Mika this morning? Where is the boy with the bow? A few of the elders a
 
 Some of Mika’s friends also noticed and looked around for their fellow hunter. Ama told them she would find her son and bring him there, at least in time for the departing meal.
 
-When she found Mika he was kneeling next to the thin irrigation stream that ran by to their home, filling his water bladder. He rose and faced her. Strapped around his waist was a satchel and it packed with dried deer meat and potato cakes from the celebration. She noticed it was hard for him to look her in the eyes, so she stood in front of him until he no choice.
+When she found her son he was kneeling next to the thin stream  that irrigated the homes nearby, filling his water bladder until it overflowed. Mika rose and faced her. Strapped around his waist was a satchel and it packed with dried deer meat and potato cakes from the celebration. She noticed it was hard for him to look her in the eyes, so she stood in front of him until he no choice.
 
 Why did you not attend the hunters ceremony this morning? It is important for you to be there and for others to see you there. For many reasons it is important. Do I have to explain it to you why it is important?
 
@@ -479,30 +483,70 @@ I did not attend the ceremony for the hunters because I do not intend to hunt in
 
 Ama saw the bucket next to the door of the shed, along with a few other tools for the journey.
 
-Is this about the task your father asked of you?
+Is this because of what your father asked you to do?
 
-It is, Mika answered. For the first time he looked her directly in the eyes. He saw she regarded him with love, but also suspicion.
+It is, Mika answered. For the first time he looked her directly in the eyes. He saw she regarded him with love but also suspicion.
 
 But you have already fulfilled his request. I remember when you left. I remember when you returned.
 
+Ama looked at her son as though she wasn’t sure she knew him anymore.
+
 No. I failed, mama. And in my dreams last night I was reminded of that failure. So I must try again. And not fail.
 
-But the people of this tribe depend upon you. You are the best hunter among them. And this is a time of survival. You know what has been decreed by the elders, by Kulsathee. Every able man to hunt. Remember the blight? Remember the panic? Those times are not past. Nothing is certain.
+But the people of this tribe depend upon you. You are the best hunter among them. And this is a time of survival. You know what has been decreed by the elders, by Kulsathee. Every able man to hunt. Remember the blight? Remember the panic? Those times are not in the past yet. Nothing is certain.
 
-I must obey my father. That is certain to me.
+I must obey my father. That is certain.
 
-You are mistaken. Your father was not in his right mind, Mika. He was sick. It was not him that spoke that night. It was the fever. Please don’t turn your back on your tribe. Your people. I will always love you as my son, but I cannot support this behavior. I will not.
+You are mistaken. Your father was not in his right mind, Mika. He was sick. It was not him that spoke to you that night. It was the fever. Please understand that. Whatever it was, it was from madness caused by the fever. Please don’t turn your back on your tribe during this crucial time. They are your people. I will always love you as my son but I will not support this behavior. I cannot support it.
 
-With these words Mika turned to face his mother. Her words were stern. Her face resolute. Mika saw that he was alone.
+With these words Mika turned to face his mother. Her words were stern. Her face resolute. Mika saw that he was truly alone.
 
 He picked his things from the ground, his flint knife, the bucket whose handle was wrapped with a thick layer of grass. He tucked the knife in his satchel and gripped the bucket in his left hand. He walked away. 
 
 Ama cried.
 
+After the ceremony the hunters and their wives and children ate together in the yard. There was cooked game, potato cakes. As Mika went by on the path he smelled the food and watched them. His friend Tye saw him and waved him over to join them. Mika did not go. Tye was confused and interlocked his fingers in the gesture of their friendship. Mika did not return the gesture.
 
+Please understand, my friend, I must go alone.
 
+He avoided everyone else by keeping his head down. He passed the circle of elders who gathered near the home of Kulsathee daily to smoke and talk about the old days. But he did not look in their direction, though he knew they saw him walking by.
 
+Though I honor you, elders, I must go alone.
 
-11450
+He saw Leoti among her friends near the creek. They were cleaning deer skins. She saw him and stopped working. The other girls noticed and teased her. But Mika did not approach. He felt that to speak to her now might sway him from the journey. He was stronger than he was before, but did not think he was strong enough to resist her power over him.
 
-[walks past the feast of departure, his friends, he sees leoti there. gawoni asks him why he is not with the others, I am not going with them, and where his bow is, I did not bring it]
+Forgive me, Leoti, I must go alone.
+
+When Leoti realized Mika would not speak to her she was clearly hurt and returned to the work. From time to time she looked towards the road in hope that he would return though he did not.
+
+At the Northern gate stood Gawoni and a few other lookouts. They looked bored standing there with nothing to do in these times of peace. A couple of them amused themselves with games of dice.
+
+Though the gates were open because of it being daytime, Mika stopped when he saw them there. He felt he should say goodbye to someone at least. And there was no chance they would sway him from the journey he must take.
+
+Hello again, Gawoni.
+
+Hello, Mika. Why are you not with the other hunters? They are leaving soon, though by the Southern gates.
+
+I am not going with them.
+
+But where is your bow?
+
+I did not bring it with me.
+
+One of the lookouts, someone Mika did not know, spoke to him.
+
+But you are the Boy with the Bow, the greatest hunter among us. You and Tye are responsible for the majority of the food that has been gathered since the blight. Why will you not hunt?
+
+Mika nodded and then answered, I must do what my father has asked of me. When that is done, then will I pick up my bow again. Only then.
+
+The lookouts saw the bucket he carried and whispered among themselves. By their snearing Mika saw they resented him for abandoning the tribe in the time of need.
+
+Then Gawoni said, Safe travels, Boy with the Bucket! 
+
+They all laughed at that clever turn of phrase, repeating it among themselves several more times, each time provoking more  fits of hilarity.
+
+Boy with the Bucket! Boy with the Bucket!
+
+Mika walked outside the gates onto the dirt path. He did not  turn back to address their taunts, which continued until he rounded the rock bend and therefore was out of earshot.
+
+~
