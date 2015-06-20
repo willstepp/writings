@@ -1005,7 +1005,8 @@ bow is]
 
 
 Mika tells Kulsathee and the elders that they have forgotten the memory of his father. 
-You said you would remember always but you do not. Yaholo repeats the same words of my 
-father but since they do not come from a place of true faith the people do not believe. 
-In their hearts they do not believe and how could they? It all husk and no corn. So they 
-grow resentful and cling to the memory of the true faith, though they have it not.
+You said you would remember him always but that is a lie. Yaholo merely repeats the words 
+of my father yet because they do not come from a place of faith the people do not believe 
+in them. In their hearts they do not believe in the ritual and how could they? The words 
+and the ritual are nothing without the faith and the faith has been lost so that all remains 
+are the words and the ritual. All husk and no corn.
