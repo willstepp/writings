@@ -631,8 +631,6 @@ He jumped from the rock platform and entered the meadow. Though there seemed to 
 
 When he reached the edge of the lake he put his toe in and was surprised to find that it was warm. He tore off his wet clothes and set them on the beach to dry out. Then he went for a swim. The water was clear and he could see the small rock bottom. His feet sank into the rocks and they were smooth so it did not hurt. There were small trout swimming around his legs and nosing at his feet. He swam out until he could no longer see the bottom. The water here was a deep, bright green. Though still warm. He swam back to the beach where his clothes were now dry and put them back on.
 
-Next Mika pulled the net from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. 
-
-The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
+Next Mika pulled the net from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
 
 ~
