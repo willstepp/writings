@@ -541,7 +541,7 @@ Mika nodded and then answered, I must do what my father has asked of me. When th
 
 The lookouts saw the bucket he carried and whispered among themselves. By their snears Mika could see they resented him for abandoning the tribe in this time of need.
 
-Safe travels, Boy with the Bucket, Gawoni said. The others laughed at the clever turn of phrase.
+Safe travels, Boy with the Bucket, Gawoni said. The others laughed at that clever turn of phrase.
 
 Mika walked outside the gates onto the dirt path. He did not  turn back to address their riducule, which continued until he rounded the rock bend and was therefore out of earshot.
 
@@ -589,7 +589,7 @@ The sound of the river was loud under the archway. It echoed off the high walls 
 
 Mika looked again at the opening on the other end of the plateau. He walked along the chasm and saw what he was looking for. A glint of sunlight blinded him and he held up his hand. It was there. The source of the river was beyond that opening.
 
-He surveyed the width of the chasm. It was twenty feet or more across. Impossible to jump. Perhaps he had made a mistake in his journey. Perhaps there was another way. He retraced his footsteps outside to where the plateau fell off. For miles along the mountainside were shear cliffs. He went back to the chasm and sat down. There he meditated on the opening on the other side, the sunlight coming through the opening. He listened to the roar of the river he heard at the bottom of the chasm, but could not see. After some time he rose and tied a piece of twine from the handle of the bucket to his arm. He tugged on it to make sure it was secure and walked to the chasm ledge. He leapt in.
+He surveyed the width of the chasm. It was twenty feet or more across. Impossible to jump. Perhaps he had made a mistake in his journey. Perhaps there was another way. He retraced his footsteps outside to where the plateau fell off. For miles along the mountainside were shear cliffs. He went back to the chasm and sat down. There he meditated on the opening on the other side, the sunlight coming through the opening. He listened to the roar of the river he heard at the bottom of the chasm, but could not see. After some time he rose and tied a piece of twine from the handle of the bucket to his arm. He tugged on it to make sure it was secure and walked right up to the ledge of the chasm. Then he fell in.
 
 ~
 
