@@ -192,7 +192,7 @@ SUMMER
    see they did not understand what he said.
 
    a) the journey to the lake, the crevasse, the hunger (tests of body, mind, faith) (1250)
-   b) the cave and lake, the bear that is not a bear (temptation) (1250)
+   b) the cave and lake, the bear that is not a bear, the warm clear waters (temptation) (1250)
    c) the return, nothing happens when pouring the bucket, resentment from others, 'boy with the bucket' (no immediate reward) (1250)
 
 
