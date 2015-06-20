@@ -1,7 +1,7 @@
 HUNGER by Daniel Stepp
 
 
-A new moon hung low among the stars to the East. Mika saw its crescent shape behind the trees of the forest and knew it must be morning and yet hours before sunrise. The boy followed behind an old woman who had roused him from slumber only moments before. He had yet to shake off his dreams. He observed his surroundings and thought how unreal it all was. His cold breath in the air. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the shaman of the village and would have been performing the ritual tonight were it not him who lay inside.
+The new moon was among the stars to the East. Mika saw its crescent shape behind the trees of the forest and knew it must be morning and yet hours before sunrise. The boy followed behind an old woman who had roused him from slumber only moments before. He had yet to shake off his dreams. He observed his surroundings and thought how unreal it all was. His cold breath in the air. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the shaman of the village and would have been performing the ritual tonight were it not him who lay inside.
 
 Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
 
@@ -541,7 +541,7 @@ Mika nodded and then answered, I must do what my father has asked of me. When th
 
 The lookouts saw the bucket he carried and whispered among themselves. By their snears Mika could see they resented him for abandoning the tribe in this time of need.
 
-Safe travels, Boy with the Bucket, Gawoni said. The others laughed at that clever turn of phrase.
+Farewell, boy with the bucket, Gawoni said. The others laughed at his clever turn of phrase.
 
 Mika walked outside the gates onto the dirt path. He did not  turn back to address their riducule, which continued until he rounded the rock bend and was therefore out of earshot.
 
@@ -555,7 +555,7 @@ As before his food had already run out. Though he had rationed it with care he d
 
 Nearby there were some marmot holes and he patiently waited for them to emerge, knife in hand. Marmots, who live in the ground, are particuarly sensitive to footsteps so he was careful to crawl to the spot. Hours passed and nothing appeared. By now it was getting dark.
 
-No food for you tonight, Mika.
+No food for you tonight.
 
 In the solitude of the journey he had begun speaking to himself for company. At first it was strange to do, but he had gotten used to hearing his voice and it did make him feel less alone.
 
@@ -569,27 +569,70 @@ Out of instinct he grasped around underneath the water and felt it again. A fish
 
 With his belly full Mika bedded down. He gazed up at the beauty of that clear, dark night and thought about all his loved ones back home. Before long he was asleep and did not wake again until morning.
 
-Mika walked for many days. The journey through the plains had been hard but it was nothing compared to the mountainous landscape that enveloped him. It was harsh, lifeless. The only movement here at all was the streaming of the river and a wind that never ceased. 
+Mika walked for a long time. The journey through the plains had been hard but it was nothing compared to the mountainous landscape that enveloped him. It was harsh, lifeless. The only movement here at all was the streaming of the river and a wind that never ceased. 
 
 The bucket he carried no longer gave him blisters as it had before. Now on both hands there were callouses as tough as leather. Though he did keep the handle wrapped in grass. He also had a good idea to put kindling and fuel wood in the bucket for the journey to the mountain. Though there were shrubs and small trees he knew he would not be able to count on them as he climbed. 
 
 His luck with the fish had not run out. Without fail he caught a couple each night and cooked them on the fire. They nourished him on the journey and he was grateful.
 
-It was hard for Mika to gauge how many days he had spent out here. Time did not seem to pass the same as in the valley. There was daylight and evening, and the sun rose and the sun went down, and yet he discovered that at any particular time he could only remember few days before today. Time blurred. But there were other ways to tell that some amount of time had passed. He knew he had lost weight because his ribs were now visible. That had not been true for many years. 
+It was hard for Mika to gauge how much time he had spent out here. Time did not seem to pass the same as in the valley. There was daylight and evening, and the sun rose and the sun went down, and yet he discovered that at any particular time he could only remember few days before today. Time blurred. But there were other ways to tell that some amount of time had passed. He knew he had lost weight because his ribs were now visible. That had not been true for many years. 
 
 Mika did not think about home while he walked. That he would not allow himself to do, remembering the loneliness and how it had overcome him before. He spoke aloud to keep it at bay. But the things he spoke were not merely for diversion. They were to keep himself focused on the journey. I am on the path, he repeated whenever he was particularly sad, I am on the path.
 
-One afternoon there was a moment when all Mika could hear was the whistle of the wind around a jagged outcrop. He then saw the river was gone. His first thought was that he had lost it by not paying attention. By letting his mind become unfocused. He sat on the ground and panicked.
+One afternoon there was a moment when all Mika could hear was the whistle of the wind around a few boulders. He then saw the river was gone. His first thought was that he had lost it by not paying attention. By letting his mind become unfocused. He sat on the ground and panicked.
 
-But as he sat there he heard the muffled sound of water flowing underground. He placed his ear against the rocks. The sound grew louder. Mika then scanned the area for any kind of opening. He saw nothing apparent. Then he continued up the mountain, making sure he could always hear the flowing water under his feet.
+But as he sat there he heard the muffled sound of water flowing underground. He placed his ear against the rocks. The sound grew louder. Mika then scanned the area for any kind of opening. He saw nothing apparent. He backtracked and found the spot where the river emerged from a low fissure in the side of the mountain. There was no room for a person to fit inside, so Mika continued up the mountain, making sure he could always hear the flowing water under his feet.
 
-He came to a plateau where the rocks leveled out. Above him an enormous natural archway blocked out any sunlight and blanketed the entire area in shadows. At the other end Mika saw an opening where light returned. It was cold here and a harsh wind whipped through the funnel the archway made. Mika put on his deerskin shirt and folded his arms together, the bucket beating against his thigh. He entered and let his eyes become accustomed to the lack of sunlight.
+He came to a plateau where the rocks leveled out. Above him an enormous outcropping blocked out any sunlight and shadowed the entire space. At the other end Mika saw an opening where light returned. It was cold here and a harsh wind whipped through the funnel the outcropping formed. Mika put on his deerskin shirt and folded his arms together, the bucket beating against his thigh. He entered and let his eyes become accustomed to the lack of sunlight.
 
-The sound of the river was loud under the archway. It echoed off the high walls and reverberated into echoes. Mika walked to the middle of the plateau and came to a wide chasm there. The dark of the shadows grew deeper as he peered into it. There was no bottom. Yet there was where the sound of the river came from. By the smooth rush the water made he knew it must be deep there. Likely he was near the source.
+The sound of the river was loud. It echoed off the high walls and reverberated into echoes. Mika walked to the middle of the plateau and came to a wide chasm there. The dark of the shadows grew deeper as he peered into it. There was no bottom. Yet there was where the sound of the river came from. By the smooth rush the water made he knew it must be deep there. Likely he was near the source. He picked up a small stone and dropped it down there and listened for a splash but with the roar of the water he could not tell.
 
-Mika looked again at the opening on the other end of the plateau. He walked along the chasm and saw what he was looking for. A glint of sunlight blinded him and he held up his hand. It was there.
+Mika looked again at the opening on the other end of the plateau. He walked along the chasm and saw what he was looking for. A glint of sunlight blinded him and he held up his hand. His destination.
 
-Mika surveyed the width of the chasm. It was twenty feet across. Impossible to jump. Perhaps he had made a mistake after all. Perhaps there had been a better approach. He retraced his footsteps outside to where the plateau dropped off. Along the mountainside shear cliffs rose to great heights. Impossible to climb. Mika walked back to the edge and sat down near it. There he meditated on the opening on the other side. The sunlight shining through the opening on the other side. He listened to the roar of the river. The roar he heard at the bottom of the chasm, but could not see. After some time he rose and then tied a piece of twine from the handle of the bucket around his arm. He tugged on it to make sure it was secure and then walked right up to the ledge of the chasm. Then he fell in.
+Mika surveyed the width of the chasm. It was easily thirty feet across. Impossible to jump. Perhaps he had made a mistake after all. Perhaps there had been a better approach up the mountain after all. He retraced his footsteps outside to where the plateau dropped off. Along the mountainside shear cliffs rose to great heights. Impossible to climb. Mika walked back to the edge and sat down near it. 
+
+There he meditated on the opening on the other side. The sunlight shining through the opening on the other side. He listened to the roar of the river. The roar he heard at the bottom of the chasm, but could not see. After some time he rose and then tied a piece of twine from the handle of the bucket around his arm. He tugged on it to make sure it was secure and then walked right up to the ledge of the chasm. Then he fell in.
 
 ~
 
+Mika sank like a rock into the river at the bottom of the chasm. When his foot touched hard ground he pushed against it with all his strength and fought his way to the surface. The water was very cold, but lucky for him it was also deep. He emerged and his gasp for breath echoed up the high, narrow walls of the chasm. The bucket strapped to his wrist filled with water and carried him downstream. He quickly lifted the bucket out of the water held it aloft with one arm as he swam with the other upstream.
+
+Only now did it dawn on him that there might be no exit down here. His decision to leap moments ago had been based on a feeling. Not reason. All around him was darkness and the cold. He fought the current anyway and made slow progress.
+
+When his eyes grew accustomed to the darkness he spotted a small sliver of light, though it was hard to tell how far away it was. That gave him some hope and he swam toward it.
+
+It may only be a trick of the mind, he thought. 
+
+The chasm widened. He knew this because the echoes of the river grew longer. The light he saw was very far away. It was not a small light at all but appeared to be coming from the mouth of a large cave. The arm which held the bucket grew tired so he swapped it with his swimming arm and did so several more times before he reached a beach where the cave was. As soon as he felt his feet touch bottom he stood and walked the rest of the way.
+
+The light illuminated the wet, smooth sides of the chasm walls. This same water had been flowing for thousands of years. He wondered how few had seen what he now saw.
+
+The entrance of the cave was high. At its mouth Mika sat on his haunches and took some time to rest. Then he picked up the bucket and continued on the path. The light was not close. The walls of the cave were jagged, not smooth like the walls where the river ran. He was careful not to brush against them. He tried to keep near the center of the path. 
+
+Mika was tired, very tired. And cold. The path through the cave was going up and made his progress slow. The sound of the rushing water grew faint as he went. The light brighter. And soon the incline leveled off and he went around one last bend.
+
+There he could see the exit and the light was coming from the opening on the other side the chasm. But there was another way to go. To the left was another cave. The light did not enter it. As he approached his eyes were drawn into those shadows. Something was there. Something alive was just out of sight in that darkness. He heard its breaths and the closer he came he saw its eyes reflecting light from the exit. But he could not see its shape. Then it saw him and Mika panicked. He removed the flint knife from his satchel and stood still.
+
+Do not be afraid, traveler, a voice spoke to him from the darkness, its voice a low growl, much like the sounds of the brown bears in the hills of the valley near his home.
+
+Then he saw its shape emerge from those shadows. It was a brown bear, reared up on its hind legs, but Mika knew that it was really no bear at all, and gripped his knife to be prepared.
+
+Please, put down your weapon, traveler, the bear said, Come with us inside the cave. We have fire to keep you warm. We have food to fill your belly. So many travelers have come this way before. All travelers must join us in time.
+
+It came closer.
+
+Stay away from me! Mika shouted, Go back to where you came from.
+
+It flashed its teeth and reared its claws but came no closer. Then the bear that was no bear at all backed away until it was only two eyes glimmering in the darkness. Mika sheathed his knife and walked slowly past and tempted though he was, he did not look once in its direction.
+
+He emerged from a small exit on the other side of the chasm. The light shone bright from opening. He glanced back at the other side of the chasm, where he had leap in. Beyond he saw the stretch of the high plains to the horizon, and beyond that was home. Mika kept going through the opening and came to a gigantic open meadow covered with grass and in the middle of it was a wide lake. Rays of sunlight shone on its surface and reflected into his eyes.
+
+He jumped from the rock platform and entered the meadow. Though there seemed to be no life here now Mika saw the remnants of an old civiliation. Crumbled rock walls and the foundations of buildings. Clearings with stone pathways overgrown with weeds. He wondered who had lived here before, what happened to them, how long ago it was. He walked among the ruins and imagined what life had been like before.
+
+When he reached the edge of the lake he put his toe in and was surprised to find that it was warm. He tore off his wet clothes and set them on the beach to dry out. Then he went for a swim. The water was clear and he could see the small rock bottom. His feet sank into the rocks and they were smooth so it did not hurt. There were small trout swimming around his legs and nosing at his feet. He swam out until he could no longer see the bottom. The water here was a deep, bright green. Though still warm. He swam back to the beach where his clothes were now dry and put them back on.
+
+Next Mika pulled the net from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. 
+
+The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
+
+~
