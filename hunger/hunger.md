@@ -433,19 +433,19 @@ Then she walked away as if she were uninterested in speaking to him. But was tha
 
 Leoti walked along the circumference of the ceremonial grounds. She walked slow and Mika kept behind. At some point she heard him and turned around.
 
-Are you tracking me, hunter?
+Are you tracking me?
 
 Mika turned red. Then he walked up and stood by her side. Leoti did not refuse his boldness. They walked together around the empty grounds. They said nothing to one another. There were only the sounds of the celebration on the other side and the light of the large bonfire that reached them by way of a dim glow.
 
-Finally Leoti spoke. You have grown stronger, Mika.
+Finally Leoti spoke. You have grown stronger.
 
 Everyone keeps saying that. I don’t know how I could have grown in only a few weeks.
 
-It is true. Or maybe it is your reputation that makes you seem larger. Mika the great hunter. The savior of our tribe. The elders beam when they speak your name. The children tell stories about you like you are the hero in a legend. They play hunt in the forest and every boy wants to be Mika.
+It is true. Or maybe it is your reputation that makes you seem larger. Mika the great hunter. The savior of our tribe. The elders beam when they speak your name. The children tell stories about you like you are the hero in a legend. They play hunt in the forest and every boy wants to be Mika, the boy with the bow.
 
 I only do what has been asked of me.
 
-Leoti laughed. And he is humble too.
+Leoti mocked him. So humble.
 
 They walked underneath the branches of the ancient tree and she sat against its trunk. Mika joined her there and they did not speak again for some time. But it was a good silence. And when he did at last turn to look at her in the firelight he could see in her eyes the thing they had shared so many times before. It was a sense of gentleness and belonging. Leoti was his and Mika was hers and life in the future was something for them to share.
 
@@ -455,7 +455,7 @@ Then Mika woke. Above him the night sky was clear. His mother was asleep in the 
 
 When the blight came there was no time to even consider such things as his father’s request. He had decided that himself. But not decided really. Everyone had been so afraid. Everyone had been so focused on coming up with a plan to survive through next Winter. It was assumed Mika would help. Join in. And he did so. And look how well it had turned out so far. There was plenty again. They were going to be okay. Mika was a hero. His skills at hunting had inspired them all to be better, and now they were. He had so much to be happy for.
 
-And yet he was not happy. The opposite in fact. His success at hunting felt devoid of purpose. Meaningless. And this confused him greatly. The tribe loved him now. Families he barely knew now went out of their way to be kind to him. Children re-enacted the great kills he and Tye had achieved in the valley. More importantly the tribe had overcome the blight from the great stores of meat they gained by the work he and the other hunters did. And yet to him it was all like a tree that falls deep in the forest. Outward seeming strong, yet brittle to the touch and dead inside. A hollow thing.
+And yet he was not happy. His success at hunting felt devoid of purpose. Meaningless. And this confused him greatly. The tribe loved him now. Families he barely knew now went out of their way to be kind to him. Children re-enacted the great kills he and Tye had achieved in the valley. More importantly the tribe had overcome the blight from the great stores of meat they gained by the work he and the other hunters did. And yet to him it was all like a tree that falls deep in the forest. Outward seeming strong, yet brittle to the touch and dead inside. A hollow thing.
 
 And his mother. Leoti. They were very proud and it was his happiness to make them happy. So why this feeling when he was reminded of the tree and his father and the thing that had been asked of him? Did he not want them to be happy? To be proud of him? Mika could not say.
 
@@ -557,11 +557,11 @@ Nearby there were some marmot holes and he patiently waited for them to emerge, 
 
 No food for you tonight, Mika.
 
-In the solitude of the journey he had begun speaking to himself for company. At first it was strange to do but he had gotten used to hearing his voice, and it really did make him feel less alone.
+In the solitude of the journey he had begun speaking to himself for company. At first it was strange to do, but he had gotten used to hearing his voice and it did make him feel less alone.
 
 He went to the marmot hole and stomped his foot. Then he got down and put his ear to the ground. There was no movement.
 
-Likely an abandoned hole. Makes sense. Here is not a good place for rodents.
+Likely an abandoned hole. Makes sense. This is no place for rodents.
 
 Mika put food out of his mind and started a fire. By now the sun was just above the Western horizon and a vivid sheet of red stretched into the darkness there. The first stars had appeared. He went to the river to wash the day’s grime from his face and upper body. When he reached his hand into that cold water he felt something move.
 
