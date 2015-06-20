@@ -1,7 +1,7 @@
 HUNGER by Daniel Stepp
 
 
-Mika saw the crescent shape of the new moon behind the forest trees and knew it must be morning and yet hours before sunrise. The boy followed behind an old caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams. How unreal it all was. His cold breath in the air. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the shaman of the village and would have been performing the ritual tonight were it not him who lay inside.
+Mika saw the new moon among the stars behind the forest trees and knew it must be morning and yet hours before sunrise. The boy followed behind the elderly caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams. How unreal this was. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
 
 Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
 
@@ -63,7 +63,7 @@ Thank you, Leoti.
 
 She smiled and they sat together for awhile. Mika was happy she was here. He looked at all the people and for the first time that evening understood that it was love that had brought them together and that it was something not to take for granted. And he felt it himself and no longer wanted to be alone.
 
-The elders of the tribe then gathered around the fire and the people gathered around them and sat on the ground. Mika and Leoti came closer and found a place next to the others. Then, in turn, each of the village elders told stories about Sakima the shaman. As he listened Mika was filled with such pride at the things they said. Half of the stories he had never heard before.
+The elders of the tribe then gathered around the fire and the people gathered around them and sat on the ground. Mika and Leoti came closer and found a place next to the others. Then, in turn, each of the village elders told stories about Sakima the medicine man. As he listened Mika was filled with such pride at the things they said. Half of the stories he had never heard before.
 
 At last Kulsathee rose from his spot in the center of the group of elders, a large rotund man the same age as his father. He was what they called the *Chief of Peace* and had been the leader of the tribe ever since before Mika was born. There were deep lines in his face and when he smiled, which he did often, the lines grew deeper still, like bunched up leather.
 
