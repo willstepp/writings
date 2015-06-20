@@ -241,7 +241,7 @@ He kindled a fire in the grass and watched the sun go down and the stars emerge 
 
 Mika had thought the nights rest would heal the soreness in his legs and back and make the blisters on his palms better. But it was worse today. He walked slower but made progress.
 
-You are soft, Mika, he scolded himself, This deed is not for a boy but for a man. And you are no man.
+You are soft, Mika, he scolded himself, This deed is not for the weak but for the strong. And you are not yet strong.
 
 He wrapped the handle of the bucket with blades of grass to make it softer but it helped little. They bled and the pain from them was nearly constant. He had to stop for rest more often on the second day. He ate more of the food. Indeed there was not much of it left, but that was no matter. When he stopped for the day he caught a fish in the river with some line he brought in the satchel and cooked it over the fire. Again he felt his strength return.
 
@@ -251,7 +251,7 @@ But he was lonely. He missed the people from his tribe. Missed seeing them each 
 
 After the third day the fried cakes ran out and he relied on the fish in the river alone to nourish him. He made steady progress even as the landscape inclined. But on the third night he caught no fish, there were none, and that night he went to bed hungry and woke up the next morning with no strength even to fish let alone continue his journey.
 
-How weak I am, Mika said aloud, what would my father say if he could see me now? You are not ready to do the thing I asked of you. You cry like a baby because your feet hurt and your palms bleed. I am ashamed.
+How weak I am, Mika said aloud, what would my father say if he could see me now? You are not ready to do the thing I asked of you. You cry like a baby because your feet hurt and your palms bleed.
 
 Mika lay in the grass feeling low and hungry and lonely for company. He was so hungry. Just a little nourishment and he would be good again. He could continue. Where were the fish? Why had the river not produced any for him? He sat up and looked towards the far mountains. So far away they were. They looked no closer than when he first began. The day ended and Mika had not made any progress and was low in spirit and very hungry. He slept with no fire that night.
 

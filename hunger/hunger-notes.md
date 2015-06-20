@@ -1010,3 +1010,5 @@ of my father yet because they do not come from a place of faith the people do no
 in them. In their hearts they do not believe in the ritual and how could they? The words 
 and the ritual are nothing without the faith and the faith has been lost so that all remains 
 are the words and the ritual. All husk and no corn.
+
+About dead but not quite.
