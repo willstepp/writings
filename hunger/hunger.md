@@ -397,7 +397,7 @@ Word had already got around how fine Mika and Tye’s kills had been today. The 
 
 The three elder huntsmen came over to congratulate Mika and Tye. 
 
-You have made us proud today, Mika and Tye. One day you will lead us all. This is true!
+You have made us proud today, Mika and Tye. One day you will lead our tribe. This we know.
 
 Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. That night the exhausted hunters slept well and dreamed not about the hunt but about home and being reunited with their loved ones.
 
