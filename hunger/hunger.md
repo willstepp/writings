@@ -505,15 +505,15 @@ He picked his things from the ground, his flint knife, the bucket whose handle w
 
 After the ceremony the hunters and their wives and children ate together in the yard. There was cooked game, potato cakes. As Mika went by on the path he smelled the food and watched them. His friend Tye saw him and waved him over to join them. Mika did not go. Tye was confused and interlocked his fingers in the gesture of their friendship. Mika did not return the gesture.
 
-Though you are my friend, I must go alone.
+Though you are my friend, I must do this alone.
 
 He avoided everyone else by keeping his head down. He passed the circle of elders who gathered near the home of Kulsathee daily to smoke and talk about the old days. But he did not look in their direction, though he knew they saw him walking by.
 
-Though I honor you, I must go alone.
+Though I honor you, I must do this alone.
 
 He saw Leoti among her friends near the creek. They were cleaning deer skins. She saw him and stopped working. The other girls noticed and teased her. But Mika did not approach. He felt that to speak to her now might sway him from the journey. He was stronger than he was before, but did not think he was strong enough to resist her power over him.
 
-Though you have my heart, I must go alone.
+Though you have my heart, I must do this alone.
 
 When Leoti realized Mika would not speak to her she was clearly hurt and returned to the work. From time to time she looked towards the road in hope that he would return though he did not.
 
