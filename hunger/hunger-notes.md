@@ -1012,3 +1012,5 @@ and the ritual are nothing without the faith and the faith has been lost so that
 are the words and the ritual. All husk and no corn.
 
 About dead but not quite.
+
+[]

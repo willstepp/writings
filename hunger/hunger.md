@@ -201,21 +201,17 @@ Again Mika asked his friend to open the gate. Gawoni, when his eyes adjusted to 
 
 Where are you going so early in the morning?
 
-To do what my father has asked of me.
+To do what my father asked of me before his death.
 
 But where?
 
-To the mountains in the north.
+To the mountains. In the north.
 
-Why must you do this thing?
+Why?
 
-He did not say. He only told me what to do.
+I don’t know.
 
-What is the bucket for?
-
-I cannot tell you. Please don't be angry.
-
-Gawoni sighed. It was much too early for this so he swung open one of the wooden gates just enough for Mika to pass.
+Gawoni nearly asked Mika what the bucket was for, but then sighed. It was much too early for this. He swung open one of the wooden gates just enough for Mika to pass.
 
 You are a strange one, Mika, that is for sure. Safe travels to you.
 
@@ -267,9 +263,9 @@ She prepared bread and salted meat and also dried peaches. He ate it all down as
 
 Mika lay down. His mother gave him a kiss on the forehead.
 
-How does it feel now that you have done your father’s will? He is surely proud of his son. I am proud of you.
+How does it feel now that you have done your father’s will? He is surely proud. I am proud of my son.
 
-That night Mika did not sleep at all and as he lay in bed his view of the stars through the opening in the roof was obscured by tears.
+That night Mika wept.
 
 ~
 
@@ -505,15 +501,15 @@ He picked his things from the ground, his flint knife, the bucket whose handle w
 
 After the ceremony the hunters and their wives and children ate together in the yard. There was cooked game, potato cakes. As Mika went by on the path he smelled the food and watched them. His friend Tye saw him and waved him over to join them. Mika did not go. Tye was confused and interlocked his fingers in the gesture of their friendship. Mika did not return the gesture.
 
-Though you are my friend, I must do this alone.
+Though you are my friend, I must go alone.
 
 He avoided everyone else by keeping his head down. He passed the circle of elders who gathered near the home of Kulsathee daily to smoke and talk about the old days. But he did not look in their direction, though he knew they saw him walking by.
 
-Though I honor you, I must do this alone.
+Though I honor you, I must go alone.
 
 He saw Leoti among her friends near the creek. They were cleaning deer skins. She saw him and stopped working. The other girls noticed and teased her. But Mika did not approach. He felt that to speak to her now might sway him from the journey. He was stronger than he was before, but did not think he was strong enough to resist her power over him.
 
-Though you have my heart, I must do this alone.
+Though you have my heart, I must go alone.
 
 When Leoti realized Mika would not speak to her she was clearly hurt and returned to the work. From time to time she looked towards the road in hope that he would return though he did not.
 
@@ -521,7 +517,7 @@ At the Northern gate stood Gawoni and a few other lookouts. They looked bored st
 
 Though the gates were open because of it being daytime, Mika stopped when he saw them there. He felt he should say goodbye to someone at least. And there was no chance they would sway him from the journey he must take.
 
-Hello again, Gawoni.
+Hello again, friends.
 
 Hello, Mika. Why are you not with the other hunters? They are leaving soon, though by the Southern gates.
 
@@ -533,15 +529,15 @@ I did not bring it with me.
 
 One of the lookouts, someone Mika did not know, spoke to him.
 
-But you are the Boy with the Bow, the greatest hunter among us. You and Tye are responsible for the majority of the food that has been gathered since the blight. Why will you not hunt?
+But you are the boy with the bow, the greatest hunter among us. You and Tye are responsible for the majority of the food that has been gathered since the blight. Why do you not hunt?
 
-Mika nodded and then answered, I must do what my father has asked of me. When that is done, then will I pick up my bow again. Only then.
+Mika acknowledged the truth of what he said and then answered, I must do what my father has asked of me. When that is done, then will I pick up my bow again.
 
-The lookouts saw the bucket he carried and whispered among themselves. By their snears Mika could see they resented him for abandoning the tribe in this time of need.
+The lookouts saw the bucket he carried and whispered among themselves. By their snears he saw they resented him for abandoning the tribe in this time of need. For not doing obeying the decree of the elders.
 
-Farewell, boy with the bucket, Gawoni said. The others laughed at his clever turn of phrase.
+Farewell to you then, boy with the bucket, Gawoni said. The other lookouts laughed at that clever turn of phrase, repeating it among themselves.
 
-Mika walked outside the gates onto the dirt path. He did not  turn back to address their riducule, which continued until he rounded the rock bend and was therefore out of earshot.
+Mika continued outside the gates and onto the dirt path that led out of the village. He did not turn back to address their taunts, which continued until he rounded the rock bend and was therefore out of earshot.
 
 ~
 
@@ -619,16 +615,82 @@ Please, put down your weapon, traveler, the bear said, Come with us inside the c
 
 It came closer.
 
-Stay away from me! Mika shouted, Go back to where you came from.
+Stay back! Mika shouted, Return to the place you came from.
 
-It flashed its teeth and reared its claws but came no closer. Then the bear that was no bear at all backed away until it was only two eyes glimmering in the darkness. Mika sheathed his knife and walked slowly past and tempted though he was, he did not look once in its direction.
+It flashed its teeth and reared its claws but came no closer to him. Then the bear, who was no bear at all, backed away until it was once more two eyes glowering in the darkness. Mika sheathed his knife and walked slowly past it and tempted though he was, he did not look once in its direction.
 
-He emerged from a small exit on the other side of the chasm. The light shone bright from opening. He glanced back at the other side of the chasm, where he had leap in. Beyond he saw the stretch of the high plains to the horizon, and beyond that was home. Mika kept going through the opening and came to a gigantic open meadow covered with grass and in the middle of it was a wide lake. Rays of sunlight shone on its surface and reflected into his eyes.
+He emerged from a small exit on the other side of the chasm. The light shone bright from opening. He glanced back at the other side of the chasm, where he had leap in. Beyond he saw the stretch of the high plains to the horizon, and beyond that was home. Mika kept going through the opening and came to a wide open meadow covered with overgrown grass and the dead, ancient trees like the one in their village. But the most impressive sight was a broad lake in th middle, as large as the entire village back home. Rays of sunlight gleamed on the surface of the still water and reflected into his eyes.
 
-He jumped from the rock platform and entered the meadow. Though there seemed to be no life here now Mika saw the remnants of an old civiliation. Crumbled rock walls and the foundations of buildings. Clearings with stone pathways overgrown with weeds. He wondered who they were, what happened to them, and whether they had lived during the time of the ancient tree.
+Mika jumped down from the rock and entered the meadow. Though there seemed to be no life here now he saw the remnants of an old civiliation. Crumbled rock walls and the foundations of buildings were interpersed throughout the petrified forest. Mika wondered who they were, what happened to them, and whether they had lived during the time of the ancient trees.
 
 When he reached the edge of the lake he put his toe in and was surprised to find that it was warm. He tore off his wet clothes and set them on the beach to dry out. Then he went for a swim. The water was clear and he could see the small rock bottom. His feet sank into the rocks and they were smooth so it did not hurt. There were small trout swimming around his legs and nosing at his feet. He swam out until he could no longer see the bottom. The water here was a deep, bright green. Though still warm. He swam back to the beach where his clothes were now dry and put them back on.
 
-Next Mika pulled the net from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
+Next Mika pulled the netting from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
+
+~
+
+With twigs and fallen limbs from the trees in the meadow and twine he wove from the high grass Mika constructed a narrow bridge that was light enough for him to drag to the chasm ledge and then slide across the wide gap. When he was sure it was secure enough he cautiously placed a single foot on it. Then another. And another. When he reached the midway point, the point he was most in danger, he felt the bridge bend under his weight and quickly hopped to the other side. Then he breathed a sigh of relief and walked to the edge of the plateau where he first ascended.
+
+The expanse of the high plains stretched to the horizon before him and he closed his eyes and thought about the valley. His home. He thought about how it would be when he rounded the bend at last and saw the wooden gates of his village again. This gave him strength to begin the journey and he climbed down the rocky slope in the same place he went before.
+
+The first day he felt the weight of the bucket of water in his arms. He was not used to the burden of it and the joints in his elbows and shoulders ached. Every half hour he would switch arms. While building the bridge he had also constructed a small lid to fit over the bucket so the water would not spill out. He was glad to have thought of that before heading off. The water sloshed against the sides in rhythm with his footsteps.
+
+The abundance of trout he enjoyed while at the lake vanished though he was still able to catch a fish or two each day. The river granted him that at least. It was not enough to put meat on his bones but it gave him energy to make progress and for that he was grateful.
+
+Mika walked and his thought drifted to his father and the people of the village. It did not make him lonely anymore to think about them. He was not lonely. He welcomed the silence of the plains, the simple pleasure of placing one foot in front of the other, measuring his progress by noting how minute landmarks on the horizon grew larger each day. There was a peace in his heart now that he was doing what his father had asked of him, a peace he had not felt since he was a young child, and that peace seemed to extend also to the landscape itself. No longer did the plains seem austere and hostile to him. The hard ground was not uncomfortable. No longer did it blister his feet. He welcomed the silence of the wind and felt gratitude for the vast emptiness of the plains.
+
+Time passed but Mika was not aware of it in a conscious way. Soon the rocky, high plains turned into the rolling grasslands and finally the river valley that was the place of his birth. The sight of the forest appearing was like a vision to him. The soil here rich and soft. He knew he was close to home when he began to see the dark blight on the fallen fruits and decayed animals that had died from it.
+
+And then, one late afternoon, he rounded the small bend in the path and in the distance saw the familiar wooden gates of his village. It was just as he imagined on top of the mountain plateau. His heart grew full and tears welled in his eyes at the site of his home.
+
+He came to the closed gates and stood by and rested next to it. He was too exhausted to shout for them to open the gates. But soon one of the lookouts saw him. And his eyes grew wide when he recognized who it was.
+
+He has returned! the lookout shouted to someone on the other side of the gate. Mika has come back at last.
+
+You lie.
+
+See for yourself.
+
+There was some movement on the other side and then another lookout appeared at the post.
+
+He does not look the same. He does not look strong as he did before. I can see his ribs.
+
+Then the first lookout shouted to Mika.
+
+Boy with the bucket. Welcome. Have you returned from your journey then?
+
+I have. Open the gates for me.
+
+There was more movement and then the sound of the gate as it  unlatched. They swung open and a few other lookouts, including Gawoni stood there. They looked at Mika as if he were a stranger to them.
+
+Like a skeleton, one of them remarked.
+
+The boy with the bucket has returned, Gawoni said, run and tell the people. They will want to know our great hunter has returned, such as he is.
+
+There were no smiles on their faces. Mika noticed they were polite but the familarity they had once greeted him with was gone. He was treated like a stranger.
+
+The path through the village was lively with people from the tribe. This was a period when the hunters were at home. Mika smelled the cooked meat and salivated. He went through the village with his head down. He was not used to being around them. He was not used to human voices. From all sides he felt their eyes upon him.
+
+What happened to him out there?
+
+He’s been gone for weeks.
+
+Like a miracle. I thought he was dead, and yet here he is.
+
+Where is the rest of him? All I see are skin and bones.
+
+Some laughed.
+
+What’s in the bucket?
+
+What is he doing?
+
+Mika looked up and saw his friend Tye. He saw Mohe and Leoti too. All his friends. The elders. Yaholo and Kulsathee. They all stared at him with pitying, unbelieving eyes. But he did not speak to them, nor they to him. Then, near the back of the crowd, he saw his mother approach with her sisters. Her face when she saw him fell in horror. She placed a hand over her mouth and cried. Her sisters consoled her.
+
+As he walked a crowd grew until it was fifty strong. They kept their distance but followed just behind. 
+
+He went along the path through the village and approached the ceremonial grounds where the ancient tree stood. The group did not enter the grounds with Mika. Instead they stood around the small fence that outlined it and gossiped to one another in hushed voices. 
+
+Mika ignored them all and walked up to the ancient tree. When he reached it he lifted off the makeshift cover from the bucket and gently poured its contents into the ground at the base of the tree. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited. And nothing happened.
 
 ~
