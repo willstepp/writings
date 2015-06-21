@@ -589,7 +589,7 @@ There he meditated on the opening on the other side. The sunlight shining throug
 
 ~
 
-Mika sank like a rock into the river at the bottom of the chasm. When his foot touched hard ground he pushed against it with all his strength and fought his way to the surface. The water was very cold, but lucky for him it was also deep. He emerged and his gasp for breath echoed up the high, narrow walls of the chasm. The bucket strapped to his wrist filled with water and carried him downstream. He quickly lifted the bucket out of the water held it aloft with one arm as he swam with the other upstream.
+The boy hit the frigid surface of the water and sank like a rock to the river bottom. When his foot touched on hard ground he pushed against it with all his strength and fought his way back up. The water was very cold but lucky for him it was also deep in this spot. He emerged and his gasping for breath echoed up the high, narrow walls of the chasm. The bucket strapped to his wrist filled with water and began to take him downstream. Quickly he lifted the bucket out of the water held it aloft with one arm as he swam with the other against the current.
 
 Only now did it dawn on him that there might be no exit down here. His decision to leap moments ago had been based on a feeling. Not reason. All around him was darkness and the cold. He fought the current anyway and made slow progress.
 
@@ -669,23 +669,23 @@ The boy with the bucket has returned, Gawoni said, run and tell the people. They
 
 There were no smiles on their faces. Mika noticed they were polite but the familarity they had once greeted him with was gone. He was treated like a stranger.
 
-The path through the village was lively with people from the tribe. This was a period when the hunters were at home. Mika smelled the cooked meat and salivated. He went through the village with his head down. He was not used to being around them. He was not used to human voices. From all sides he felt their eyes upon him.
+The path through the village was lively with people from the tribe. This was a period when the hunters were at home. Mika smelled the cooked meat and salivated. He went through the village with his head down. He was not used to being around them. He was not used to human voices. From all sides he felt their eyes upon him. In silence he listened to the things they said.
 
 What happened to him out there?
 
 He’s been gone for weeks.
 
-Like a miracle. I thought he was dead, and yet here he is.
+A miracle. I thought he was dead. Yet here he is.
 
-Where is the rest of him? All I see are skin and bones.
+But where is the rest of him? All I see are skin and bones.
 
-Some laughed.
+Some laughed at that.
 
-What’s in the bucket?
+What does he have in the bucket?
 
 What is he doing?
 
-Mika looked up and saw his friend Tye. He saw Mohe and Leoti too. All his friends. The elders. Yaholo and Kulsathee. They all stared at him with pitying, unbelieving eyes. But he did not speak to them, nor they to him. Then, near the back of the crowd, he saw his mother approach with her sisters. Her face when she saw him fell in horror. She placed a hand over her mouth and cried. Her sisters consoled her.
+Mika saw his friend Tye. He saw Mohe and Leoti too. All his friends. The elders. Yaholo and Kulsathee. They all stared at him with pitying, unbelieving eyes. But he did not speak to them, nor they to him. Then, near the back of the crowd, he saw his mother approach with her sisters. Her face when she saw him fell in horror. She placed a hand over her mouth and sobbed into it. Her sisters consoled her.
 
 As he walked a crowd grew until it was fifty strong. They kept their distance but followed just behind. 
 
