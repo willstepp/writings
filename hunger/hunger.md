@@ -391,11 +391,17 @@ The two hunters were welcomed like heroes even among their peers. They fed thems
 
 Word had already got around how fine Mika and Tye’s kills had been today. The hunters assumed it had been all Mika, but he quickly corrected them and told them all about his friend’s impressive feat. He rose in front of the fire and re-enacted the scene in detail. He described where Tye had been with the decoy, where the pond was, where he himself was, and then from which direction the deer approached. Everyone was impressed. Everyone was happy for their tribal brethren.
 
-The three elder huntsmen came over to congratulate Mika and Tye. 
+The three elder huntsmen came over to congratulate them.
 
-You have made us proud today, Mika and Tye. One day you will lead our tribe. This we know.
+Here is Mika, the boy with the bow. You have made us proud today.
 
-Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. That night the exhausted hunters slept well and dreamed not about the hunt but about home and being reunited with their loved ones.
+It was Tye also. He killed the doe.
+
+They smiled.
+
+Well then. You have both made us proud. One day you will be warriors. This we know.
+
+They each took Mika and Tye around the arms and shook them in the gesture of great respect. Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. Everyone cheered, and that night the exhausted hunters slept well and dreamt not about the hunt but about home and being reunited with their loved ones.
 
 ~
 
@@ -409,7 +415,7 @@ I swear he has grown by two inches, one of his aunts remarked.
 
 Mika blushed.
 
-I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika, the Boy with the Bow, as the children are saying. The hunter with the truest aim. I am so proud of you!
+I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika, the boy with the bow, as they are saying. The hunter with the truest aim. I am proud to be your mother.
 
 They walked home together and Mika told her about all the things he had done that week.
 
@@ -535,7 +541,7 @@ Mika acknowledged the truth of what he said and then answered, I must do what my
 
 The lookouts saw the bucket he carried and whispered among themselves. By their snears he saw they resented him for abandoning the tribe in this time of need. For not doing obeying the decree of the elders.
 
-Farewell to you then, boy with the bucket, Gawoni said. The other lookouts laughed at that clever turn of phrase, repeating it among themselves.
+Farewell to you then, boy with the bucket, Gawoni said. The other lookouts laughed at that clever turn of phrase, repeating it among themselves and pointing.
 
 Mika continued outside the gates and onto the dirt path that led out of the village. He did not turn back to address their taunts, which continued until he rounded the rock bend and was therefore out of earshot.
 
@@ -665,9 +671,9 @@ There was more movement and then the sound of the gate as it  unlatched. They sw
 
 Like a skeleton, one of them remarked.
 
-The boy with the bucket has returned, Gawoni said, run and tell the people. They will want to know our great hunter has returned, such as he is.
+Mika has returned, Gawoni said, run and tell the people. They will want to know our great hunter has returned, such as he is.
 
-There were no smiles on their faces. Mika noticed they were polite but the familarity they had once greeted him with was gone. He was treated like a stranger.
+There were no smiles on their faces. Mika noticed they were polite but the familarity they had once greeted him with was gone.
 
 The path through the village was lively with people from the tribe. This was a period when the hunters were at home. Mika smelled the cooked meat and salivated. He went through the village with his head down. He was not used to being around them. He was not used to human voices. From all sides he felt their eyes upon him. In silence he listened to the things they said.
 
@@ -685,7 +691,7 @@ What does he have in the bucket?
 
 What is he doing?
 
-Mika saw his friend Tye. He saw Mohe and Leoti too. All his friends. The elders. Yaholo and Kulsathee. They all stared at him with pitying, unbelieving eyes. But he did not speak to them, nor they to him. Then, near the back of the crowd, he saw his mother approach with her sisters. Her face when she saw him fell in horror. She placed a hand over her mouth and sobbed into it. Her sisters consoled her.
+Mika saw his friend Tye. He saw Mohe and Leoti too. All his friends. The elders. Yaholo and Kulsathee. They all stared at him with pitying, unbelieving eyes. But he did not speak to them, nor they to him. Then, near the back of the crowd, he saw his mother approach with her sisters. Her face when she saw him dropped and there were tears welling in her eyes.
 
 As he walked a crowd grew until it was fifty strong. They kept their distance but followed just behind. 
 
