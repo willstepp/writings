@@ -125,7 +125,7 @@ Notes from Records of the Moravians among the Cherokees:
 
 Outline
 
-SPRING
+SPRING (6)
 
 *) The boy taken to the bedside of his dying father who whispers to him alone
    to water the old, dead tree each day:
@@ -171,7 +171,7 @@ SPRING
    'Above all we must be practical.'
 
 
-SUMMER
+SUMMER (6)
 
 
 *) The boy reports and they go into the valley to hunt buffalo and elk with arrows 
@@ -196,49 +196,58 @@ SUMMER
    c) the return, nothing happens when pouring the bucket, resentment from others, 'boy with the bucket' (no immediate reward) (1250)
 
 
-AUTUMN
+AUTUMN (5)
 
 
-*) Weeks go by. The boy walks everyday. And everyday the people of the village 
-   resent him more and more. They tell him he and his mother cannot partake of the 
-   food if he does not join in. His mother tells him to abandon the deed, his father 
-   was feverish when he told him. Not in his right mind. His friends mock him and 
-   ridicule the bucket he carries. He grows thin. So he returns to the hunt.
+1500) Mika returns to the hunt. Now they go deeper into the valley. They see fires 
+   from another tribe. Here they hunt game by chasing it off of cliffs. It is 
+   more efficient and allows them to stay in one location. Mika is weaker than he 
+   was. He is given a role to chase them at a certain point. He listens to the 
+   others and what they care about and does not care. His thoughts drift to the 
+   mountain that can be seen from this altitude. Daydreaming he misses the call 
+   and causes them to lose the opportunity for the mass kill. It ruins the entire 
+   hunt and they return to the village empty-handed. Mika is scored, ridiculed.
 
-*) They accept him back. He eats and kills but always there is the bucket at the end 
-   of the day, empty. So he tries to do both and fails. He listens to the things 
-   they care about and feels an emptiness. He no longer cares about the hunt. 
-   After that he abandons the hunt completely. Finally they condemn him for not 
-   taking care of his mother. She goes to live with their cousin and he is told 
-   not to stay in the inner encampment. So he goes to the wilds and sleeps on the ground.
+1500) Once in the village no one is at home. He learns his mother has gone to live 
+   with her sisters. One of the sisters tells him off, tells him he is selfish and 
+   irresponsible. He also learns Leoti is now with Mohe. He watches them walk under 
+   the moonlight. That night he visits the grave of his father and asks him what to 
+   do. That night he dreams of a great civilization, its technology surpassing anything 
+   he has seen. The future.
 
-*) The hunters fight with another tribe who are hunting in the valley also. They 
-   triumph and Niko approaches them with an agreement to combine their forces. The 
-   village grows by orders of magnitude. His best friend becomes the new leader, ousting 
-   the old Sakima, who is not of the new order. They cut down the tree in order to 
-   carve a statue in his honor. Mika wept when he saw what they had done to the tree.
+1500) He once more picks up the bucket and leaves. This time there is no one to wish 
+   him goodbye. Only the lookouts call him the boy with the bucket. This time with 
+   scorn. He becomes hungry and eats fish from the river. Here is the only place he 
+   has peace anymore. It is like an escape. Simple. The entry to the plateau has 
+   fallen. He must find another way inside.
+
+1500) When he returns things are different. There are no more children playing. Everybody 
+   stays inside their homes. The cold. He finds the rows of dead hunters. He is walked to the Chief 
+   house and sees the red mark that used to be white. Inside he sees his friend Tye, 
+   and is told how he is now the Chief of War because of the battles with the neighboring 
+   tribe. Mika is asked to join the fight but refuses. He is then told he is no longer 
+   welcome to stay within the walls of the village. No access to rations, which are scarce. 
+
+1500) He makes his home in the wilds. Very hungry. His mother visits him in the wilds 
+   and he cries to her. In the morning he sets off to the lake.
 
 
-WINTER
+WINTER (4)
 
 
-*) His mother visits him in the wilds and he cries to her. 
+1500) Mika returns to find that the village has been ransacked. Dozens are dead. The food 
+   has been taken. People are starving. Leoti has been killed. Mohe has eaten the dead. He 
+   looks away in shame. Mika is rebuked by Tye, among the rubble. Why did you abandon us? 
+   They stay indoors, in fear. We will not survive. There is no more food. The blight is 
+   everywhere. The ancient tree has been burned. Mika weeps. All his hope is gone.
 
-*) The number of people now living in the small space contaminates the water supply 
-   and plague breaks out in the village and spoils the food stores. There are too many 
-   people and they begin to fight. Eventually they begin to eat the dead. They set 
-   fire to the tree and it mostly burns. Only a charred trunk and a few limbs remain.
-   Help us! You are a coward. Selfish. You are a shame on your father's name.
-
-*) The first blizzard of winter comes. The boy walks blind but he knows the way without 
+1500) The first blizzard of winter comes. The boy walks blind but he knows the way without 
    his eyes and delivers the water to the remains of the tree and collapses against 
    it, cold and alone, his extremeties numb. The water stays warm, does not freeze.
 
-*) In the morning the villagers awake and find that the tree has blossomed and is filled with
+1500) In the morning the villagers awake and find that the tree has blossomed and is filled with
    bright fruit, the flesh yellow and sweet and nourishing. Its leaves verdant against 
-   the mute and colorless landscape, a true paradox.
-   
-*) ...throughout the winter nourished them.
+   the mute and colorless landscape, a true paradox. throughout the winter nourished them.
 
 
 
