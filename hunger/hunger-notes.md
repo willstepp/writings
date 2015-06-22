@@ -246,6 +246,11 @@ WINTER (4)
    his eyes and delivers the water to the remains of the tree and collapses against 
    it, cold and alone, his extremeties numb. The water stays warm, does not freeze.
 
+   Mika gently poured the contents of the bucket into the ground at the base of the tree.
+   The dry earth soaked up the water and was gone. Then he set the bucket on the ground and 
+   stood by and he waited.
+
+
 1500) In the morning the villagers awake and find that the tree has blossomed and is filled with
    bright fruit, the flesh yellow and sweet and nourishing. Its leaves verdant against 
    the mute and colorless landscape, a true paradox. throughout the winter nourished them.
