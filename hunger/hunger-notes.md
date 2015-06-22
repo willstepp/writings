@@ -1029,3 +1029,9 @@ are the words and the ritual. All husk and no corn.
 About dead but not quite.
 
 []
+
+
+
+The third method is a deer drive, which consists of flushing deer toward a line of hunters. Hunters form a line and walk through fields or brush towards another line, hoping for a shot or driving the deer toward the other line of hunters. Hunters in the second line may be in tree stands or on the ground. Hunters in lines are a hundred yards to one hundred and fifty yards apart.
+
+Details from the mountains, clouds at the high altitude, carvings inside the cave, shadows of the clouds moving across the ground.

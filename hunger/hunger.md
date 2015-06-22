@@ -15,7 +15,7 @@ There was a jar of water on a table and Mika poured some into his hand and fed i
 
 Son, his father said, come to me.
 
-Mika placed his head against his father's chest and smelled a bitter salve. He looked towards the ceiling and saw the shadows of Yaholo's movements dance across the ceiling plaster. Then in the corner, underneath a bench, he saw a chicken perched. Oblivious to what was going on. Mika grew angry at it being there. What place did it have here? Its stupid black eyes watching all.
+Mika placed his head against his father's chest and smelled a bitter salve. He looked towards the ceiling and saw the shadows of Yaholo's movements dance across the ceiling plaster. Underneath a bench Mika saw a hen perched. Oblivious to what was going on it pecked at the ground. Mika grew angry at it being there, at those stupid black eyes watching all.
 
 Then his father Sakima whispered something into his ear and Mika forgot the chicken and everything else in the hut. There were only the words and the sick, foul breath in his ear. Sakima asked something of him, his will. And when there was nothing more to say the old man collapsed onto his back and went unconscious again. The boy rose and looked at his father, unsure if he had heard right. Then he looked at his mother in the corner. Her eyes were wet with tears. He went to console her.
 
@@ -23,9 +23,9 @@ Yaholo approached Sakima and suddenly his voice grew in volume. He pulled a bato
 
 He was awake again. His eyes wide. He raised from the bed like a statue and yelled in anger at Yaholo. Tears came to his pupil's eyes but he continued to speak the words of the ceremony. Then Sakima looked at his son. His eyes were wild. There was fear in them.
 
-Will you?
+Will you do it?
 
-All turned to Mika as his father asked him this question repeatedly. Mika did not answer. Then Sakima collapsed onto the bed again and shouted in pain and a few minutes later grew silent, eyes rolled back in his head, much as he had when Mika had first entered the hut. And when the boy saw the chicken again next to the bed he could take no more of it and ran outside.
+All eyes turned to Mika, but he did not answer. Then Sakima collapsed onto the bed again and shouted in pain and a few minutes later grew silent, eyes rolled back in his head, much as he had when Mika had first entered the hut. And when the boy saw the chicken again next to the bed he could take no more of it and ran outside.
 
 The air outside was cool. The others stood in silence and looked to Mika in order to know what was going on. He ignored them and ran to the center of the village, a clearing one acre square, the ceremonial ground where many times he and his father had sat together.
 
