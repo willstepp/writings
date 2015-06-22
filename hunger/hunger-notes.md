@@ -239,7 +239,8 @@ WINTER (4)
    has been taken. People are starving. Leoti has been killed. Mohe has eaten the dead. He 
    looks away in shame. Mika is rebuked by Tye, among the rubble. Why did you abandon us? 
    They stay indoors, in fear. We will not survive. There is no more food. The blight is 
-   everywhere. The ancient tree has been burned. Mika weeps. All his hope is gone.
+   everywhere. The ancient tree has been burned. There was no light in his eyes anymore, 
+   and he wept because he had no hope.
 
 1500) The first blizzard of winter comes. The boy walks blind but he knows the way without 
    his eyes and delivers the water to the remains of the tree and collapses against 
