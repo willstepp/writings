@@ -210,16 +210,21 @@ AUTUMN (5)
 
 1500) Once in the village no one is at home. He learns his mother has gone to live 
    with her sisters. One of the sisters tells him off, tells him he is selfish and 
-   irresponsible. He also learns Leoti is now with Mohe. He watches them walk under 
-   the moonlight. That night he visits the grave of his father and asks him what to 
-   do. That night he dreams of a great civilization, its technology surpassing anything 
-   he has seen. The future.
+   irresponsible. Sakima is gone. Your mother is here. He also learns Leoti is now 
+   with Mohe. He watches them walk under the moonlight. That night he visits the grave 
+   of his father and asks him what to do. That night he dreams of a great civilization, 
+   its technology surpassing anything he has seen. The future. Machines of polished stone, 
+   filled with millions.
 
 1500) He once more picks up the bucket and leaves. This time there is no one to wish 
    him goodbye. Only the lookouts call him the boy with the bucket. This time with 
    scorn. He becomes hungry and eats fish from the river. Here is the only place he 
    has peace anymore. It is like an escape. Simple. The entry to the plateau has 
-   fallen. He must find another way inside.
+   fallen. He must find another way inside. 'It was not visible at all from his previous 
+   approach. It could only be seen from another angle.' Sees the mountain lion, who 
+   is no mountain lion, 'All travelers are welcome inside. You are welcome here, Mika. 
+   We tell jokes to pass the time. We give hugs to show our love. Join us. All travelers 
+   must join us in time.'
 
 1500) When he returns things are different. There are no more children playing. Everybody 
    stays inside their homes. The cold. He finds the rows of dead hunters. He is walked to the Chief 

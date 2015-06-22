@@ -113,11 +113,11 @@ Tye looked towards the field and saw Mohe was trying to get the attention of a g
 
 Mohe is fond of Leoti. Are you going to let that happen?
 
-I don’t care.
+I don’t care what that frog eater does.
 
-His friend dropped his own spear in front of Mika.
+His friend laughed. Then he dropped his own spear in front of Mika.
 
-Use mine. Challenge him again. I want to see the look on his face when you prove it was just bad luck.
+Use my spear. Challenge him again. I want to see the look on his face when you prove it was just bad luck.
 
 Mika looked at his friend.
 
@@ -700,3 +700,9 @@ He went along the path through the village and approached the ceremonial grounds
 Mika ignored them all and walked up to the ancient tree. When he reached it he lifted off the makeshift cover from the bucket and gently poured its contents into the ground at the base of the tree. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited. And nothing happened.
 
 ~
+
+The pack of hunters came to rest at a high ridge overlooking a meadow. This was the spot where the scout, a boy nicknamed Cricket Foot, had discovered a herd of doe the morning before. Twenty strong, no lie, he said. There was a creek that ran through the middle of it. No doubt what brought them here, the scout observed. Rain-sodden Autumn leaves from the surrounding oak and maple trees patchworked the meadow floor in shades of red, orange, yellow, and brown.
+
+Cricket Foot pointed out the spot he saw them emerge from on his walk. The elder huntsmen surveyed the area and decided all the hunters would work together in what was called the *deer drive*.
+
+[16620: explain deer drive, they hand out rations, mika eats, slowly regaining his strength, they talk about the fires in the distance, another tribe, listens to them talk about the hunt but does not care, he wonders if something is wrong with him, then they prepare and as they sit in wait his thoughts turn to the mountains when the fog clears, he thinks about its warm, deep blue waters and does not pay attention when it is his time to join the line, he causes a break in it that allows the deer to escape, ‘they will not return’, he is scorned that night at camp, we will return empty-handed, this is no good for this late in the season]
