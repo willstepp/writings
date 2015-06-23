@@ -705,6 +705,8 @@ It was an overcast day in early Autumn. The pack of hunters came to rest at a hi
 
 Turkeyfoot pointed out the spot he saw them emerge from on his walk. The elder huntsmen surveyed the area and decided that instead of hunting in pairs all the hunters would work together in what was called the *deer drive*, which is a method of hunting that uses carefully arranged hunters to push a herd of deer into an area where they have no escape and therefore are easily be picked off with bow and arrow.
 
+[Put something here about the scout being on a mission to track the other tribe, whose campfires they had seen since coming deeper into the valley]
+
 It began to drizzle and the hunters hung their deerskins over their heads and ducked underneath some outcroppings. The drizzle turned to rain and pattered on the rocks and onto the forest canopy.
 
 Dried deer meat was rationed to the men and they sat together and ate. Because of the long walk up the ridge they were famished and most of them finished off their fist portion quickly and asked for another, which they were granted with a reluctant grunt.
@@ -753,17 +755,19 @@ The elders gathered everyone and instructed them where they would be during the 
 
 The drivers and standers were told to descend the ridge into the meadow and arrange at certain locations. They set off with one of the elders to guide them to the right spots. They had to double their pace as it was already late afternoon and they needed to be in their spots by twilight, when the herd was most likely to return.
 
-At the bottom Mika was instructed to stand at the Northern edge. This was an important spot since it was the widest gap between standers. The main driver line would come from the opposite side so it may very well be his direction the herd would flee towards.
+At the bottom Mika was instructed to stand at the Northern edge. This was an important spot since it was the widest gap between standers. The main driver line would be approaching from the opposite side so it may very well be his direction the herd would flee towards. The elder huntsman approached Mika when he was already hunkered behind a treestump.
 
-Are you prepared to stand your ground? An elder huntsman asked Mika when he was already crouched in position.
+Are you prepared to stand your ground? 
 
 I am sir.
 
 From his spot he had a nice view of the meadow and watched as the blue afternoon sky became a deep red and orange. The trees were bathed in an amber glow. He smelled the rich, wet leaves and soil he was crouched in. The bark on the trees was still dark and wet from the rain earlier. The only sound was the sound of the creek. Mika looked at the early evening sky and thought about a particular night he was alone on the high plains when the sky had looked the same. It had been a peaceful day. He had caught a fish in the river and cooked it on the fire. He lay there and watched as the stars appeared one by one.
 
-Hunter, stand your ground! A voice shouted from the ridge.
+Then he heard a voice shouting from the ridge.
 
-He looked up and saw the herd right in front of him, a dozen faces of deer in panic. He rose and made the wide stomp motions but he had missed the timing and the deer ran past him. One of them grazed his side and knocked him into the mud and his face went into it and into his eyes. In danger of being trampled he waited for a few minutes and then rose and wiped the muck from his eyes.
+Hunter, stand your ground! 
+
+Mika glanced up and saw the deer barreling toward him, a dozen of them in flight. He jumped to his feet and made the wide stomping motions they trained for, but he had missed the timing of it and the deer ran past him. One of them grazed his side and knocked him into the ground and his face went into the soft dirt. In danger of being trampled he waited for a few minutes and then rose and wiped mud from his eyes.
 
 Mika walked into the open meadow and saw the line of drivers standing there in disbelief. A few of the other standers came out. On the ridge the snipers stood at the edge. They looked at him but none said anything at all.
 
@@ -774,3 +778,55 @@ Let us head to camp. The herd will not come again. We missed our only chance.
 It is a shame, the elder on the ridge answered.
 
 With that all the hunters bowed their heads and walked to the campsite in silence. Mika followed behind, but not with them. The women at camp greeted them in expectation of a large bounty and he saw their faces drop when told what happened. They were out of provisions and would head the next day back to the village, mostly empty-handed.
+
+~
+
+It was a long trek back to the village. The morale of the hunters and of the elders was low. The three days it took them dragged on. Mika was made to feel bad. He did feel bad. The ill feelings the others had for him already for his neglect of duty exploded at times. But mostly they ignored him altogether. Even his friend Tye no longer wanted to be seen with him.
+
+By the time they reached home the village had already heard the news. They were dishearted as well but still greeted their family at the gate when they arrived. Mika walked past them and went to his house. His mother was not among the others so he went to find her.
+
+Inside the hut was empty. His mother’s bed and her jewelry was gone. Only his things remained. It was like a tomb. There was no feeling of life inside. He left the house and walked to the hut where his aunt and her family lived and there he saw Ama playing with his nephews. Before he could approach her however his aunt Ayita came from behind him and muttered in his direction. She stood in front of him and looked him up and down.
+
+You are selfish. You cannot take care of your mother anymore. She has to come live with us. How do you feel about that?
+
+Mika did know what to say. It was true he had left her for those weeks he was gone. He had not anticipated that others would resent the fact his mother still partook of the food that her son was not around to help hunt. Ama did not seem to blame him. Even now her eyes were filled with a kind of pity, though she did not come over.
+
+I try.
+
+Who gave you the right to leave her? She depends on you boy. She has skills and she contributes to the village but this is the bad time, the time of survival. And it is they duty of every able man and boy to join the hunt. This is as Kulsathee has decreed it.
+
+I have rejoined the hunt. We failed this trip. I don’t have rations. Or I would help.
+
+You would help. If you acted more and talked less, it would be better for you. She is my sister and she will not come back when her son goes on his own.
+
+It was for my father, the reason I left. To honor his will.
+
+Sakima is dead. He is buried in the wilds. Your mother is alive. She loves you and she is alive and you have not honored her. Tell me you have honored her.
+
+I have not.
+
+Ayita spit at his feet.
+
+Leave here, Mika. Do what you must. But don’t expect your mother to return until you can provide for her. How do you expect to provide for anyone? You need to honor the man that your father was and take help your family when they are in need. How about your girlfriend? Did you know she has taken up with Mohe? From your face I see that is news to you. But why? What do you expect?
+
+She laughed and walked off to tend to his nephews who were playing, laughing with Ama. He caught her eye once more and saw she was crying. Then she wiped them and turned away. Mika walked off.
+
+The sun had dropped behind the hills and the early evening suddenly turned brisk and cold. Mika dressed in some furs he had removed from storage before the last trip out and walked into the village center. As usual there was a gathering that night in the ceremonial grounds, around a fire, and even though the hunt was not a success they still gathered to be together.
+
+Everything was cast in blue, except for the sky which was a brilliant white-orange color. Mika smelled the meat roasting on the bonfire but did not feel welcome there. He walked around the circumference and looked for Leoti. It had been some time since he had last seen her. They talked a little after his return but he could not make her understand why he had gone. It was not something you could make someone understand.
+
+When Ayita had told him about her and Mohe, together, he felt like his stomach had fallen onto the ground. He looked for her among the people by the fire. He saw her family there. Her brother. Then by the tree he saw her walking. He saw her walking with Mohe, just out of the fire light, and he could just make out there shapes in the dusk of evening. To be sure he walked around the outer edge. He could not be seen but he could see them. They laughed together and there was a way they looked at one another that reminded him of the time they sat beneath the tree. His eyes welled with tears and he fought back an anger that rose inside him.
+
+Never before had he felt so alone. His thoughts turned to those days not too ago when he had been welcomed back after the hunt, when he had been a hero to them. Those times had meant nothing in the end. All that praise. All that love. It was a passing thing. It was nothing at all.
+
+Mika walked outside the gates and around the outer edge until he came to the wilds, which was the place they buried their dead and put things that no longer had any use within the walls of the village. The markers were carved totems with the beadwork of the buried hung upon them. This was how you found the grave you wanted. It did not take him long to find the grave of Sakima. Those blue and green beads he had seen many times throughout his life. And he had been here several times before. And yet not since his return from the mountain. He did not know why.
+
+Sakima the great shaman, Mika stammered at the grave market. His eyes were red and there was an emptiness inside that physically hurt. Look what you have done to your only son.
+
+If only I knew why you asked me to do the thing, then I could take it. But you didn’t. And look at how things are turning out. I have lost mother. I have lost Leoti. The hunters and the people in the village despise me. And the elder no longer nod to me when they pass. The children of the village mock me. They say, here comes the boy with the bucket. There goes the boy with the bucket. As if that is all I was to them.
+
+He fell next to the grave and grabbed a hold of some of the beadwork, rolling it through his hands and staring absent-mindedly into the dark edge of the forest near him.
+
+I do not understand this life. Please help me to understand. Help me to understand what I must do. Who I am and why you asked me to water the tree. It is all I think about anymore and I am afraid it is all I can do. My strength is gone. My spirit is gone. And when I close my eyes all I see is the mountain. And the tree. And I want to understand.
+
+When he returned to the hut that night it was empty and the emptiness of it kept him awake. He wrapped in fur blankets and tried not to think about Leoti and Mohe together. He tried not to think about his mother and his failure to provide for her. He tried not to think about his failure in the hunt and how it was his fault alone. And then he saw other things. He saw a tribe with more people than he had ever seen. Like ants they were. As numerous as the red ants, they moved through a myriad of stone pathways in mechanism of such complexity. The buildings were polished like rock and gleamed in the afternoon sun, their lines perfect and unlike anything in nature. There were machines of such complexity he could not understand what they were even for. They built these machines with their hands but also with their minds. They even had machines to build other machines. It was beautiful to him and horrible. He wondered who these people were. The village they lived in was without trees and grass and seasons. They harnessed the strength of the wind and the fire and made it do their bidding. With machines they launched their bodies among the stars. Into the stars which have no end.
