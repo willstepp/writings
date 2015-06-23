@@ -771,6 +771,6 @@ The elder on the ground walked out and shouted to one of the elders on the ridge
 
 Let us head to camp. The herd will not come again. We missed our only chance.
 
-Shame, the elder on the ridge answered.
+It is a shame, the elder on the ridge answered.
 
 With that all the hunters bowed their heads and walked to the campsite in silence. Mika followed behind, but not with them. The women at camp greeted them in expectation of a large bounty and he saw their faces drop when told what happened. They were out of provisions and would head the next day back to the village, mostly empty-handed.
