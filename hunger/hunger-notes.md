@@ -223,8 +223,8 @@ AUTUMN (5)
    fallen. He must find another way inside. 'It was not visible at all from his previous 
    approach. It could only be seen from another angle.' Sees the mountain lion, who 
    is no mountain lion, 'All travelers are welcome inside. You are welcome here, Mika. 
-   We tell jokes to pass the time. We give hugs to show our love. Join us. All travelers 
-   must join us in time.'
+   We tell jokes to make us laugh. We give hugs to make us feel loved. Join us. 
+   All travelers must join us in time.'
 
 1500) When he returns things are different. There are no more children playing. Everybody 
    stays inside their homes. The cold. He finds the rows of dead hunters. He is walked to the Chief 

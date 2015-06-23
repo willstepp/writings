@@ -701,8 +701,76 @@ Mika ignored them all and walked up to the ancient tree. When he reached it he l
 
 ~
 
-The pack of hunters came to rest at a high ridge overlooking a meadow. This was the spot where the scout, a boy nicknamed Cricket Foot, had discovered a herd of doe the morning before. Twenty strong, no lie, he said. There was a creek that ran through the middle of it. No doubt what brought them here, the scout observed. Rain-sodden Autumn leaves from the surrounding oak and maple trees patchworked the meadow floor in shades of red, orange, yellow, and brown.
+It was an overcast day in early Autumn. The pack of hunters came to rest at a high ridge overlooking a meadow. This was the spot where the scout, a boy nicknamed Turkeyfoot, had discovered a herd of doe the morning before. Twenty strong, no lie, he said. There was a creek that ran through the middle of the meadow. It ran with clear, cold water. No doubt that is what brought them here. Mist-sodden leaves from the surrounding oak and maple trees patchworked the meadow floor in shades of red, orange, yellow, and brown.
 
-Cricket Foot pointed out the spot he saw them emerge from on his walk. The elder huntsmen surveyed the area and decided all the hunters would work together in what was called the *deer drive*.
+Turkeyfoot pointed out the spot he saw them emerge from on his walk. The elder huntsmen surveyed the area and decided that instead of hunting in pairs all the hunters would work together in what was called the *deer drive*, which is a method of hunting that uses carefully arranged hunters to push a herd of deer into an area where they have no escape and therefore are easily be picked off with bow and arrow.
 
-[16620: explain deer drive, they hand out rations, mika eats, slowly regaining his strength, they talk about the fires in the distance, another tribe, listens to them talk about the hunt but does not care, he wonders if something is wrong with him, then they prepare and as they sit in wait his thoughts turn to the mountains when the fog clears, he thinks about its warm, deep blue waters and does not pay attention when it is his time to join the line, he causes a break in it that allows the deer to escape, ‘they will not return’, he is scorned that night at camp, we will return empty-handed, this is no good for this late in the season]
+It began to drizzle and the hunters hung their deerskins over their heads and ducked underneath some outcroppings. The drizzle turned to rain and pattered on the rocks and onto the forest canopy.
+
+Dried deer meat was rationed to the men and they sat together and ate. Because of the long walk up the ridge they were famished and most of them finished off their fist portion quickly and asked for another, which they were granted with a reluctant grunt.
+
+As they ate they argued about strategies for the drive. 
+
+In a deer drive there are drivers, standers, and snipers, and depending on the landscape there are dozens of possible ways to arrange the lines of drivers, where the standers and snipers should be. There was not much argument where the snipers should be. This ridge had the perfect view of the meadow, and the shear wall was a good barrier against which to push the herd.
+
+Mika ate his ration without speaking. He did not talk much anymore since his return, and nobody talked to him. He was still underweight and his strength had not returned in full. He was no longer able to draw his bow and had to weaken it. This he did when nobody else was around. The deer meat was good. Flavorful and nutrient-dense. He listened to the other hunters argue about where the driving line should be.
+
+That is not right. We should be as close as possible to the cliff edge, but adjacent to it. Like so.
+
+The hunter crossed his arms to show what he meant.
+
+No, you want the first line of drivers waiting by the Southern edge, assuming they approach from the East. Isn’t that where Turkeyfoot spotted them?
+
+Don’t remember, one of them said. He tore off a large portion of his jerky and shouted to Turkeyfoot, What side did they come from again?
+
+The West.
+
+Oh, I had it wrong. In that case, the first line needs to be there, down a hundred feet.
+
+That is way too far.
+
+Mika listened to them but did not participate. At one time he might have been interested in the sort of things they were arguing about but not anymore. He no longer cared about the hunt. Not since his return. He was here. He did his duty to the best of his ability, but he didn’t care about it. And he felt guilty because of that. He felt like he should care, because it was important for the survival of the tribe, and because the others seemed to care so much. It was like life or death to them. But somehow to him it no longer seemed to matter much. Mika watched them argue with such passion and conviction as if life itself depended on proving themselves correct about some minor thing.
+
+Well, it doesn’t matter what you think. It is not your decision at the end of the day. The elders will decide where to post every man, that includes drivers, standers, and snipers.
+
+That is true, a few others echoed.
+
+I better be posted as sniper. I’m tired of being looked over.
+
+You are a stander if I ever saw one. You stand well.
+
+The others laughed. The one who thought he should be a sniper rose and made an obscene gesture to the rest of them. Mika included. That made them laugh harder.
+
+You all are a bunch of frog eaters. I am sniper. I’m going to speak with the elders. They know my aim is some of the truest among you. They know.
+
+Mika watched him leave. He sat among them and laughed when they laughed. Became serious when they did. He did everything he was supposed to do as a hunter. 
+
+But ever since his return all his waking thoughts were on the mountain in the distance. The lake in the mountain and those warm, blue waters. How he had done the will of his father by watering the tree, and how nothing had come of it after all. Nothing had come of all his struggles.
+
+Soon the rain cleared and blue sky appeared. There was a cool wind that blew in and rustled the leaves on the trees and shook piles of them from the limbs and they fell in slow arcs towards the ground.
+
+The elders gathered everyone and instructed them where they would be during the drive. The snipers included Tye and all the best hunters. Those whose aim was true and could be relied upon. The one from before was not among them, but he was made a driver, which somewhat placated him. The drivers were the largest group. They had to be strong and quick. The last group was the standers. Nobody wanted to be a stander and yet the stander was a very important position in the drive. They were planted at certain locations throughout the drive area and were responsible to hold ground and act as a human wall. Mika was selected as a stander because of his weakened condition.
+
+The drivers and standers were told to descend the ridge into the meadow and arrange at certain locations. They set off with one of the elders to guide them to the right spots. They had to double their pace as it was already late afternoon and they needed to be in their spots by twilight, when the herd was most likely to return.
+
+At the bottom Mika was instructed to stand at the Northern edge. This was an important spot since it was the widest gap between standers. The main driver line would come from the opposite side so it may very well be his direction the herd would flee towards.
+
+Are you prepared to stand your ground? An elder huntsman asked Mika when he was already crouched in position.
+
+I am sir.
+
+From his spot he had a nice view of the meadow and watched as the blue afternoon sky became a deep red and orange. The trees were bathed in an amber glow. He smelled the rich, wet leaves and soil he was crouched in. The bark on the trees was still dark and wet from the rain earlier. The only sound was the sound of the creek. Mika looked at the early evening sky and thought about a particular night he was alone on the high plains when the sky had looked the same. It had been a peaceful day. He had caught a fish in the river and cooked it on the fire. He lay there and watched as the stars appeared one by one.
+
+Hunter, stand your ground! A voice shouted from the ridge.
+
+He looked up and saw the herd right in front of him, a dozen faces of deer in panic. He rose and made the wide stomp motions but he had missed the timing and the deer ran past him. One of them grazed his side and knocked him into the mud and his face went into it and into his eyes. In danger of being trampled he waited for a few minutes and then rose and wiped the muck from his eyes.
+
+Mika walked into the open meadow and saw the line of drivers standing there in disbelief. A few of the other standers came out. On the ridge the snipers stood at the edge. They looked at him but none said anything at all.
+
+The elder on the ground walked out and shouted to one of the elders on the ridge.
+
+Let us head to camp. The herd will not come again. We missed our only chance.
+
+Shame, the elder on the ridge answered.
+
+With that all the hunters bowed their heads and walked to the campsite in silence. Mika followed behind, but not with them. The women at camp greeted them in expectation of a large bounty and he saw their faces drop when told what happened. They were out of provisions and would head the next day back to the village, mostly empty-handed.
