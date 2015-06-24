@@ -1,4 +1,5 @@
-HUNGER by Daniel Stepp
+HUNGER
+Daniel Stepp
 
 
 Mika saw the new moon among the stars behind the forest trees and knew it must be morning and yet hours before sunrise. The boy followed behind the elderly caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams. How unreal this was. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
@@ -697,7 +698,7 @@ As he walked a crowd grew until it was fifty strong. They kept their distance bu
 
 He went along the path through the village and approached the ceremonial grounds where the ancient tree stood. The group did not enter the grounds with Mika. Instead they stood around the small fence that outlined it and gossiped to one another in hushed voices. 
 
-Mika ignored them all and walked up to the ancient tree. When he reached it he lifted off the makeshift cover from the bucket and gently poured its contents into the ground at the base of the tree. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited. And nothing happened.
+Mika ignored them all and walked up to the ancient tree. When he reached it he lifted off the makeshift cover from the bucket and gently poured its contents into the ground at the base of the tree. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited.
 
 ~
 
@@ -791,9 +792,9 @@ You are selfish. You cannot take care of your mother anymore. She has to come li
 
 Mika did know what to say. It was true he had left her for those weeks he was gone. He had not anticipated that others would resent the fact his mother still partook of the food that her son was not around to help hunt. Ama did not seem to blame him. Even now her eyes were filled with a kind of pity, though she did not come over.
 
-I try.
+I do try.
 
-Who gave you the right to leave her? She depends on you boy. She has skills and she contributes to the village but this is the bad time, the time of survival. And it is they duty of every able man and boy to join the hunt. This is as Kulsathee has decreed it.
+Who gave you the right? She depends on you. She has skills and she contributes to the village but this is the bad time, the time of survival. And it is they duty of every able man and boy to join the hunt. This is just as Kulsathee has decreed it. But you are unique. You are special. The rules do not apply to you.
 
 I have rejoined the hunt. We failed this trip. I don’t have rations. Or I would help.
 
@@ -817,6 +818,8 @@ Everything was cast in blue, except for the sky which was a brilliant white-oran
 
 When Ayita had told him about her and Mohe, together, he felt like his stomach had fallen onto the ground. He looked for her among the people by the fire. He saw her family there. Her brother. Then by the tree he saw her walking. He saw her walking with Mohe, just out of the fire light, and he could just make out there shapes in the dusk of evening. To be sure he walked around the outer edge. He could not be seen but he could see them. They laughed together and there was a way they looked at one another that reminded him of the time they sat beneath the tree. His eyes welled with tears and he fought back an anger that rose inside him.
 
+[Confronts them. They greet him with no malice, happy together. He walks away.]
+
 Never before had he felt so alone. His thoughts turned to those days not too ago when he had been welcomed back after the hunt, when he had been a hero to them. Those times had meant nothing in the end. All that praise. All that love. It was a passing thing. It was nothing at all.
 
 Mika walked outside the gates and around the outer edge until he came to the wilds, which was the place they buried their dead and put things that no longer had any use within the walls of the village. The markers were carved totems with the beadwork of the buried hung upon them. This was how you found the grave you wanted. It did not take him long to find the grave of Sakima. Those blue and green beads he had seen many times throughout his life. And he had been here several times before. And yet not since his return from the mountain. He did not know why.
@@ -830,3 +833,7 @@ He fell next to the grave and grabbed a hold of some of the beadwork, rolling it
 I do not understand this life. Please help me to understand. Help me to understand what I must do. Who I am and why you asked me to water the tree. It is all I think about anymore and I am afraid it is all I can do. My strength is gone. My spirit is gone. And when I close my eyes all I see is the mountain. And the tree. And I want to understand.
 
 When he returned to the hut that night it was empty and the emptiness of it kept him awake. He wrapped in fur blankets and tried not to think about Leoti and Mohe together. He tried not to think about his mother and his failure to provide for her. He tried not to think about his failure in the hunt and how it was his fault alone. And then he saw other things. He saw a tribe with more people than he had ever seen. Like ants they were. As numerous as the red ants, they moved through a myriad of stone pathways in mechanism of such complexity. The buildings were polished like rock and gleamed in the afternoon sun, their lines perfect and unlike anything in nature. There were machines of such complexity he could not understand what they were even for. They built these machines with their hands but also with their minds. They even had machines to build other machines. It was beautiful to him and horrible. He wondered who these people were. The village they lived in was without trees and grass and seasons. They harnessed the strength of the wind and the fire and made it do their bidding. With machines they launched their bodies among the stars. Into the stars which have no end.
+
+~
+
+He was on the path.
