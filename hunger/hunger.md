@@ -24,7 +24,7 @@ Yaholo approached Sakima and suddenly his voice grew in volume. He pulled a bato
 
 He was awake again. His eyes wide. He raised from the bed like a statue and yelled in anger at Yaholo. Tears came to his pupil's eyes but he continued to speak the words of the ceremony. Then Sakima looked at his son. His eyes were wild. There was fear in them.
 
-Will you do it?
+Do what I asked of you.
 
 All eyes turned to Mika, but he did not answer. Then Sakima collapsed onto the bed again and shouted in pain and a few minutes later grew silent, eyes rolled back in his head, much as he had when Mika had first entered the hut. And when the boy saw the chicken again next to the bed he could take no more of it and ran outside.
 
