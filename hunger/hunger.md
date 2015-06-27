@@ -964,4 +964,55 @@ The Chief of War nodded to the warrior who stood by the door and he collected th
 
 The warriors escorted Mika, who carried only his bucket, outside the gates of the village. The gates closed with a loud noise and then there was no sound. The lookouts stood there with stony faces. 
 
-Mika walked to the wilds and made a spot in the dry grass and among the village refuse he lay down. He was hungry and cold. He had not had anything to eat since yesterday and felt weak in his bones. The night was clear. It hurt him to look at the wooden gates so he closed his eyes and imagined he was at the lake in the mountain, swimming in those warm waters among a multitude of fish.
+Mika walked to the wilds and made a spot in the dry grass and among the village refuse he lay down. He was hungry and cold. He had not had anything to eat since yesterday and felt weak in his bones. The night was clear. It hurt him to look at the wooden walls of his home village so he closed his eyes and imagined he was at the lake in the mountain again, swimming in its waters among a multitude of fish.
+
+~
+
+In the morning there was frost on the ground. He shivered from the cold and when he got up the first thing he did was gather wood and kindle a fire to keep warm. A fog was moving over the wilds so that he could not see his village from this distance. That is good, he thought as he stoked the embers of the fire. It is better not to see it. Then out of the mist a dark shape emerged. It approached from the direction of the village gate and upon reaching him set down a bowl of deer meat at his feet and knelt beside him.
+
+Mika took up the bowl ate its contents greedily and then licked the grease from his fingertips. He ate like an animal.
+
+You look like you have not slept.
+
+That is true, mama.
+
+You look hungry and weak.
+
+That also is true.
+
+Do you not eat?
+
+Sometimes from the river I catch trout that I cook upon the fire. It keeps me going but not enough to keep me strong. As you can see.
+
+With fresh eyes Mika regarded himself and saw how thin he had become. His arms were like two sticks, his former strength atrophied away. His legs were the same. For the first time he could see himself as others did and wanted to cry.
+
+They told me you refused to join the warriors in the defense of the village. They told me you were banished forever. I thought to come here to find you.
+
+She looked around and now that the fog was clearing and the frost melting it was all grass and briars growing around old farm equipment and the ashes of a yearly bonfire they held to burn the things they no longer could use.
+
+They sat together and did not speak although they each thought about many things they wanted to say. Tears welled in his eyes as he remembered the days of his childhood and how they were so happy then. In the days when Sakima was still alive and he and his mother and father took blankets to the ceremonial grounds and lay under the sun all day long for no reason at all. Just to be together and to enjoy the gift of the day. Mika looked up and saw that the eyes of his mother also welled with tears and he thought perhaps she was remembering the same day as him. Mika reached out to embrace his mother.
+
+I miss you, mama. And father. I miss my friends and the people of my tribe. I miss how life was before. Those days will never come again, that is for sure. Will they come again?
+
+Mika looked at his mother. She looked back at her son and saw that he needed to be close to her now, to hear her voice. She held him and feathered his hair between her fingers like she did when he was small.
+
+Yes, my son. She told him. Those days will come again. Do not lose hope in that. Do not fall into despair.
+
+The voice of his mother was tender. It had been months since Mika had heard any kindness spoken to him and the sound of her words alone broke his heart. He wept.
+
+I am low, mama. I am worse than everybody else. I am selfish and my heart is impure. They are right to banish me from the tribe. In the wilds is where I belong.
+
+Do not say such things. You are brave to follow your heart. You are strong to do the will of your father. Though I do not understand it I am proud to be your mother.
+
+But you don’t understand. I am not strong. I am weak and miserable. Not brave. Please don’t use those words. They hurt me because I know they are not true. How hungry I am mama. Every night I dream of meat roasting on the fire. I dream of kanuchi and fried bean and corn bread. But even more than hungry I am lonely. I am so lonely. For companionship of any kind. I am worse than all of them. I am low. My heart feels as if it has no bottom. I don’t care about my father or what he asked of me. I don’t care about the tree or the lake on the mountain. All that struggle has not brought anything good to anyone. All it has brought to me is suffering. I continue to do it because it is all I can do anymore. All that I am good for, as weak as I am. I know that is true.
+
+Mika gestured to the village, where the smoke from fires from the homes rose into the air. 
+
+Look at all they have. Warm fires, food to eat. Joking and laughing in the company of friends. Women to cherish and to hold when night comes. Do you want to know a secret? I crave those things too. You see? I am not pure. I am sick with envy from what they have. I am not better than them. How pathetic I am. They are right to mock me and to scorn me like they do. The boy with the bucket. That is what they call me. I am worse than all of them.
+
+Ama held her son and comforted him for many hours but the thing that had been asked of him had not been asked of her and therefore Mika knew she could not stay with him in the wilds. Nor did he want her to. He wanted her to be happy most of all. She prayed for him to be strong and told him she would help as best she could and then rose to her feet and returned to the village. Mika watched his mother go in silence. He loved her very much.
+
+In the days that followed he contemplated many things in the wilds. His mother brought him food from time to time. Enough to keep him going. And then one morning he rose and set to packing up his things. Then he put on his furs and set off on the path to the mountain once again. The bucket he carried with him.
+
+~
+
