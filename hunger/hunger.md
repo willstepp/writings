@@ -864,4 +864,26 @@ The path was harsh and it did not take him long to regret his decision to come t
 
 Mika told himself he would walk half a day more East and then turn back. After that it wasn’t worth it. He needed food soon. He was weak and in a bad temper. He was angry at himself and asked himself questions like why would anyone decide to come this way. Such a person would not be bright. This direction only seemed to carry him further from the lake in the mountain.
 
-But then he came to an opening, a crack and explored it. It was almost mid-day and the sun was directly overhead and shined down onto it. At any other time of the day he might have overlooked it, hidden as it was in the deep shadows of two outcroppings. As he walked into it he saw it was not just a crack but a fissure that went and went. How far it was hard to say. The fissure was only wide enough for someone his size. His size now that is. The Mika from early in the year would not have fit. Even as thin as he was it was still tight. He looked up and saw the sun in a small sliver. It was almost like two mountain ranges had come together in this one spot and collided with one another.
+But then he came to an opening, a crack and explored it. It was almost mid-day and the sun was directly overhead and shined down onto it. At any other time of the day he might have overlooked it hidden as it was in the crease between two outcroppings. As he walked into it he saw it was not just a crack but a fissure that went on as far as he could see. How far it was hard to say. The fissure was only wide enough for someone of his thinness. The Mika from early in the year would not have fit. Even as thin as he was it was still tight. He looked up and saw the sun in a small sliver of blue. It was almost like two mountain ranges had come together in this one spot and collided with one another.
+
+As he shuffed through the narrow passage his feet kicked up dirt and rocks. It made it hard to breathe. The sharp rocks poked into his back as he slid across them.
+
+Yet soon it opened up again and he followed the path until he could see sunlight ahead. By then it was late afternoon and the sun was low. The sky was a deep blue and there was an orange tinge in the air. Mika emerged from the natural corridor into a wide open area.
+
+Here there was short grass and bushes unlike anything on the other side of the mountain. The incline to the top was less severe. He walked up the gentle slope where he thought the lake should be. At the crest he saw a flat area. He kept walking towards it. After a certain point he had to climb on a rock ledge and continue but still the path was easy. Along the way were small ingresses like caves but they weren’t very deep. Mika saw evidence of mountain lions and birds nests but nothing actually alive.
+
+As he rounded one corner he was startled by the sound of a rattlesnake. Yet he could not see it. He stopped and looked around and like when shapes in the darkness reveal themselves when your eyes become accustomed to it, so it was now. Except there was dusklight.
+
+A large snake unraveled from one of the ingresses. It was the same color as the rock, which is why Mika had not seen it. The snake’s head was as large as a human being, though he knew it was no snake really. Mika drew his knife.
+
+It hissed and coiled itself upright at his level. He traced its body until it disappeared into the blackness of the ingress. He could not be sure how long it actually was. Two fangs bared at him and he could see the venom glistening on the tips, waiting. But then it spoke with a sickly, weakened rasp.
+
+Please, put down your weapon, traveler. Come with us inside the mountain. We tell jokes to make us laugh. We give hugs to make us feel loved. So many travelers have come this way before. All travelers must join us in time.
+
+Stay away! Mika shouted. He threatened the snake, that was no snake really, and it retreated. He kept his knife at the ready as he walked past and tempted though he was, he did not stop until he was at a safe distance.
+
+At last there was a plateau. Mika climbed onto it and saw that there was no chasm here. And at the other end he could already see the bright blue waters rippled by a soft breeze. Once his feet reached the small beach area he could see he was on the opposite end of the lake. In the distance he saw his former campsite and the opening. He set the bucket down in the spot he had chosen to make his camp. The sun was low and long shadows bathed the rocks around him. The air at this altitude was chill and made goosebumps appear on his forearms. He cupped a handful of water from the lake and was surprised to find it lukewarm. He drank of the lake water and then built a fire and fell immediately to sleep without eating supper.
+
+~
+
+
