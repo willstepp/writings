@@ -996,7 +996,7 @@ They sat together and did not speak for some time, although each thought about m
 
 Tears welled in Mika’s eyes as he remembered the days of his childhood and how they were so happy then. In the days when Sakima was still alive and he and his mother and father took blankets to the ceremonial grounds and lay under the sun all day long for no reason at all. Just to be together and to enjoy the gift of the day. Mika looked up and saw that the eyes of his mother also welled with tears and he thought perhaps she was remembering the same day as him. He reached out to embrace his mother.
 
-Mama I miss you. And father. I miss my friends and the people of the tribe. I miss how life was before. Those days will never come again, that is for sure. Be honest with me and tell me, will they come again?
+Mama I miss you. And father. I miss my friends and the people of the tribe. I miss how life was before. Those days will never come again, that is for sure. Be honest and tell me, will they come again?
 
 Mika looked at his mother. She looked back at her son and saw that he needed to be close to her now, to hear her voice. She held him and feathered his hair between her fingers like she did when he was small.
 
@@ -1006,13 +1006,13 @@ The voice of his mother was tender. It had been months since Mika had heard any 
 
 I am low, mama. I am worse than everybody else. I am selfish and my heart is impure. They are right to banish me from the tribe. In the wilds is where I belong.
 
-Do not say such things. You are brave to follow your heart. You are strong to honor the will of your father. Though I do not understand it I am proud to be your mother. Please remember that.
+Do not say such things. You are brave to follow your heart. You are strong to honor the will of your father. Though I do not understand it I am proud to be your mother.
 
-But you don’t understand. I am not strong. I am weak and miserable. Not brave. Please don’t say those things. They hurt me because I know they are not true. How hungry I am, mama. Every night I dream of meat roasting on the fire. I dream of kanuchi and fried bean and corn bread. But even more than hungry I am lonely. I am so lonely. For companionship of any kind. I am worse than all of them. My heart feels as if it has no bottom. I don’t care about my father or what he asked of me. I don’t care about the tree or the lake on the mountain. All that struggle has not brought anything good to me or to others. All it has brought to me is lonliness and suffering. I continue only because it is all I can do anymore. All that I am good for, as weak as I have become. I know that is true. So do not call me brave. Do not call me strong. For I am weak and my heart has no bottom.
+But you don’t understand. I am not strong. I am weak and miserable. Not brave. Please don’t say those things. They hurt me because I know they are not true. How hungry I am, mama. Every night I dream of meat roasting on the fire. I dream of kanuchi and fried bean and corn bread. But even more than hungry I am lonely. I am so lonely. For companionship of any kind. I am worse than all of them. My heart feels as if it has no bottom. I don’t care about my father or what he asked of me. I don’t care about the tree or the lake on the mountain. All that struggle has not brought anything good to me or to others. All it has brought to me is loneliness and suffering. I continue only because it is all I can do anymore. All that I am good for, as weak as I have become. I know that is true. So do not call me brave. Do not call me strong. For I am weak and my heart has no bottom.
 
 Mika gestured to the village, where the smoke from fires from the homes rose into the air. 
 
-Look at what they have to be thankful for. Warm fires, food to eat. Joking and laughing in the company of friends. Women to cherish and to hold when the nights are cold. Do you want to know a secret? I crave those things too. You see? I am not pure. I am sick with envy from what they have. So I am not better than them. How pathetic I am. They are right to mock me and to scorn me like they do. The Boy with the Bucket. That is what they call me. I am worse than all of them.
+Look at what they have to be thankful for. Warm fires, food to eat. Joking and laughing in the company of friends. Women to cherish and to hold when the nights are cold. Do you want to know a secret? I crave those things too. You see? I am not pure. I am sick with envy from what they have. So I am not better than them. How pathetic I am. They are right to mock me and to scorn me like they do. The boy with the bucket. That is what they call me. I am worse than all of them.
 
 Ama held her son and comforted him for many hours but the thing that had been asked of him had not been asked of her and therefore Mika knew she could not stay with him in the wilds. Nor did he want her to. He wanted her to be happy most of all. She prayed for him to be strong and told him she would help as best she could and then rose to her feet and returned to the village. Mika watched his mother go in silence. He loved her very much.
 
