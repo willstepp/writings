@@ -630,7 +630,7 @@ He emerged from a small exit on the other side of the chasm. The light shone bri
 
 Mika jumped down from the rock and entered the meadow. Though there seemed to be no life here now he saw the remnants of an old civiliation. Crumbled rock walls and the foundations of buildings were interpersed throughout the petrified forest. Mika wondered who they were, what happened to them, and whether they had lived during the time of the ancient trees.
 
-When he reached the edge of the lake he put his toe in and was surprised to find that it was warm. He tore off his wet clothes and set them on the beach to dry out. Then he went for a swim. The water was clear and he could see the small rock bottom. His feet sank into the rocks and they were smooth so it did not hurt. There were small trout swimming around his legs and nosing at his feet. He swam out until he could no longer see the bottom. The water here was a deep, bright green. Though still warm. He swam back to the beach where his clothes were now dry and put them back on.
+When he reached the edge of the lake he put his toe in and was surprised to find that it was warm. He tore off his wet clothes and set them on the beach to dry out. Then he went for a swim. The water was clear and he could see the small rock bottom. His feet sank into the rocks and they were smooth so it did not hurt. There were small trout swimming around his legs and nosing at his feet. He swam out until he could no longer see the bottom. The water here was a deep, bright blue. Though still warm. He swam back to the beach where his clothes were now dry and put them back on.
 
 Next Mika pulled the netting from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
 
@@ -946,7 +946,7 @@ We decided to close the gates of the village to any outsider and to keep lookout
 
 Tye broke from his story. Mika could tell his thoughts were heavy and felt pity for his old friend who carried so much responsiblitiy on his shoulders. He gazed into the flames and continued.
 
-Help us, Mika. I know you have gone another way but I command you to help us in this fight. Help your tribe in its time of need. Abandon your selfish journey and help your people to survive the winter. Quickly the others have forgotten. They call you the Boy with the Bucket and riducule you. But I remember how  it was before. I do not forget so quickly as them. No one could touch your skills in the hunt. Not even me. This I know. Regain your strength and we can fight them together. Side by side. Soon we will return to the valley to take revenge for what they did and to claim our stake. Please join us.
+Help us, Mika. I know you have gone another way but I command you to help us in this fight. Help your tribe in its time of need. Abandon your selfish journey and help your people to survive the winter. Quickly the others have forgotten. They call you the Boy with the Bucket and riducule you. But I remember how  it was before. I do not forget so quickly as them. No one could touch your skills in the hunt. Not even me. This I know. Regain your strength and we can fight them together. Side by side. Soon we will return to the valley to take revenge for what they did and to claim our stake. Please help us.
 
 Mika stared into the flames as newly-appointed Chief of War watched him.
 
@@ -964,7 +964,7 @@ The Chief of War nodded to the warrior who stood by the door and he collected th
 
 The warriors escorted Mika, who carried only his bucket, outside the gates of the village. The gates closed with a loud noise and then there was no sound. The lookouts stood there with stony faces. 
 
-Mika walked to the wilds and made a spot in the dry grass and among the village refuse he lay down. He was hungry and cold. He had not had anything to eat since yesterday and felt weak in his bones. The night was clear. It hurt him to look at the wooden walls of his home village so he closed his eyes and imagined he was at the lake in the mountain again, swimming in its waters among a multitude of fish.
+Mika walked to the wilds and made a spot in the dry grass and among the village refuse he lay down. He was hungry and cold. He had not had anything to eat since yesterday and felt weak in his bones. The night was clear. It hurt him to look at the wooden walls of his home village so he closed his eyes and imagined he was at the lake in the mountain, swimming in its warm, blue waters among a multitude of fish.
 
 ~
 
