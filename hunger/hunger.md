@@ -1114,4 +1114,65 @@ Mika got to his feet and approached the remains of the ancient tree. Then he lif
 
 ~
 
-27500
+Over the course of two days the sky had turned a gray so absolute and dark it blocked out the sun and cast a shadow over the valley and the grass plains where Mika carried the bucket. Then the snows came. At first there was a serenity to the way the flakes came softly to rest on the ground and in the treetops and along the banks of the river. With the snow came silence because there was no wind in the front as of yet. When it got too dark to see he camped for the night.
+
+He built a fire and warmed his hands and his feet because the wet snow had started to soak through his shoes, which were not very water proof. Snowflakes turned into mist when they reached the rising heat the campfire. But it was not yet heavy enough to snuff the fire out completely. Mika was thankful for that.
+
+He tried to catch a fish for supper but his hands were already freezing and they cramped when he drew the net through the cold and swift waters. He never did see one fish.
+
+Sleep was not hard for him now because he was so weakened from the lack of food. He stoked the fire to make it burn hotter and lay down. He lost consciousness as soon as his head hit the earth and he did not wake up again until morning.
+
+When he opened his eyes and saw the vast plains and gentle sloping hills covered over in a sheet of white snow, his first thought was that it was a beautiful sight to see. Then he wondered how deep the snow was and reached his hand down into it. Two inches, maybe more.
+
+Enough to slow us down, but isn’t it something to see.
+
+The river had little pieces of ice floating in it and Mika wondered if it were frozen further up. Now that he was rested he was able to catch a fish and cooked it over the rekindled fire. As he ate he thought about the people of his village and how they were starving now. They had not believed him about the fish because the river in the valley did not provide fish anymore.
+
+It snowed off and on for days on end. When it was clear and the sun came out it was not bad. On those days the top layer of snow melted and when it froze in the night it was easier to walk on the next day. That cycle continued until he reached the high plains.
+
+Now there islands of ice that floated down the river current. Mika had a hard time fishing in those waters but caught enough to keep his energy up. He was thankful for the fish he caught.
+
+In the night another front moved in and brought with it winds and snow like Mika had never seen. He awoke frozen to find his fire snuffed under the snow. From now on he would have to make sure to camp under an outcropping or in a cave. He could do that in the mountains.
+
+By the next morning he could not see ten feet in front of him. He oriented himself by listening for the sound of the river. He packed his things and wrapped the furs around him tight and kept going. The snow was up to six inches and accumulating all the time. The wind blew the snow across his face and he felt his face and nose becoming numb. He wrapped a cloth around his face because it was breathable and made sure he did not freeze.
+
+Because he could not see he had to rely on the river to guide him. It was hard because the ground near its banks were thick with snow and made the walking harder. Sometimes he got to close and his foot slipped into the icy water.
+
+His camping routing was dictated by camp sites now. From his many journeys he could plan ahead which to use, and when. The  experience he had gathered from the many journies had probably kept him from freezing because in the blizzard he could not keep a fire going without some kind of shelter.
+
+When he reached the final ascent up the mountain path and the river went underground he had to find his way by memory alone. How many times had he come this way. He visualized the landmarks  along the way and found them in the blizzard by touch alone. For a great distance his eyes were closed because they were no use in this white wall. He found the spot where he had to turn to the West and kept close to the large rocks. He found the fissure through the mountain and inched his way through it. Here was the only respite he had from the snow. He rested here knowing that his goal was only a half day’s journey from here.
+
+The rock pathway that led up to the summit was covered with snow but also ice. That made the final stretch hard for Mika. His shoes did not have good traction and he slipped and fell. When he got high enough he was very careful because a slip from this height and he could fall to his death.
+
+Carefully he navigated the ice and found places where he could get a sure footing. The blizzard had abated for the time being and once again he was granted a vision of a vast white landscape stretching for a hundred miles below him. What a strange and beautiful world, he said.
+
+By the time he reached the top and saw the familiar blue waters he was exhausted physically but also mentally. He walked to the beach and set the bucket down. He collapsed on the snow. His hand hit the lake and he was surprised to find its waters were still warm. He got up and placed both arms into the water, feeling the warmth soothe his joints and muscles. Then he dipped his whole head in and felt the waters thaw his ears and nose.
+
+He collected some firewood and built a fire near the water, after clearing a place in the snow. Then he quickly removed his clothes and walked into the water. Its temperature was the same as the first time he swam in it, on that hot summer day. Mika wondered at that. Perhaps it was fed from a hot spring deep in the mountain. He thought it best not to think about it too much, but to enjoy the unexpected gift from the mountain.
+
+Then he saw there were fish and he jumped out and caught one for supper. When he was ready he climbed out and dried out as close to the fire as he could. The wet started to freeze against those parts of his body not facing the heat. Then he put his skins and furs back on and cooked the fish. That night he slept better than he had for nearly a month. He dreamed about the springtime and of green grass and strawberries in the meadow. In his dreams he heard a voice tell him that it was okay to stay here, if he liked. Stay on the mountain. His mother had wished it for him. His old friend had warned him not to return. With those thoughts he awoke in the morning and it was a blue sky that day.
+
+But when he awoke with those thoughts and saw the empty bucket nearby he dismissed them and filled the bucket and covered it.
+
+He sat and thought about the return journey. How hard it was going to be on him. The snows would increase. In the plains he was sure it was over a foot deep. It was very possible that when the river froze there would be no more trout to catch from the river. Also he was tired. More tired than he had ever been. And hungry. More hungry than he had ever been.
+
+The bucket was heavy and it was hard to not spill on the way down the icy rocks. It took him almost an entire day to navigate it with the full bucket. But once he reached the bottom he realized that if he could deal with such an obstacle he could deal with anything. Then he set off again.
+
+The journey home was harsh. Harsher than he had imagined. The weather turned again and a front descended onto the plains. Again he found himself navigating in blinding drives of snow. It slowed him down but not as much as he thought it would. He was still able to find his way by memory and other senses besides his eyes. He thought at times that every moment up till now had only been a preparation for this.
+
+One strange thing was that the water in the bucket never cooled. Not by one degree. He had planned for it to freeze in the bucket and was surprised the first night when lifted the cover and found it just as warm as it was in the lake. After discovering this he dipped his hands and feet into it from time to time to keep them warm. He was thankful for that.
+
+The hardest part was the depth of the snow. When he reached the plains he found it had accumulated up to two feet in places. Then every step was an ordeal. Then every step was a journey in itself. He found he had to focus in order to keep momentum. Otherwise he would expend too much energy and get tired out too quickly. 
+
+On the plains he he had no more protection from the wind and the snows. Many nights his campfire blew out and he did what he could to keep warm. Several nights it was only the water in the bucket that kept his fingers and toes from freezing. He was thankful.
+
+The river was frozen now and he had a hard time to keep it on his right side. At times he had to stop and find the ice with his feet. As flat as this landscape was it was hard to navigate with no visual signs. He used distant hills when the fog of snow was not too much. Other than that he used the frozen lake.
+
+But needless to say he caught very few fish. Sometimes he had the strength to break through the ice but it was hard to drag the net. He tried to make a line and hook but it was not much use. Sometimes he broke down and wept until the tears froze on his face and he had to stop for that reason.
+
+He grew very hungry. Combined with the weariness of the plodding through endless miles of snow overcame him sometimes. There were days when he could not get the energy to make any progress at all. His bones and joints ached. His muscles cramped.
+
+In those times it was the vision he had of the village in springtime and of his father that night in the hut and of the words he spoke to him alone that afterwards Mika had so taken to heart. Those memories gave him the strength to walk again for one more day. And when he was on the path he found it best to focus on the path itself and not to think about anything else. But to place one foot in front of the other. Only that action itself. Anything else would be a distraction to him. Anything else could take him off the path. He must not allow that. Sometimes he could not help it and his mind would drift. Sometimes his mind would drift and he imagined he could see himself as if from above. From a great height he imagined he could see himself walking. The boy with the bucket, alone and walking. Ever walking.
+
+~
+
