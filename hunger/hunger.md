@@ -968,55 +968,57 @@ Mika walked to the wilds and made a spot in the dry grass and among the village 
 
 ~
 
-In the morning there was frost on the ground. He shivered from the cold and when he got up the first thing he did was gather wood and kindle a fire to keep warm. A fog was moving over the wilds so that he could not see his village from this distance. 
+In the morning there was frost on the grass and on the edge of the briar thorns. The ground in the wilds was covered in weeds that poked Mika in the back as he slept. In that uncomfortable sleep Mika shivered from the late Autumn freeze. When the sunlight shone through the trees into his eyes he rose and the first thing he did was gather wood from the surrounding forest and kindled a fire to keep warm. He looked for something to eat among the dead leaves but found nothing at all to give him strength. That morning a thick sheet of fog had descended into the valley so that he could not see his village from this distance.
 
-That is good, he thought as he stoked the embers of the fire. It is better not to see it. 
+But that is good, he thought as he stoked the embers of the fire. It is better not to see it. Forget about them for they no longer want anything to do with you. But he could not forget.
 
-Soon out of the mist a dark shape emerged. It approached from the direction of the village gate and upon reaching him set down a bowl of deer meat at his feet and knelt beside him. Mika took up the bowl ate its contents greedily and then licked the grease from his fingertips. He ate like an animal but was so hungry he was not ashamed.
+Out of the fog a dark figure emerged and approached him next to the fire. The figure came from the direction of the village gate and upon reaching him placed a pot of deer meat at his feet and then knelt beside him. Mika took up the bowl ate its contents greedily. Then he licked the grease from his fingertips. He ate like an animal, but was so hungry he was not ashamed.
 
-You look like you have not slept.
+You look like you have not slept well for days.
 
 That is true, mama.
 
-You look hungry and weak.
+Mika flashed his eyes in her direction and she was taken aback how the thinness had exaggerated his facial features. His eyes bulged from deep sockets and his cheekbones protruded and made his face long like a horse. He was not the same handsome boy she remembered. This made her sad.
 
-That also is true.
+You look hungry and weak, she said. She observed him with pity in her eyes.
 
-Do you not eat on your journey?
+That is also true, Mika said, but now I am less hungry. So thank you.
 
-Sometimes from the river I catch trout that I cook upon the fire. It keeps me going but not enough to keep me strong. As you can see.
+Do you not get enough to eat on your way? Has the blight reached to the mountain where you go?
 
-With fresh eyes Mika regarded himself and saw how thin and bony he had become. His arms were like two sticks, his former lean and muscular physique atrophied away. His legs were the same as his arms. His feet were calloused and bruised from miles and his hands were calloused from carrying the bucket. For the first time he could see himself as others did and it made him want to cry.
+Sometimes from the river I catch trout that I cook upon the fire. Those fish keep me going but its not enough to keep me strong. As you can see.
 
-They told me you refused to join the warriors in the defense of the village. They told me you were banished forever. I thought to come here to find you.
+Mika regarded himself with his mother’s eyes and saw how thin and bony he had become. His arms were like two sticks, his former lean and muscular physique atrophied away. His legs had the nearly same girth as his arms. His feet were knotted and bruised from a thousand walking miles and his hands were calloused from carrying the bucket so far. For the first time he could see himself as others did and it made him want to cry.
 
-She looked around and now that the fog was clearing and the frost melting it was all grass and briars growing around old farm equipment and the ashes of a yearly bonfire they held to burn the things they no longer could use. This was no place to live. There was no love in it.
+They told me you refused to join Tye and the warriors in the defense of the village. They told me because of this betrayal you were banished from our tribe forever. I thought to come here to find you. I thought you would come to the wilds.
+
+She looked around and now that the fog was clearing and the frost melting it was all grass and briars growing around old farm equipment and the ashes of a yearly bonfire they held to burn the things they no longer could use. This was no place to live. It was harsh and there was no love in it. Only forgotten things, dead things.
 
 They sat together and did not speak for some time, although each thought about many things they wanted to say to the other. 
 
-Tears welled in Mika’s eyes as he remembered the days of his childhood and how they were so happy then. In the days when Sakima was still alive and he and his mother and father took blankets to the ceremonial grounds and lay under the sun all day long for no reason at all. Just to be together and to enjoy the gift of the day. Mika looked up and saw that the eyes of his mother also welled with tears and he thought perhaps she was remembering the same day as him. He reached out to embrace his mother.
+Soon tears welled in Mika’s eyes as he remembered back to the days of his childhood and how they were had been happy then. In the days when his father Sakima was still alive and he and his mother and father once took blankets to the ceremonial grounds and lay on the grass under the sun all day long for no reason at all. Just to be together and to enjoy the gift of sunshine. Mika looked up and saw that the eyes of his mother also welled with tears. Mika thought perhaps she was remembering the same day as him. He reached out to embrace her.
 
-Mama I miss you. And father. I miss my friends and the people of the tribe. I miss how life was before. Those days will never come again, that is for sure. Be honest and tell me, will they come again?
+I miss you, mama, Mika began. His voice was shaking yet focused as if he wanted to express something vital, And father. I miss my friends and the people of the tribe. I miss how life was before. Those days will never come again, that is for sure. Be honest and tell me, will they come again?
 
-Mika looked at his mother. She looked back at her son and saw that he needed to be close to her now, to hear her voice. She held him and feathered his hair between her fingers like she did when he was small.
+Mika looked at his mother. She looked back at her son and saw that he what he needed was to be close to her now, to hear her voice. She held him and feathered his hair between her fingers like she did when he was small enough to sit in her lap.
 
 Yes, my son. She told him. Those days will come again. Do not lose hope in that. Do not fall into despair.
 
-The voice of his mother was tender. It had been months since Mika had heard any kindness spoken to him and the sound of her words alone broke his heart. He wept.
+The voice of his mother was tender. It had been months since Mika had heard any kindness spoken to him and the gentle sound of her words alone broke his heart. He wept like a child and bowed his head agaist her breast.
 
-I am low, mama. I am worse than everybody else. I am selfish and my heart is impure. They are right to banish me from the tribe. In the wilds is where I belong.
+Mama, I am low. I am worse than all of them. I am selfish to have abandoned my tribe for a promise made to a dead man. My heart is impure. They are right to banish me from the tribe. In the wilds is where I belong. This is my home now.
 
-Do not say such things. You are brave to follow your heart. You are strong to honor the will of your father. Though I do not understand it I am proud to be your mother.
+Do not say such things. You are brave to follow your heart against the ways of the world. You are strong to honor the will of your father and to do the thing he has asked of you. Though I do not understand it I will do what I can to help you along the way.
 
-But you don’t understand. I am not strong. I am weak and miserable. Not brave. Please don’t say those things. They hurt me because I know they are not true. How hungry I am, mama. Every night I dream of meat roasting on the fire. I dream of kanuchi and fried bean and corn bread. But even more than hungry I am lonely. I am so lonely. For companionship of any kind. I am worse than all of them. My heart feels as if it has no bottom. I don’t care about my father or what he asked of me. I don’t care about the tree or the lake on the mountain. All that struggle has not brought anything good to me or to others. All it has brought to me is loneliness and suffering. I continue only because it is all I can do anymore. All that I am good for, as weak as I have become. I know that is true. So do not call me brave. Do not call me strong. For I am weak and my heart has no bottom.
+But you don’t understand. I am not strong. I am weak and miserable. Not brave. Please don’t say those things. They hurt me because I know they are not true. How hungry I am, mama. Every night I dream of meat roasting on the fire. I dream of kanuchi and fried bean and corn bread, and stewed peaches. But even more than hungry I am lonely for companionship. I am so lonely. For companionship of any kind. I am worse than all of them. My heart feels as if it has no bottom. I don’t care about honoring my father or doing what he asked of me. I don’t care about the ancient tree or the lake on the mountain. All that struggle has not brought anything good to others or to myself. All it has brought me is loneliness and suffering. I continue to do it only because it is all I know anymore. All that I am good for, as weak as I have become. I am no hunter. I am no warrior. This is true. So do not call me brave. Do not call me strong. For I am weak and my heart feels as if it has no bottom.
 
-Mika gestured to the village, where the smoke from fires from the homes rose into the air. 
+Mika gestured to the village walls, where above them the smoke from the home fires swirled against a blue and orange tinted sky.
 
-Look at what they have to be thankful for. Warm fires, food to eat. Joking and laughing in the company of friends. Women to cherish and to hold when the nights are cold. Do you want to know a secret? I crave those things too. You see? I am not pure. I am sick with envy from what they have. So I am not better than them. How pathetic I am. They are right to mock me and to scorn me like they do. The boy with the bucket. That is what they call me. I am worse than all of them.
+Look at what they have to be thankful for. Warm fires, food to eat. Joking and laughter in the company of friends. Women to cherish and to hold when the nights are cold. Do you want to know a secret? I crave those things too. You see? I am not pure. I am sick with envy of what they have. So I am not better than them. How pathetic I am. They are right to mock me and to scorn me like they do. The boy with the bucket. That is what they call me. I am worse than all of them.
 
-Ama held her son and comforted him for many hours but the thing that had been asked of him had not been asked of her and therefore Mika knew she could not stay with him in the wilds. Nor did he want her to. He wanted her to be happy most of all. She prayed for him to be strong and told him she would help as best she could and then rose to her feet and returned to the village. Mika watched his mother go in silence. He loved her very much.
+And that was all he said. He became quiet after that. Ama held her son and comforted him for many hours, but the thing that had been asked of him had not been asked of her and therefore Mika knew she could not stay with him in the wilds. Nor did he want her to. He wanted her to be happy most of all. She prayed for him to be strong and told him she would help as best she could and then rose to her feet and returned to the village. Mika watched his mother go in complete silence. He loved her very much.
 
-In the days that followed he contemplated many things in the wilds. His mother brought him food from time to time. Enough to keep him going. He gathered his strength and prepared his mind. Then one morning when the frost was still on the ground he set to packing up his things. Then he put on his furs and the satchel for his knife and gear. Then set off on the path to the mountain once again. The bucket he carried with him.
+In the days that followed he contemplated many things in the wilds. His mother brought him food from time to time. Enough to keep him going. He gathered his strength and hardened his resolve. Then one morning when the frost was still on the ground he set to packing up his things. Then he put on his furs and the satchel for his knife and gear. Then set off on the path to the mountain once again. The bucket he carried with him.
 
 ~
 
