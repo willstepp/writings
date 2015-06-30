@@ -1174,7 +1174,7 @@ But needless to say he caught very few fish. Sometimes he had the strength to br
 
 He grew very hungry. Combined with the weariness of the plodding through endless miles of snow overcame him sometimes. There were days when he could not get the energy to make any progress at all. His bones and joints ached. His muscles cramped.
 
-In those times it was the vision he had of the village in springtime and of his father that night in the hut and of the words he spoke to him alone that afterwards Mika had so taken to heart. Those memories gave him the strength to walk again for one more day. And when he was on the path he found it best to focus on the path itself and not to think about anything else. But to place one foot in front of the other. Only that action itself. Anything else would be a distraction to him. Anything else could take him off the path. He must not allow that. Sometimes he could not help it and his mind would drift. Sometimes his mind would drift and he imagined he could see himself as if from above. From a great height he imagined he could see himself walking, a boy with a bucket, alone and walking. Ever walking.
+In those times it was the vision he had of the village in springtime and of his father that night in the hut and of the words he spoke to him alone that afterwards Mika had so taken to heart. Those memories gave him the strength to walk again for one more day. And when he was on the path he found it best to focus on the path itself and not to think about anything else. But to place one foot in front of the other. Only that action itself. Anything else would be a distraction to him. Anything else could take him off the path. He must not allow that. Sometimes he could not help it and his mind would drift. Sometimes his mind would drift and he imagined he could see himself as if from above. From a great height he could see himself walking, a boy with a bucket across a vast plain walking. Ever walking.
 
 ~
 
@@ -1198,7 +1198,7 @@ The crowds murmured and pointed. Ama went through them. She led her family throu
 
 And there at the base of the tree she saw her son. She saw Mika collapsed against the tree. The bucket was beside him. She ran to him and embraced the body of her son, because there was no more life in it. She wept and held him in her arms.
 
-My son. My beautiful boy.
+My son. My beautiful son.
 
 It was only later that she realized that the tears of the others were not tears of sorrow like hers. They were tears of joy and their voices had a sound of hope in them. Her eyes lifted and  she saw the trunk. She saw it was no longer charred. The tree had life in it. It lived again. The bark healthy and rich in color. She gazed up and saw those branches, which had always been barren in the past, were now full of leaves like they are in springtime, full and bright green they were. Delicate and fluttering in the winter air. Yet it was the fruit that at last turned Ama’s tears of sorrow into joy.
 
