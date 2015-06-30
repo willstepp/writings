@@ -1208,8 +1208,8 @@ How strange it is, said a young girl to her mother, How strange in winter for th
 
 Ama saw the looks on their faces. They were in disbelief. They ate the fruit and the looks on their faces was first of shock and then a smile. Some broke into laughter and passed the fruit around to their families. They collected the fruit in baskets and shared with one another. As they ate their eyes grew bright and color returned to their cheeks.
 
-She watched all of this but did not once rise to join them. She held her son and kissed the hair on his head. How thin and frail he was. She remembered the night Sakima died, when she found him sleeping against the tree and wrapped the blanket around him. Her son would be honored like his father, for he was the son of his father after all. He would be remembered forever in the stories and songs of their people. Mika, the boy with the bucket, the son of his father.
+She watched all of this but did not once rise to join them. She held her son and kissed the hair on his head. How thin and frail he was. She remembered the night Sakima died, when she found him sleeping against the tree and wrapped the blanket around him. Her son would be honored like his father had been for he was the son of his father after all. He would be remembered forever in the stories and songs of their people. Mika, the boy with the bucket, the son of his father.
 
-Kulsathee, the old chief of peace, rose to his feet and stood underneath the canopy of the ancient tree and he faced the people gathered. He faced them with tears in his eyes and expressed in words the feeling of joy that was on all their faces and in their hearts that morning in winter.
+Kulsathee, the old chief of peace, rose to his feet and stood underneath the canopy of the ancient tree and he faced the people gathered there. He faced them with kind, tearful eyes and tried to express in simple words the hopeful feeling he saw on all their faces and perceived in all their hearts.
 
 We will not starve.
