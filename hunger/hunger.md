@@ -2,7 +2,7 @@ HUNGER
 Daniel Stepp
 
 
-How strange in the spring for a man to die, Mika wondered, still half awake and half asleep. The boy followed behind an elderly caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams and noticed many things out of place. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
+How strange it is, Mika wondered. The boy followed behind an elderly caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams and noticed many things out of place. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
 
 Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
 
@@ -1196,7 +1196,7 @@ The crowds murmured and pointed. Ama went through them. She led her family throu
 
 And there at the base of the tree she saw her son. She saw Mika collapsed against the tree. The bucket was beside him. She ran to him and embraced the body of her son, because there was no more life in it. She wept and held him in her arms.
 
-My son, my Mika.
+My son. My beautiful boy.
 
 It was only later that she realized that the tears of the others were not tears of sorrow like hers. They were tears of joy and their voices had a sound of hope in them. Her eyes lifted and  she saw the trunk. She saw it was no longer charred. The tree had life in it. It lived again. The bark healthy and rich in color. She gazed up and saw those branches, which had always been barren in the past, were now full of leaves like they are in springtime, full and bright green they were. Delicate and fluttering in the winter air. Yet it was the fruit that at last turned Ama’s tears of sorrow into joy.
 
@@ -1204,7 +1204,7 @@ The large, round yellow fruit, bursting from its flowers on the ends of the limb
 
 The people of the village had brought baskets. They collected the fallen fruit and marveled when they saw the empty stem on the branch immediately blossom in its place.
 
-How strange it is, said a young girl to her mother, How strange in winter for the fruit to grow.
+How strange it is, said a young girl to her mother, How strange in the dead of winter for fruit to grow.
 
 Ama saw the looks on their faces. They were in disbelief. They ate the fruit and the looks on their faces was first of shock and then a smile. Some broke into laughter and passed the fruit around to their families. They collected the fruit in baskets and shared with one another. As they ate their eyes grew bright and color returned to their cheeks.
 
