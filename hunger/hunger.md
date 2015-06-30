@@ -2,17 +2,19 @@ HUNGER
 Daniel Stepp
 
 
-How strange it is, Mika wondered. The boy followed behind an elderly caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams and noticed many things out of place. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
+How strange it is, he thought. The boy followed behind an elderly caregiver who had roused him from slumber only moments before. Mika had yet to shake off his dreams and noticed many things that would not be out of place inside of one. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. 
+
+Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
 
 Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
 
 Yaholo was there, a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the ritual. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And on a bed woven from reed was his father Sakima.
 
-No one had told him what to do once inside, but he approached his father and placed his hand upon his. The skin was dry and cold. This surprised him since it was so hot in the house, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not conscious. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
+No one had told him what to do once inside so he approached his father and placed his hand upon his. His skin was dry and cold. This was a surprise because it was so hot inside the ouse, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not awake. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
 
-Mika turned to Yaholo and made eye contact with him. But Yaholo looked through him. He also gazed upon the faraway place.
+Mika turned to Yaholo and made eye contact with him. But Yaholo looked through him. He also gazed upon a faraway place.
 
-There was a jar of water on a table and Mika poured some into his hand and fed it to his father. When the moisture hit Sakima's lips he came around and recognized his son. There were tears in his eyes. He took the smaller hands of his son into his and squeezed them.
+There was a jar of water on a table and Mika poured some into his hand and fed it to his father. When the moisture hit Sakima's lips he came around and slowly he recognized his son standing there. There were tears in his eyes. He took the smaller hand of his son into his own and squeezed.
 
 Son, his father said, come and see.
 
@@ -142,25 +144,25 @@ Soon another round of tchungkee started and Mohe took the lead in points since M
 
 Ama was outside their summer house teaching a group of young girls how to flesh deer hides for tanning. She was old but still strong. When she scraped the broad flint blade across a hide draped along a flat wooden incline she moved like a woman twenty years younger than she was. The girls each took turns and were not nearly as quick and efficient as Ama, but they were learning and Mika’s mother was patient with them.
 
-When she saw her son approach she wiped her hands on a cloth and embraced him. That look of pity she always gave him was present and though Mika still resented it he wanted her counsel.
+When she saw her son approach she wiped her hands on a cloth and embraced him. That look of pity she always gave him was present and though Mika still resented it he wanted her counsel. From the way he walked she knew something was the matter.
 
-Mama, I am sad.
+Let us talk, she said. 
 
-Let us talk, his mother said. 
+Ama told the girls to keep up the work and to finish the hide they were working on and then they could take a break. This renewed their enthusiasm.
 
-She told the girls to keep up the work and to finish the hide they were working on and then they could take a break. This renewed their enthusiasm.
-
-Mika and Ama walked together along the road that led out of the village. The gates were open this time of year. From here they could hear the children playing in the arena, their laughter.
+They walked together along the road that led out of the village. The gates were open this time of year. From here they could hear the children playing in the arena. They could hear their laughter.
 
 Why are you not in the arena with your friends?
 
-I was there. I lost to Mohe.
+I was there, Mika said, I lost to Mohe.
 
 Is that why you are sad?
 
 No, mama.
 
-Ama looked at him with understanding. Of course it isn’t. Now tell me what is wrong, my son.
+Ama looked at him with understanding. 
+
+Of course it isn’t. Now tell me what is wrong, my son.
 
 Mika was upset to the point of tears. He wondered if he should tell his mother everything, her eyes so full of compassion. She wanted him to be happy. But he could not tell her. Not even her.
 
@@ -1204,7 +1206,7 @@ The large, round yellow fruit, bursting from its flowers on the ends of the limb
 
 The people of the village had brought baskets. They collected the fallen fruit and marveled when they saw the empty stem on the branch immediately blossom in its place.
 
-How strange it is, said a young girl to her mother, How strange in the dead of winter for fruit to grow.
+How strange it is, said a young girl to her mother, How strange in the dead of winter for the fruit to grow.
 
 Ama saw the looks on their faces. They were in disbelief. They ate the fruit and the looks on their faces was first of shock and then a smile. Some broke into laughter and passed the fruit around to their families. They collected the fruit in baskets and shared with one another. As they ate their eyes grew bright and color returned to their cheeks.
 
