@@ -2,7 +2,7 @@ HUNGER
 Daniel Stepp
 
 
-Mika saw the new moon among the stars behind the forest trees and knew it must be morning and yet hours before sunrise. The boy followed behind the elderly caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams. How unreal this was. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
+How strange in the spring for a man to die, Mika wondered, still half awake and half asleep. The boy followed behind an elderly caregiver who had roused him from slumber only moments before. He had yet to shake off his dreams and noticed many things out of place. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
 
 Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
 
@@ -14,7 +14,7 @@ Mika turned to Yaholo and made eye contact with him. But Yaholo looked through h
 
 There was a jar of water on a table and Mika poured some into his hand and fed it to his father. When the moisture hit Sakima's lips he came around and recognized his son. There were tears in his eyes. He took the smaller hands of his son into his and squeezed them.
 
-Son, his father said, come to me.
+Son, his father said, come and see.
 
 Mika placed his head against his father's chest and smelled a bitter salve. He looked towards the ceiling and saw the shadows of Yaholo's movements dance across the ceiling plaster. Underneath a bench Mika saw a hen perched. Oblivious to what was going on it pecked at the ground. Mika grew angry at it being there, at those stupid black eyes watching all.
 
@@ -36,7 +36,7 @@ Now he sat at the base of the tree alone. It was the darkest time of night. The 
 
 ~
 
-Then there was a festive gathering. It was known among the clans of the southern valleys as the *Celebration of the Dead*. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to pay their respects to the great Sakima, but also to enjoy the good food and the company of their neighbors.
+Then there was a festive gathering. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to pay their respects to the great Sakima, but also to enjoy the good food and the company of their neighbors.
 
 A high platform constructed from reed was raised within the ceremonial grounds and the beloved shaman was placed upon it. His body was anointed with strongly-scented oils and adorned with the beadwork he wore throughout his lifetime. The platform where he rested stood six feet off the ground and some of the children dared one another to climb up the sides to have a peek but when the parents saw what they were doing they scolded them harshly and reminded them to show respect. The young women arranged flower sashes all about the base of the platform. Here the shaman would lie until the elders decided it was time to bury him in the ground. It was the same for every great man.
 
@@ -430,13 +430,13 @@ They faced one another. Mika had never seen her so beautiful. Her dark, smooth h
 
 Hello, Leoti, Mika said. We returned today, from the valley.
 
-Yes, my eyes and ears still work, she answered. 
+This I know.
 
 Then she walked away as if she were uninterested in speaking to him. But was that a smile on the corner of her mouth? In the dark it was hard to tell. Mika followed her.
 
 Leoti walked along the circumference of the ceremonial grounds. She walked slow and Mika kept behind. At some point she heard him and turned around.
 
-Are you tracking me?
+Are you stalking me, hunter?
 
 Mika turned red. Then he walked up and stood by her side. Leoti did not refuse his boldness. They walked together around the empty grounds. They said nothing to one another. There were only the sounds of the celebration on the other side and the light of the large bonfire that reached them by way of a dim glow.
 
@@ -1006,7 +1006,7 @@ Yes, my son. She told him. Those days will come again. Do not lose hope in that.
 
 The voice of his mother was tender. It had been months since Mika had heard any kindness spoken to him and the gentle sound of her words alone broke his heart. He wept like a child and bowed his head agaist her breast.
 
-Mama, I am low. I am worse than all of them. I am selfish to have abandoned my tribe for a promise made to a dead man. My heart is impure. They are right to banish me from the tribe. In the wilds is where I belong. This is my home now.
+I am low in spirit, mama. Worse than all of them. Selfish to have abandoned my tribe for a promise made to a dead man. My heart is impure. They are right to banish me from the tribe. In the wilds is where I belong. This is my home now.
 
 Do not say such things. You are brave to follow your heart against the ways of the world. You are strong to honor the will of your father and to do the thing he has asked of you. Though I do not understand it I will do what I can to help you along the way.
 
@@ -1062,9 +1062,9 @@ They cannot stay out like this, the bodies exposed. There are some on the other 
 
 She began to weep into her hands.
 
-Life has become horrible, my son. You should not have come back. I prayed after for you not to return. You should have stayed on the mountain. Out there.
+Life has become horrible. You should not have come back. I prayed after for you not to return. You should have stayed out there. You should have stayed on the mountain.
 
-Mika looked out over the people who worked. There were still a great number of them. They did their jobs without passion. Collecting the dead, wrapping them in skins, and carrying them to the wilds. It was only then Mika noticed the large black cloud of smoke that came from that direction. 
+Mika looked out over the people who worked together. There were still a great number of them. They did their jobs without passion. Collecting the dead, wrapping them in skins, and carrying them to the wilds. It was only then Mika noticed the large black cloud of smoke that came from that direction. 
 
 On a platform in the back he saw his old tchungkee rival. Mohe. He was on his knees next to a platform. On the platform was Leoti. Her skin white. Dressed in her favorite skins and beads. Someone came to tell him they had to take her and he pushed them away. There were tears in his eyes. His face was one of utter loss and bewilderment. Mika wept too, for Leoti was his first love. She was beautiful indeed.
 
@@ -1172,7 +1172,44 @@ But needless to say he caught very few fish. Sometimes he had the strength to br
 
 He grew very hungry. Combined with the weariness of the plodding through endless miles of snow overcame him sometimes. There were days when he could not get the energy to make any progress at all. His bones and joints ached. His muscles cramped.
 
-In those times it was the vision he had of the village in springtime and of his father that night in the hut and of the words he spoke to him alone that afterwards Mika had so taken to heart. Those memories gave him the strength to walk again for one more day. And when he was on the path he found it best to focus on the path itself and not to think about anything else. But to place one foot in front of the other. Only that action itself. Anything else would be a distraction to him. Anything else could take him off the path. He must not allow that. Sometimes he could not help it and his mind would drift. Sometimes his mind would drift and he imagined he could see himself as if from above. From a great height he imagined he could see himself walking. The boy with the bucket, alone and walking. Ever walking.
+In those times it was the vision he had of the village in springtime and of his father that night in the hut and of the words he spoke to him alone that afterwards Mika had so taken to heart. Those memories gave him the strength to walk again for one more day. And when he was on the path he found it best to focus on the path itself and not to think about anything else. But to place one foot in front of the other. Only that action itself. Anything else would be a distraction to him. Anything else could take him off the path. He must not allow that. Sometimes he could not help it and his mind would drift. Sometimes his mind would drift and he imagined he could see himself as if from above. From a great height he imagined he could see himself walking, a boy with a bucket, alone and walking. Ever walking.
 
 ~
 
+It was morning in the village. The snows had blanketed the burned grass and the rubble from the destruction and lay in drifts against the sides of the homes. The winter sun was over the tops of the trees and was beginning to melt the top layer. All the people were inside their homes. They were weak because they had not eaten for weeks now but they had also lost hope.
+
+Then a voice came. It echoed through the village and the people inside heard it vaguely at first, small but excited. They listened close and soon made out what the voice was shouting.
+
+Come and see! He has returned! Come everyone and see!
+
+Ama heard the voice enter the house where she lay on the bed next to her kin. She sat up and listened and then went to the door and opened the deerskin cover. Sunlight came in. It shone inside and woke everyone else. They rubbed their eyes and sat up. The voice continued to shout.
+
+The excited voice made them excited too and they put on their skins and looked at one another with confused expressions. Ama walked outside and she saw several families outside. They looked at one another. Some of them were heading in the direction of the shouting. Then others came out of their homes and followed.
+
+It came from the ceremonial grounds in the middle of the village and by the time that Ama and the others arrived from their homes they could see that the entire village, all that were still alive, had gathered there. Everyone was gathered.
+
+The boy who shouted was still shouting. It was the lookout Gawoni. He cupped his hands around his mouth and let out another shout. There were tears on his cheeks.
+
+He has returned! Come everyone and see!
+
+The crowds murmured and pointed. Ama went through them. She led her family through the crowds who had gathered. She saw Yaholo kneeling in prayer. She saw the old chief of peace, Kulsathee on his knees also. And Tye the warrior. There were tears in all their eyes. And people walking to the middle of the grounds, to the tree.
+
+And there at the base of the tree she saw her son. She saw Mika collapsed against the tree. The bucket was beside him. She ran to him and embraced the body of her son, because there was no more life in it. She wept and held him in her arms.
+
+My son, my Mika.
+
+It was only later that she realized that the tears of the others were not tears of sorrow like hers. They were tears of joy and their voices had a sound of hope in them. Her eyes lifted and  she saw the trunk. She saw it was no longer charred. The tree had life in it. It lived again. The bark healthy and rich in color. She gazed up and saw those branches, which had always been barren in the past, were now full of leaves like they are in springtime, full and bright green they were. Delicate and fluttering in the winter air. Yet it was the fruit that at last turned Ama’s tears of sorrow into joy.
+
+The large, round yellow fruit, bursting from its flowers on the ends of the limbs. There were multitudes of them on every branch all the way to the top of the tree. Some had fallen loose onto the ground and cracked open, spilling the deep red and orange flesh onto the ground. Underneath the canopy of the great tree the snow had melted and exposed the earth and although she wasn’t sure how it could be so, it was also warm there.
+
+The people of the village had brought baskets. They collected the fallen fruit and marveled when they saw the empty stem on the branch immediately blossom in its place.
+
+How strange it is, said a young girl to her mother, How strange in winter for the fruit to grow.
+
+Ama saw the looks on their faces. They were in disbelief. They ate the fruit and the looks on their faces was first of shock and then a smile. Some broke into laughter and passed the fruit around to their families. They collected the fruit in baskets and shared with one another. As they ate their eyes grew bright and color returned to their cheeks.
+
+She watched all of this but did not once rise to join them. She held her son and kissed the hair on his head. How thin and frail he was. She remembered the night Sakima died, when she found him sleeping against the tree and wrapped the blanket around him. Her son would be honored like his father, for he was the son of his father after all. He would be remembered forever in the stories and songs of their people. Mika, the boy with the bucket, the son of his father.
+
+Kulsathee, the old chief of peace, rose to his feet and stood underneath the canopy of the ancient tree and he faced the people gathered. He faced them with tears in his eyes and expressed in words the feeling of joy that was on all their faces and in their hearts that morning in winter.
+
+We will not starve.
