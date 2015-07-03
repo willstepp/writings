@@ -2,9 +2,7 @@ HUNGER
 Daniel Stepp
 
 
-How strange it is, he thought. The boy followed behind an elderly caregiver who had roused him from slumber only moments before. Mika had yet to shake off his dreams and noticed many things that would not be out of place inside of one. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. 
-
-Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
+Mika followed behind an elderly caregiver who had roused him from slumber only moments before. The boy had yet to shake off his dreams and noticed many things that would not be out of place inside of one. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
 
 Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
 
