@@ -1,5 +1,24 @@
+
+
+
+
+
+
+
+
+
+
+
 HUNGER
 Daniel Stepp
+
+
+
+
+
+
+
+
 
 
 Mika followed behind an elderly caregiver who had roused him from slumber only moments before. The boy had yet to shake off his dreams and noticed many things that would not be out of place inside of one. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. His father was the medicine man of the village and would have been performing the ritual tonight were it not him who lay inside.
@@ -8,7 +27,7 @@ Mika's guide parted the deerskin cover that hung over the door and stood aside a
 
 Yaholo was there, a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the ritual. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And on a bed woven from reed was his father Sakima.
 
-No one had told him what to do once inside so he approached his father and placed his hand upon his. His skin was dry and cold. This was a surprise because it was so hot inside the ouse, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not awake. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
+No one had told him what to do once inside so he approached his father and placed his hand upon his. His skin was dry and cold. This was a surprise because it was so hot inside the house, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not awake. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
 
 Mika turned to Yaholo and made eye contact with him. But Yaholo looked through him. He also gazed upon a faraway place.
 
@@ -36,7 +55,7 @@ Now he sat at the base of the tree alone. It was the darkest time of night. The 
 
 ~
 
-Then there was a festive gathering. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to pay their respects to the great Sakima, but also to enjoy the good food and the company of their neighbors.
+There was a gathering in the cermonial grounds. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to pay their respects to the great Sakima, but also to enjoy the good food and the company of their neighbors.
 
 A high platform constructed from reed was raised within the ceremonial grounds and the beloved shaman was placed upon it. His body was anointed with strongly-scented oils and adorned with the beadwork he wore throughout his lifetime. The platform where he rested stood six feet off the ground and some of the children dared one another to climb up the sides to have a peek but when the parents saw what they were doing they scolded them harshly and reminded them to show respect. The young women arranged flower sashes all about the base of the platform. Here the shaman would lie until the elders decided it was time to bury him in the ground. It was the same for every great man.
 
@@ -442,7 +461,7 @@ Mika turned red. Then he walked up and stood by her side. Leoti did not refuse h
 
 Finally Leoti spoke. You have grown stronger.
 
-Everyone keeps saying that. I don’t know how I could have grown in only a few weeks.
+Everyone keeps saying that. I don’t see how.
 
 It is true. Or maybe it is your reputation that makes you seem larger. Mika the great hunter. The savior of our tribe. The elders beam when they speak your name. The children tell stories about you like you are the hero in a legend. They play hunt in the forest and every boy wants to be Mika, the boy with the bow.
 
@@ -680,8 +699,6 @@ The path through the village was lively with people from the tribe. This was a p
 
 What happened to him out there?
 
-He’s been gone for weeks.
-
 A miracle. I thought he was dead. Yet here he is.
 
 But where is the rest of him? All I see are skin and bones.
@@ -790,7 +807,7 @@ Inside the hut was empty. His mother’s bed and her jewelry was gone. Only his 
 
 You are selfish. You cannot take care of your mother anymore. She has to come live with us. How do you feel about that?
 
-Mika did know what to say. It was true he had left her for those weeks he was gone. He had not anticipated that others would resent the fact his mother still partook of the food that her son was not around to help hunt. Ama did not seem to blame him. Even now her eyes were filled with a kind of pity, though she did not come over.
+Mika did know what to say. It was true he had left her for the time he was gone. He had not anticipated that others would resent the fact his mother still partook of the food that her son was not around to help hunt. Ama did not seem to blame him. Even now her eyes were filled with a kind of pity, though she did not come over.
 
 I do try.
 
@@ -890,7 +907,7 @@ At last there was a plateau. Mika climbed onto it and saw that there was no chas
 
 Mika approached the ancient tree and lifted off the cover from the bucket and gently poured its contents into the ground at the base. The dry earth soaked up the water and was gone again. Then he set the bucket on the ground and stood by and he waited.
 
-Only now that he had poured the water from the bucket did he look at his surroundings. It was early evening though not yet dark. Mika felt that same feeling of disconnection he always felt upon returning from the mountain. Sometimes it was like a thousand years had passed though in reality it had been a few weeks. What he noticed tonight was that nobody was outside. It was true that it was late in the year and becoming colder. Still it was uncommon not to see anybody. Smoke curled from the chimneys in the sweat houses. He saw the flickering fire light through the smalll doors on them.
+Only now that he had poured the water from the bucket did he look at his surroundings. It was early evening though not yet dark. Mika felt that same feeling of disconnection he always felt upon returning from the mountain. Sometimes it was like a thousand years had passed. What he noticed tonight was that nobody was outside. It was true that it was late in the year and becoming colder. Still it was uncommon not to see anybody. Smoke curled from the chimneys in the sweat houses. He saw the flickering fire light through the smalll doors on them.
 
 Yet there was no activity. There was an unnatural quiet to the entire village. Even the lookouts at the gate had seemed different to him. Stonefaced, serious. He remembered they did not even acknowledge him being there.
 
@@ -950,7 +967,7 @@ Help us, Mika. I know you have gone another way but I command you to help us in 
 
 Mika stared into the flames as newly-appointed chief of war watched him.
 
-That I cannot do, Mika said, for I must do the will of my father.
+That I cannot do, Mika said.
 
 Tye shook his head and also stared into the fire.
 
@@ -1192,13 +1209,13 @@ The boy who shouted was still shouting. It was the lookout Gawoni. He cupped his
 
 He has returned! Come everyone and see!
 
-The crowds murmured and pointed. Ama went through them. She led her family through the crowds who had gathered. She saw Yaholo kneeling. She saw the old chief of peace, Kulsathee on his knees . And Tye the warrior also. There were tears in their eyes. And people walking to the middle of the grounds, to the tree.
+The crowds murmured and pointed. Ama went through them. She led her family through the crowds who had gathered. She saw Yaholo kneeling. She saw the old chief of peace, Kulsathee on his knees. And Tye the warrior also. There were tears in their eyes. And people walking to the middle of the grounds, to the tree.
 
 At the base of the tree she saw her son. She saw him collapsed against the tree. The bucket empty beside him. She ran over and embraced the body of her son because there was no more life in it. She wept and held him in her arms.
 
-Mika. My beautiful son.
+My son.
 
-It was only later that she realized that the tears of the others were not tears of sorrow like hers. They were tears of joy and their voices had a sound of hope in them. Her eyes lifted and  she saw the trunk. She saw it was no longer charred. The tree had life in it. It lived again. The bark healthy and rich in color. She gazed up and saw those branches, which had always been barren in the past, were now full of leaves like they are in springtime, full and bright green they were. Delicate and fluttering in the winter air. Yet it was the fruit that at last turned Ama’s tears of sorrow into joy.
+It was only later that she realized that the tears of the others were not tears of sorrow like hers. They were tears of joy and their voices had a sound of hope in them. Her eyes lifted and she saw the trunk. She saw it was no longer charred. The tree had life in it. It lived again. The bark healthy and rich in color. She gazed up and saw those branches, which had always been barren in the past, were now full of leaves like they are in springtime, full and bright green they were. Delicate and fluttering in the winter air. Yet it was the fruit that at last turned Ama’s tears of sorrow into joy.
 
 The large, round yellow fruit, bursting from its flowers on the ends of the limbs. There were multitudes of them on every branch all the way to the top of the tree. Some had fallen loose onto the ground and cracked open, spilling the deep red and orange flesh onto the ground. Underneath the canopy of the great tree the snow had melted and exposed the earth and although she wasn’t sure how it could be so, it was also warm there.
 
