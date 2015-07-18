@@ -1,3 +1,32 @@
+REVISIONS:
+
+Among the stars which are countless in number.
+
+Hi, Mika.
+
+He was defenseless against her lack of malice towards him. It appeared she no longer considered him at all. Only Mohe. Those moments he and Leoti had shared together, when she was his and he hers, were gone now. He left them and went off to be alone.
+
+The scene with sister, make him silent throughout, mother listening. They exchange glances after.
+
+Truly he was the son of his father.
+The old Chief of Peace ate the good fruit and felt replenished and when he got strength enough to stand unaided he addressed them underneath the canopy of the living tree and spoke aloud what they all were feeling in their hearts, 
+"We will not starve."
+
+And throughout all of Winter fed on that strange and replenishing fruit.
+
+Do what I ask of you.
+
+Until now my path has been guided by fear and distraction, but no more.
+
+[love with leoti] and it would always be so.
+
+At the crevasse he remembers leaping from a too high branch into hi fathers arms, that is what gives him the courage to fall in. Then he discovers the tunnel up. On the other side he makes a bridge from tree branches.
+
+It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
+
+Come back to me again. Do not die out in my heart. I need you with me.
+
+
 xDocumentary on Native American Tribes before European Colonization: 
 https://www.youtube.com/watch?v=7FItlStGMY4
 
