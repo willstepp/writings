@@ -1164,7 +1164,7 @@ In the front yard was a 1953 Buick, faded blue, the paint and windows covered in
 
 You could not see outside the windows at all, but there was a dim light radiating through the mildew and ice, illuminating the front seat. His father was there, beside him. Will was not afraid to see him there. He was glad his father was there, old and gray, dressed in a suit like he was at the funeral. They did not speak, only sat there together for an indeterminate time in silence, a peaceful warm silence that filled him with a sense of belonging, a sense of home.
 
-"What is it like, to be a father?" Will asked him, finally.
+"What's it like, to be a father?" Will asked him at last.
 
 "It's wonderful."
 
