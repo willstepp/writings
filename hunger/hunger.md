@@ -1,1228 +1,635 @@
-
-
-
-
-
-
-
-
-
-
-
 HUNGER
 Daniel Stepp
 
-
-
-
-
-
-
-
-
-
-Mika followed behind an elderly caregiver who had roused him from slumber only moments before. The boy had yet to shake off his dreams and noticed many things that would not be out of place inside of one. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure.
-
-Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
-
-Yaholo was there, a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the ritual. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And on a bed woven from reed was his father Sakima.
-
-No one had told him what to do once inside so he approached his father and placed his hand upon his. His skin was dry and cold. This was a surprise because it was so hot inside the house, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not awake. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
-
-Mika turned to Yaholo and made eye contact with him. But Yaholo looked through him. He also gazed upon a faraway place.
-
-There was a jar of water on a table and Mika poured some into his hand and fed it to his father. When the moisture hit Sakima's lips he came around and slowly he recognized his son standing there. There were tears in his eyes. He took the smaller hand of his son into his own and squeezed.
-
-Son, his father said, come and see.
-
-Mika placed his head against his father's chest and smelled a bitter salve. He looked towards the ceiling and saw the shadows of Yaholo's movements dance across the ceiling plaster. Underneath a bench Mika saw a hen perched. Oblivious to what was going on it pecked at the ground. Mika grew angry at it being there, at those stupid black eyes watching all.
-
-Then his father Sakima whispered something into his ear and Mika forgot the chicken and everything else in the hut. There were only the words and the sick, foul breath in his ear. Sakima asked something of him, his will. And when there was nothing more to say the old man collapsed onto his back and went unconscious again. The boy rose and looked at his father, unsure if he had heard right. Then he looked at his mother in the corner. Her eyes were wet with tears. He went to console her.
-
-Yaholo approached Sakima and suddenly his voice grew in volume. He pulled a baton decorated in green soapstone and shook it rhythmically over the sick man. From the corner of the building Mika and his mother watched. Sakima came to life once more and shook from the core of his body. He was in great pain. Mika left to tend to him but his mother pulled him back. He saw the stupid chicken under the bench now pecking at the dirt and this filled Mika with rage. He escaped his mother's embrace and chase it outside but then his father let out a cry unlike anything he had ever heard from him.
-
-He was awake again. His eyes wide. He raised from the bed like a statue and yelled in anger at Yaholo. Tears came to his pupil's eyes but he continued to speak the words of the ceremony. Then Sakima looked at his son. His eyes were wild. There was fear in them.
-
-Do what I ask of you.
-
-All eyes turned to Mika, but he did not answer. Then Sakima collapsed onto the bed again and shouted in pain and a few minutes later grew silent, eyes rolled back in his head, much as he had when Mika had first entered the hut. And when the boy saw the chicken again next to the bed he could take no more of it and ran outside.
-
-The air outside was cool. The others stood in silence and looked to Mika in order to know what was going on. He ignored them and ran to the center of the village, a clearing one acre square, the ceremonial ground where many times he and his father had sat together.
-
-In the middle of the ceremonial ground was an old tree. It had wide, gnarled branches good to climb and rose high above the surrounding trees of the forest. It bark was smooth and stone-like. The tree was sacred to the village. Its symbol in fact. The tree was not from this time. It was from another, more ancient world than theirs. Mika had climbed on its limbs since he was a boy and had always asked his father questions about it, how old it was, where it had come from, and his father had always answered that nobody knew. Mika used to imagine the strange creatures who must have inhabited the world when it lived and who were perhaps nourished by its leaves.
-
-Now he sat at the base of the tree alone. It was the darkest time of night. The stars were gone. The morning yet to come. He remembered times he shared with his father under the tree and soon fell asleep. Later, after the shaman had passed from this world into the next, his mother found him there shivering and wrapped a blanket around him.
-
-~
-
-There was a gathering in the cermonial grounds. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to pay their respects to the great Sakima, but also to enjoy the good food and the company of their neighbors.
-
-A high platform constructed from reed was raised within the ceremonial grounds and the beloved shaman was placed upon it. His body was anointed with strongly-scented oils and adorned with the beadwork he wore throughout his lifetime. The platform where he rested stood six feet off the ground and some of the children dared one another to climb up the sides to have a peek but when the parents saw what they were doing they scolded them harshly and reminded them to show respect. The young women arranged flower sashes all about the base of the platform. Here the shaman would lie until the elders decided it was time to bury him in the ground. It was the same for every great man.
-
-Roasting spits were planted near the bonfire and skewered with deer, pigs, rabbits and other game. Long tables were brought out and set upon them were clay bowls and pots filled with sour mashed hominy, locust-pod soup, honey, fried bean and corn bread, dried peaches, dried apples, and *kanuchi*, which is a soup made from hickory nuts. All the families of the village brought something and all were welcome to partake. Gathered they numbered in the hundreds.
-
-Mika walked among them. He was alone and tried to stay invisible, though it was hard. He did not like to be consoled for the loss of his father. He did not like to be reminded what a great man Sakima was. He even avoided his mother because of the way she now looked at him. Those sad eyes, filled with pity, he could not stand it.
-
-He found a hidden spot, away from the crowd, and sat upon a log there to watch them. They were kind people who meant well. He did not resent them. He wanted only to be left alone. His thoughts turned to the ancient tree in the shadow of the bonfire flames. There it loomed over them all. Ignored but happy to be ignored. Just like him. 
-
-Then Mika recalled the last words his father had spoken to him and wondered what they could mean. He wished the ghost of his father would visit him in his dreams and tell him what they meant and what to do about them. Why he must do that particular thing. But he knew such things did not happen. Only in stories did they happen.
-
-At the edge of the bonfire flames he spotted his friend Tye. He  longed to run up to his friend and joke like they always did yet he knew it was not appropriate here. Tye was a hunter like Mika and it did not take him long to spot his friend hidden in the darkness. Tye was savvy and did not approach his friend in mourning. Instead he made a gesture by interlocking his two forefingers like a chain, a secret symbol of their friendship. Mika returned the gesture from his spot on the log. His true friend.
-
-Yet someone else had discovered him there in the shadows of the bonfire light and approached him from behind, in secret. Leoti emerged carrying a small bowl of food. Her hair was braided and hung gracefully over the shoulder. She was beautiful indeed. The last time Mika had seen her was the night his father died. She was part of the group of girls who chanted with the turtle shell rattles outside the house. Leoti placed the bowl on the ground in front of him and demurred in respectful silence. Mika gazed upon her and then glanced at the bowl, steam rising from it.
-
-You must eat, she said.
-
-He picked up the bowl and drank the soup down with only a few gulps. Kanuchi was one of his favorites. She then placed a wrapped cloth full of bread and roasted deer meat next to the bowl. Still warm and grease seeping through the material.
-
-Eat, Mika.
-
-He noticed she did not try to console him though he could see the pity in her eyes. He unraveled the cloth and ate. His mood changed as the food restored energy to his body. The meat was good. The bread was good too. He had not realized how hungry he was.
-
-Thank you, Leoti.
-
-She smiled and they sat together for awhile. Mika was happy she was here. He looked at all the people and for the first time that evening understood that it was love that had brought them together and that it was something not to take for granted. And he felt it himself and no longer wanted to be alone.
-
-The elders of the tribe then gathered around the fire and the people gathered around them and sat on the ground. Mika and Leoti came closer and found a place next to the others. Then, in turn, each of the village elders told stories about Sakima the medicine man. As he listened Mika was filled with such pride at the things they said. Half of the stories he had never heard before.
-
-At last Kulsathee rose from his spot in the center of the group of elders, a large rotund man the same age as his father. He was what they called the *chief of peace* and had been the leader of the tribe ever since before Mika was born. There were deep lines in his face and when he smiled, which he did often, the lines grew deeper still, like bunched up leather.
-
-The old Kulsathee told a story of how he and Sakima were out hunting one day, far away from the village, when they were just boys. Far away, he repeated. Many weeks. They were hunting bison  in the plains and decided to explore the valleys of the Southern Mountains. He spread his arms around him. 
-
-These green valleys, he said. How we loved them. We found deer and pigs, squirrels and turkey. And then my good friend, Sakima the brave, he took a walk by himself one morning in a dense fog and discovered our tree by accident. Kulsathee gestured toward its dead, ancient branches and everyone looked at it.
-
-Sakima discovered the tree and had a vision on that misty morning. He foresaw that our people would establish a village here on this same spot. So we returned and told the elders what we had found and about the vision Sakima had been given. But the elders laughed at Sakima and called him just a boy. The next year was the bloody war among the plains people and we were uprooted, our homes burned, our crops destroyed. We traveled here as it seemed a safe haven from the death and desolation of the plains. From that point on his visions were respected and he became shaman.
-
-The old chief of peace continued to tell stories of Sakima well into the morning. He told of the establishment of the tribe in the hills around. He told of the first council that united the neighboring tribes together. And when he was done there were tears in his eyes and the people watching were amazed as they had never seen him show emotion as he did that night.
-
-It was then, in the lull between speakers, that Mika felt compelled to rise and tell the crowd about what his father had said to him just before his death. He rose and approached the center of the circle near the flames of the bonfire. No one said anything when they saw him approach. Kulsathee walked up to the young boy and held both of his arms in the gesture of great kinship, and then sat down with the others.
-
-Mika stood before the people with his head bowed. Moments went by in complete silence as he collected his thoughts. Then he raised his head and observed them all. He looked into their eyes. Each one of them. They were expectant and hopeful. They wanted to hear something about his father, to inspire them. To let them know it was okay for a great man to die. Yet Mika did not speak. The words his father had spoken to him that night in the sweat house was not for them. What had been asked of him was not for them to know and that it would be a betrayal to the memory of his father to utter them to those whom it had not been given. He now understood.
-
-The people stirred and wanted him to say something yet Mika remained silent. Some in the crowd laughed it off as youthful shyness. Some took it as pride on his part and wrinkled their noses in disgust before returning to see if there was anything good left to eat. Some pitied him. Some said he was not the man his father was.
-
-~
-
-Those were the days of abundance when the meadows in the valley turned green and blossomed with wildflowers and berries. A myriad of colors replaced the grays and browns of Winter. The river which ran through the village and irrigated their crops glistened in those mild afternoons. The women went daily along its banks and pulled trout from traps they built in the small cascades. Those fish they would barbecue that same evening to feed their families for supper. There was no need to salt them for storage during this time of the year.
-
-The men hunted game in the nearby forests or busied themselves with construction that had been put off during the cold season. They fixed leaky roofs and erected summer shelters that allowed the breeze to blow through. This work they did communally from shared materials, harvested and stored in a building on the Northern side of the village. 
-
-The young children ran in the fields and played games in the woods like hide and seek. They went shirtless and ate strawberries and blackberries until their mouths and fingers were stained purple. 
-
-The older children collected in a wide open area on the Southern edge of the village grounds. There a field had been cleared of all shrubs and grass so that only a dirt floor remained. Over the years it had been hardened by the weather and by their footsteps. Here they played dice and ball games. Stick ball was popular when there were many in the group, but the game that required the most skill and therefore attracted the attention of even the elders was *tchungkee*. 
-
-Tchungkee was a game for hunters since it required the use of a spear. There was a stone disc about the size of a grapefruit, polished smooth, with two concave indentations carved into opposite sides. This caused the disc to roll in unpredictable patterns. Two competitors lined up at the edge of a small arena whose boundaries were marked with rocks. The roller would stand between the boys and let out of a *yip* as he tossed the disc hard into the arena. The boys with the spears then had only a few seconds to gauge where they thought the disc would end up and throw their spears. Whoever threw nearest to the place where the disc ended up got the point.
-
-This game was so popular the elders gathered under the shade of the trees that ran along the dirt arena. They brought their pipes and blankets and gambled with each other about who would win and by how many points. They all had their favorites but by far the most favored was Mika the son of Sakima, since he had the most steady throw and consistently scored more points than any of the other boys.
-
-On this day they had already played for hours and Mika was indeed  ahead of the others in points, and yet not as much as usual, so much that some of the elders who regularly bet on his wide spread were now losing and whenever he looked over there he could see them frowning and waving their hands in frustration.
-
-The reason for his unusually bad performance was that all afternoon his attention had been drawn to the distant Northern mountains that could be seen from here. They were not visible from within the village gates. It was only from here, in the arena clearing, that he could see those rocky ridges so far away. Once more Mika was reminded of the words of his father had spoken to him on his deathbed. He became distracted and threw his spear off the mark.
-
-His opponent in this match, a poor player named Mohe, was excited and ran to the place his spear had landed and counted how many notches he was to the disc. Four two Mika’s seven. He had won by three points. Mika walked to his spear which stuck in the dirt a few feet from the disc. Mohe was thrilled by his score and shouted to the others to make sure everyone saw and that the scorekeeper had marked it down accurately.
-
-Mika pulled his spear and walked to the side of the arena and sat down. His friend Tye approached.
-
-The old men say your spear must be bad for you to be throwing like this. They say to me, Tye give him yours and he will win again.
-
-Old buzzards, Mika said, don’t they have anything else to do? Like smoke their pipes or take cat naps.
-
-They are worried about their bets, that’s all.
-
-Tye looked towards the field and saw Mohe was trying to get the attention of a group of girls who sat in a circle under a tree, sewing bead necklaces. Leoti was among them. She glanced back towards Mika and Tye.
-
-Mohe is fond of Leoti. Are you going to let that happen?
-
-I don’t care what that frog eater does.
-
-His friend laughed. Then he dropped his own spear in front of Mika.
-
-Use my spear. Challenge him again. I want to see the look on his face when you prove it was just bad luck.
-
-Mika looked at his friend.
-
-My spear is good. See for yourself.
-
-Tye picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for imperfections.
-
-He agreed. Your spear is good. No splinters. No warp. But how did you lose to Mohe?
-
-I tell you my head is not right. I cannot stop thinking about my father.
-
-His friend nodded. Tye’s brother had died in a hunting accident two summers ago so he understood loss.
-
-It will get better, Tye said. He rose and clasped on hand on his friend’s shoulder and looked him in the eyes. You are the best tchungkee thrower of them all.
-
-Tye left to join a game of dice across the field but then shouted over his shoulder, Except for me!
-
-Mika grinned.
-
-Soon another round of tchungkee started and Mohe took the lead in points since Mika did not feel like playing anymore. His friends were disappointed. The gambling elders gave up on him and placed their bets on Mohe instead. Mika watched the game from the sidelines for awhile longer then went to find his mother.
-
-Ama was outside their summer house teaching a group of young girls how to flesh deer hides for tanning. She was old but still strong. When she scraped the broad flint blade across a hide draped along a flat wooden incline she moved like a woman twenty years younger than she was. The girls each took turns and were not nearly as quick and efficient as Ama, but they were learning and Mika’s mother was patient with them.
-
-When she saw her son approach she wiped her hands on a cloth and embraced him. That look of pity she always gave him was present and though Mika still resented it he wanted her counsel. From the way he walked she knew something was the matter.
-
-Let us talk, she said. 
-
-Ama told the girls to keep up the work and to finish the hide they were working on and then they could take a break. This renewed their enthusiasm.
-
-They walked together along the road that led out of the village. The gates were open this time of year. From here they could hear the children playing in the arena. They could hear their laughter.
-
-Why are you not in the arena with your friends?
-
-I was there, Mika said, I lost to Mohe.
-
-Is that why you are sad?
-
-No, mama.
-
-Ama looked at him with understanding. 
-
-Of course it isn’t. Now tell me what is wrong, my son.
-
-Mika was upset to the point of tears. He wondered if he should tell his mother everything, her eyes so full of compassion. She wanted him to be happy. But he could not tell her. Not even her.
-
-Father asked something of me, the night of his death, a thing I must do. So I tell myself Mika this thing can wait. There is time enough to do it later. But when I try to enjoy the things I did before it is there and there is no joy in those things anymore.
-
-Mika stopped in the road and his mother did the same. He looked towards the far mountains partially hidden by the hills. His mother followed his eyes but did not speak or asked him why he looked there.
-
-I want to play games with my friends again. I want it to be like it was before when life was fun and carefree. Now there is always the voice of my father. It pulls me away from them.
-
-Ama reached out and feathered the hair that fell into Mika’s eyes. This show of tenderness caused a tear to fall and he was ashamed because that was not a thing men did.
-
-Look at me, Mika.
-
-He did so.
-
-My son, your heart is now divided. You must do what it asks of you or you will have no peace. Do not be afraid. Your friends will wait for you. You will play games with them again. Like it was before, it will be again. But first you must find peace.
-
-Is all that really true? Mika asked. His eyes welled with tears but he smiled with hope.
-
-Yes it is true.
-
-Mika and his mother embraced and then returned inside the gates of the village. The late afternoon sun shone through the gate poles and lit geometrical shapes onto the path where they walked. It was time for supper and in the air was an aroma of fresh barbecued fish and bread baking on the fire.
-
-~
-
-Before dawn Mika rose. He was careful not to wake his mother who slept next to him. In the darkness of morning he found his knife and the sheathe with a strap to go around his shoulder. Ama the night before had prepared some fried bread cakes, good food for travel, and wrapped them in a thin cloth. He put those in a satchel also strapped around his shoulder. There was no need to take any water as he would be following the river and could drink from it whenever he was thirsty.
-
-There was an old bucket in the storage shed his father had used. Most of the contents of the shed were now dispersed to others in the tribe, but nobody had yet found a need for this bucket, and Mika was happy to find it there just as he remembered.
-
-With these few items he stepped on the path that headed outside the Northern gate. His good friend Gawoni stood guard that morning and Mika found him snoring under the platform built for archers.
-
-Let me out you lazy dog, Mika said. 
-
-He gave his friend a soft kick in the side and Gawoni startled awake. Mika laughed.
-
-Why do you laugh? Gawoni said. He stretched both arms above him and yawned like a mountain lion. I was awake the whole time.
-
-Again Mika asked his friend to open the gate. Gawoni, when his eyes adjusted to the dim light of morning, gave Mika a strange look.
-
-Where are you going so early in the morning?
-
-To do what my father asked of me before his death.
-
-But where?
-
-To the mountains. In the north.
-
-Why?
-
-I don’t know.
-
-Gawoni nearly asked Mika what the bucket was for, but then sighed. It was much too early for this. He swung open one of the wooden gates just enough for Mika to pass.
-
-You are a strange one, Mika, that is for sure. Safe travels to you.
-
-Mika walked outside and heard the gate shut behind him. He turned to see Gawoni returning to his napping spot under the platform.
-
-So long, Gawoni.
-
-Do me a favor and when you return make sure it is after sunrise.
-
-Now that he was out here it was not so bad. The dirt path ended not too far away from the village and then there was just the river to guide him. But it was a fine guide. The directions clear. When the morning sun appeared over the hills it reflected off of the surface of the water and shined into his eyes. He shielded them and kept walking.
-
-Once he left the valley he came to a wide plain. Here for the first time he had a clear view of the far mountains. The peaks of it were covered in snow.
-
-But though he was away from the village, away from his friends and all the people that loved him, finally there was a calm inside him. He did not think of the words of his father now. He had no need to. 
-
-The bucket he carried in his left hand started to blister the palms so he switched it to the right. But then after an hour it began to blister the right and he switched again. This time there was no avoiding the blisters and he knew when the skin broke because it was a sharp pain now.
-
-His legs hurt. His back was sore. He rested in a field of tall grass. He went to the river bank and dunked his head under. The cold revitalized him. He cupped some water and drank it down. Then he sat in the grass and ate a few pieces of the fried bread. It nourished him.
-
-That is enough progress for today, he said aloud.
-
-He kindled a fire in the grass and watched the sun go down and the stars emerge in the heavens. So bright they were that night because it was the new moon. Then he lay in the grass and fell asleep almost immediately. He did not dream and did not open his eyes once until the morning sun rose over the horizon and illuminated the plains. He held one arm over his eyes to shield himself from the low sunrise. Its radiance warmed his skin and dried up the dew on the grass within the hour.
-
-Mika had thought the nights rest would heal the soreness in his legs and back and make the blisters on his palms better. But it was worse today. He walked slower but made progress.
-
-You are soft, Mika, he scolded himself, This deed is not for the weak but for the strong. And you are not yet strong.
-
-He wrapped the handle of the bucket with blades of grass to make it softer but it helped little. They bled and the pain from them was nearly constant. He had to stop for rest more often on the second day. He ate more of the food. Indeed there was not much of it left, but that was no matter. When he stopped for the day he caught a fish in the river with some line he brought in the satchel and cooked it over the fire. Again he felt his strength return.
-
-Three more days passed in the same way. The soreness did not get better but he did get better at living with it. Now in the distance he could see the end of the plains because there were hills and the grass became more sparse. 
-
-But he was lonely. He missed the people from his tribe. Missed seeing them each morning. He missed his friends. He missed his mother. He thought of them always. What they were doing. What gossip there was. What they were eating for supper. He even missed Mohe. When he returned he would challenge him to a round and show him what’s what. These thoughts passed the time but they made him very lonely and especially at night when there was nothing else around to distract him.
-
-After the third day the fried cakes ran out and he relied on the fish in the river alone to nourish him. He made steady progress even as the landscape inclined. But on the third night he caught no fish, there were none, and that night he went to bed hungry and woke up the next morning with no strength even to fish let alone continue his journey.
-
-How weak I am, Mika said aloud, what would my father say if he could see me now? You are not ready to do the thing I asked of you. You cry like a baby because your feet hurt and your palms bleed.
-
-Mika lay in the grass feeling low and hungry and lonely for company. He was so hungry. Just a little nourishment and he would be good again. He could continue. Where were the fish? Why had the river not produced any for him? He sat up and looked towards the far mountains. So far away they were. They looked no closer than when he first began. The day ended and Mika had not made any progress and was low in spirit and very hungry. He slept with no fire that night.
-
-He arose early the next morning and began the journey home. He followed the tracks he had made the entire way and felt a deep shame. His hunger never abated. He never caught any fish. Sometimes he found a bush with berries and they gave him some energy. He reached the place where the plains ended and the trees of the valley began. 
-
-It was late afternoon when he rounded the bend and saw the familiar wooden walls that protected his village. Since it was day the gates were open and he walked in. Several of his friends saw him.
-
-Where have you been? They asked, but Mika did not answer. He went to the summer hut he shared with his mother and found her there boiling beans over a fire. When she saw her son she gasped.
-
-How thin you are. And weak. Come inside and rest. I will make you something to eat.
-
-She prepared bread and salted meat and also dried peaches. He ate it all down as his mother looked on, worried but silent. In the corner she saw the empty bucket he had brought inside, but did not ask what it was for. When he was done she washed the blisters on his palms. By now it was evening and the stars had begun to appear overhead.
-
-Mika lay down. His mother gave him a kiss on the forehead.
-
-How does it feel now that you have done your father’s will? He is surely proud. I am proud of my son.
-
-That night Mika wept.
-
-~
-
-One of Mika’s chores every morning was to feed the chickens in the yard, but on this morning when he went out there with the bag of feed he did not see them. He did not hear them either so he went to the small shed with hay inside where they slept. Just outside he saw the same chicken who was in the sweat house the night his father died. It lay on its side without moving. Its black eyes were covered in a milky film. The boy knelt and looked inside the shed at the others. They were all dead.
-
-He looked at the feed in the bag and saw that a few kernals were covered in a black fuzz. He found some kernals on the ground and discovered the same thing.
-
-Mika ran into the center of the village where all the corn in the village was stored and saw people gathered. They all carried bags of corn and other dry goods. There was a sense of worry in the air as they showed one another the contaminated grains and debated about what it could be. Mika recognized the same black fuzz on all their food.
-
-Yonaguska was in charge of the dry good storage in the village he was duly fetched. When he arrived he inspected the grains and  frowned deeply. He told one of the boys to fetch Kulsathee and the other elders. Then he led the group into the graineries where all the corn was kept. There was a central place for it but every person had access to it and could take from it whatever they needed.
-
-It was dark inside but with some of the light from the door it was still plain all the corn inside was also contaminated.
-
-When the elders arrived they were shown the grains. They also frowned. Then one of Mika’s neighbors spoke up.
-
-My pigs ate of this food and now some are sick. Some are dead. What do we do now?
-
-Others said the same thing of their own livestock. Mika told how he had discoverd his chickens. Though it made no sense, the black fuzz had seemed to appear overnight, as nobody had seen it before. By this time the group had grown to a hundred people, everyone carrying examples of contaminated food. Nothing seemed immune to it.
-
-The elders next wanted to inspect the crops in the fields. As a group they went to the Western side of the village where there were large square plots of soil. Every other plot was planted with a particular crops since they rotated by season to not deplete the nutrients. There was mostly corn. Some beans. Peppers. Some squash and pumpkin. Potatoes. Tomatoes. Even spices like mint and cinnamon. From a distance the crops looked fine but upon inspection there was the same black mold growing.
-
-A group of hunters returned at noon that day and they reported game in the forests had been found ill, just as the livestock had been. They brought examples of the mold growing on wild plants.
-
-Panic had been increasing since the morning. Then there was a cry that came from the house of Ninovan and a mother ran through the village carrying Kanuna, her young boy. His skin was blue and there was no life in his eyes which were open. She found the group gathered by the storage buildings and lay him on the ground and asked for their help. Yaholo was fetched and looked the boy over. He said a few words of prayer but there was nothing to be done. He was gone. The mother of Kanuna said her son had eaten some bread and peaches this morning.
-
-Then there were reports from others that some elderly become very sick after eating. Children too.
-
-Kulsathee and the elders told everyone to avoid the food all around until it was determined safe to eat. Since nobody knew how to determine what was safe every kind of food was brought and inspected. The sick were asked what they had eaten that morning and the night before. Strangely it seemed potatoes were the only thing not contaminated by the mold so far and each family horded what they had of them in secret.
-
-Yaholo was asked to perform rites of purification in order to cleanse the food. He consulted some old writings since that particular ritual had not been performed for generations. Though nobody truly believed in the words of the rite to do anything it gave the tribe hope and had value for that reason.
-
-The potato crops were harvested early and kept secure in an isolated shed by Yonaguska. Each day they were rationed out to the families since every other food source was unsafe.
-
-In the following days they discovered more crop contaminated by the black mold and livestock in the village and game in the wilds were found dead or dying. Of the tribe illness affected the elderly and the young more than the others. A very sick elder passed the second night. No other children died.
-
-As the stores of potatoes grew scarce there was a growing panic among the people. Some families ran out faster than others and began to trade clothing and hunting equipment. Some who kept more potatoes than others profited greatly in those days.
-
-Mika and his mother kept an average share of potatoes. They did without breakfast and supper and consumed a single one between them daily, cooking it slow in a pot of boiling water. A struggling father of four came to their hut that night and begged a single potato and at first Ama refused but pitied the man, who was a proud hunter, and gave him two.
-
-Kulsathee called a meeting in the ceremonial grounds the following day and made it mandatory for every member of the tribe to attend. That night there was silence throughout the village as each family prayed to be saved from the blight.
-
-~
-
-Under the tree the people had gathered. The easy-going life of spring had been displaced by an anxiety for what was to come. Mika and his mother sat on the ground in silence. He looked around for his friends and saw Leoti and her family near the back. She tended to her baby brother on a blanket and when she saw him she waved. He then saw Tye and his family. Theirs was a large family and had been struggling to feed everyone.
-
-The trunk and branches of the ancient tree provided some shade to the families though it bore no leaves. Once again Mika thought of his father and the thing that had been asked of him. Because of the panic in the village he had put it out of his mind, but now it came back to him. His failure came back. But now was not the time for such things. Mika understood this.
-
-When the sun was directly overhead the elders emerged together from a large house and entered the ceremonial grounds. They wore beadwork and carried the staffs of tradition, which bore carvings of great deeds from the tribe’s history.
-
-Kulsathee led the elders to the log bench and faced the entire group, perhaps three hundred of them. Everyone grew quiet in deference to the chief of peace. His old back was curved but he still carried the presence of a true leader. His voice boomed like the sound a large skin drum makes when it is struck.
-
-You must know that a blight has come over our valley. It has affected our stores, our crops, our livestock. It has contaminated plants in the wilds and therefore has sickened game that roam our forests. The only thing not affected at this time are potatoes. Some of our people became ill and we lost some dear ones. This is why we gave counsel to cease eating any food we know to be contaminated or in danger to become contaminated.
-
-We do not know the source of this blight. We do know it acts like a mold and spreads from contact with other contaminated foods. It seems to spread through all varieties of plant, grain, vegetable, and fruit, except potato. We do not know why potatoes are immune and we counsel you to take care and inspect what you eat. Although the blight does not spread via animals or people it can make you sick, or in the case of the sick or small ones, it can kill.
-
-What can we do? A young father shouted. How can we feed our families when the potato stores are depleted?
-
-Some nearby scolded the man for his disrespect but Kulsathee calmed them with a wave of his hand. He was not upset by the outburst.
-
-Do not blame this man for his outburst. This good father has said what all of you want to say. I understand this well. Do not forget I am a father, and a grandfather, and soon to be a great grandfather!
-
-The people laughed and Kulsathee gestured to his large family sat nearby. His grand-daughter rubbed her belly and smiled bashfully.
-
-Fear not. Fear not because together we will overcome this blight. Myself and the elders have discussed many things over the past few days. We have taken counsel with the chief farmers and hunters among you in order to see what can be done. This is what we will do.
-
-Every man who is able to hunt will tomorrow set off on a journey to the next valley. It is a five day journey from here and we do not believe the blight has spread that far. Thus we will enter the next valley to hunt deer, rabbit and other wild game. Accompanying this group will be a small group of women to gather fruits that can be dried and nuts and wild vegetables. There will also be a group of women whose job will be to dress the kills and salt them for the journey back. 
-
-Because we want the hunters to hunt they will remain in the valley and we will set up a system of checkpoints whereby the kills will be delivered and passed onto the next. Then after a week the hunters will return for a break to see their families and to rest. Then we start again.
-
-By doing this we will be able to store enough meat to last throughout the year. Through next winter. The days are now long but we must not forget they will not always be so. We must not forget that our Mother the Earth is kind but she is also harsh. Our people are strong and by working together will survive this blight. We will not starve.
-
-~
-
-The summer mornings were humid but today there was a gentle breeze that blew across the high grass in the meadow where Tye and Mika hunted together. They were stalking deer. Nearby, a small creek fed into a pond and this particular spot had been lucky to them several times before and they hoped it would be today. 
-
-Tye strapped the decoy to his right arm and crawled flat on his stomach to the edge of the water. Then he lifted the mock deer head in a realistic way so that it could just be seen from afar.
-
-Mika gave a shrill call when the deer was in the right spot and Tye bobbed its head up and down. Waiting for the deer sometimes took hours so when he became tired he would switch out arms. Being the decoy fell on Tye because Mika had the truer aim. The elder hunters had decided this during target practice and Tye did not resent that it was never him to kill the deer when he and Mika hunted together. He respected the elder huntsmen and knew someday his time would come.
-
-As they waited Mika adjusted the tension on his bow and rolled the arrows that lay in the pile next to him. Today was a good day to hunt. The sky was clear. There had been thunderstorms the week before which made things harder, though they still met quota. But today was good, and this week they were well ahead of quota so far. The day before Mika had killed a doe and Tye killed two rabbits on their return to the camp.
-
-There was a rustling in the grass close to the pond and Mika refocused and pulled his bow into a ready position, with the arrow already notched and resting against the wood. Tye had heard the sound also and adjusted his movements to not startle whatever it was that had made the sound.
-
-Soon there was more rustling and then a large buck and doe appeared together at the edge of the pond. Two of them. They drank from the pond and did not seem to regard the decoy at all. This was good. It gave Mika more time to choose the best shot.
-
-He raised up on his haunches so that his eyeline was level with the top of the grass. Without thinking he timed his breaths so they would not interfere with any potential shot that came.
-
-The deer were not in the best position. Mika needed them to walk around the other side. As close as they were he could not risk moving even one inch from his spot. The sound would give him away.
-
-After a few minutes the deer made their way around the other side of the pond. Mika saw the decoy bob and hoped Tye was strong enough to keep it aloft for however long it took. He knew from experience how difficult it was. But now the deer were faced broadside to Mika and he wasted no time and let the arrow fly. It struck the large buck hard just behind his foreleg.
-
-Both deer sprung away as Mika prepared another shot. He wanted to get that doe before it got too far away. He readied the arrow and took a poor shot that missed and disappeared into the grass.
-
-But then Tye rose from his spot near the pond, in the perfect position to hit the fleeing deer, took aim at the doe and shot. His aim was true and struck it mid-stride, causing it to collapse right there.
-
-Wahooo! Tye shouted.
-
-Mika stood upright and beamed at Tye, interlocking his fingers in the gesture of their friendship. He was happy for his friend.  Tye returned the gesture.
-
-They each collected their gear and walked over to where the doe lay next to the pond. The buck they would have to track but they were pretty sure he wouldn’t get too far. Together they set to work field dressing the doe. With their flint knives they opened and gutted her and then stretched out the body in an upright angle so the blood would drain out. Tye tossed the entrails into the grass to be consumed by other animals.
-
-Then they tracked the blood trail that led to the buck. He had made it further than they thought but was easily found in the grass a few hundred yards away. They dressed him out and bound him for the walk to camp. Then they hauled him together to where the doe was.
-
-By now it was midday and they were hungry. They pulled some dried meat and fried potato cakes from the satchel and ate next to the pond. Because they were so famished the food tasted especially good today. They talked about their good fortune. These were good sized kills. This put them well ahead of the other hunting pairs for the week.
-
-I never saw somebody go from decoy to kill shot with such speed, Mika said.
-
-Tye downplayed the compliment but his pride was evident. 
-
-It took the both of us, he said. Your kill shot set me up. All I had to do was aim and shoot.
-
-Mika mocked his friend, All you had to do. They laughed.
-
-After their meal they drank from their water bladders and then refilled them in the pond. With deer of this size it was going to be an arduous haul back to camp. Better to get it over with, Tye sighed. And they set off.
-
-It was late afternoon before they were in sight of the camp. There were other groups of hunters returning also, but it seemed that once again Mika and Tye had the best luck. They were greeted by a group of young women who were in the middle of processing meat from the hunt two days ago. They giggled and pointed at the young hunters, too shy to speak to them. Mika and Tye exchanged glances and nodded as they passed.
-
-Help came when they reached the center of the camp. A group of apprentice hunters took the doe and buck and dragged them to the processing tents to be strung up to dry, before being processed, cut for salting, then carried in packs to the first delivery checkpoint.
-
-Mika and Tye smelled game roasting on a spit over the large fire in the center of camp. They cleaned themselves and joined the hunters there, some of whom rested on their backs, some napping arrowheads for the next days hunt, or sharpening their knives. All in cheerful mood. Things were going well.
-
-The two hunters were welcomed like heroes even among their peers. They fed themselves and sat around the fire. Every night the topic was the day’s hunt, what each man had killed, how he did it, the best spots to find deer or other game. 
-
-Word had already got around how fine Mika and Tye’s kills had been today. The hunters assumed it had been all Mika, but he quickly corrected them and told them all about his friend’s impressive feat. He rose in front of the fire and re-enacted the scene in detail. He described where Tye had been with the decoy, where the pond was, where he himself was, and then from which direction the deer approached. Everyone was impressed. Everyone was happy for their tribal brethren.
-
-The three elder huntsmen came over to congratulate them.
-
-Here is Mika, the boy with the bow. You have made us proud today.
-
-It was Tye also. He killed the doe.
-
-They smiled.
-
-Well then. You have both made us proud. One day you will be warriors. This we know.
-
-They each took Mika and Tye around the arms and shook them in the gesture of great respect. Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. Everyone cheered, and that night the exhausted hunters slept well and dreamt not about the hunt but about home and being reunited with their loved ones.
-
-~
-
-Because the hunters were so excited to be going home the journey took four days instead of five. When they rounded the hill and saw the wooden gates their hearts grew large and they quickened their pace even more. A lookout spotted them and let out a call through the village. They opened both gates and all the families met them there.
-
-Mika’s mother was there, standing with his aunt and nephews. She hugged her son then looked him up and down. His skin was darker from long days in the sun. His hair matted and dirty from many days without cleaning. She ruffled his hair and kissed him on the forehead. He shied away from her touches, embarassed to be seen coddled by his mother. But she did it anyway.
-
-My son, the hunter. The filthy hunter.
-
-I swear he has grown by two inches, one of his aunts remarked.
-
-Mika blushed.
-
-I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika, the boy with the bow, as they are saying. The hunter with the truest aim. I am proud to be your mother.
-
-They walked home together and Mika told her about all the things he had done that week.
+	Mika followed behind an elderly caregiver who had roused him from slumber only moments before. The boy had yet to shake off his dreams and noticed many things that would not be out of place inside of one. The quiet along the village pathways. The stony frowns on the faces of the elders, all dressed in their ceremonial beadwork. The slow chanting of the girls, some his friends, who wore turtle-shell rattles on their arms and legs. Their eyes gazed at a faraway place that nobody else could see. Soon they came to a small mud hut at the end of a hamlet of buildings that made up the healing area of the village. The hut on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure.
+	Mika's guide parted the deerskin cover that hung over the door and stood aside and joined the girls in their chanting. The boy entered alone.
+	Yaholo was there, a pupil of the shaman. He stood over the embers in the center of the room and muttered the ancient words of the ritual. His mother Ama stood in the corner farthest from the ceremony and watched Mika with an expression of pity. Her hands were clasped against her chest. And on a bed woven from reed was his father Sakima.
+	No one had told him what to do once inside so he approached his father and placed his hand upon his. His skin was dry and cold. This was a surprise because it was so hot inside the house, the coals in the pit giving off so much light and head he could feel sweat beading on his back. Sakima was not awake. His eyes rolled back in his head. He turned from one side to the other. He was in great pain.
+	Mika turned to Yaholo and made eye contact with him. But Yaholo looked through him. He also gazed upon a faraway place.
+	There was a jar of water on a table and Mika poured some into his hand and fed it to his father. When the moisture hit Sakima's lips he came around and slowly he recognized his son standing there. There were tears in his eyes. He took the smaller hand of his son into his own and squeezed.
+	Son, his father said, come and see.
+	Mika placed his head against his father's chest and smelled a bitter salve. He looked towards the ceiling and saw the shadows of Yaholo's movements dance across the ceiling plaster. Underneath a bench Mika saw a hen perched. Oblivious to what was going on it pecked at the ground. Mika grew angry at it being there, at those stupid black eyes watching all.
+	Then his father Sakima whispered something into his ear and Mika forgot the chicken and everything else in the hut. There were only the words and the sick, foul breath in his ear. Sakima asked something of him, his will. And when there was nothing more to say the old man collapsed onto his back and went unconscious again. The boy rose and looked at his father, unsure if he had heard right. Then he looked at his mother in the corner. Her eyes were wet with tears. He went to console her.
+	Yaholo approached Sakima and suddenly his voice grew in volume. He pulled a baton decorated in green soapstone and shook it rhythmically over the sick man. From the corner of the building Mika and his mother watched. Sakima came to life once more and shook from the core of his body. He was in great pain. Mika left to tend to him but his mother pulled him back. He saw the stupid chicken under the bench now pecking at the dirt and this filled Mika with rage. He escaped his mother's embrace and chase it outside but then his father let out a cry unlike anything he had ever heard from him.
+	He was awake again. His eyes wide. He raised from the bed like a statue and yelled in anger at Yaholo. Tears came to his pupil's eyes but he continued to speak the words of the ceremony. Then Sakima looked at his son. His eyes were wild. There was fear in them.
+	Do what I ask of you.
+	All eyes turned to Mika, but he did not answer. Then Sakima collapsed onto the bed again and shouted in pain and a few minutes later grew silent, eyes rolled back in his head, much as he had when Mika had first entered the hut. And when the boy saw the chicken again next to the bed he could take no more of it and ran outside.
+	The air outside was cool. The others stood in silence and looked to Mika in order to know what was going on. He ignored them and ran to the center of the village, a clearing one acre square, the ceremonial ground where many times he and his father had sat together.
+	In the middle of the ceremonial ground was an old tree. It had wide, gnarled branches good to climb and rose high above the surrounding trees of the forest. It bark was smooth and stone-like. The tree was sacred to the village. Its symbol in fact. The tree was not from this time. It was from another, more ancient world than theirs. Mika had climbed on its limbs since he was a boy and had always asked his father questions about it, how old it was, where it had come from, and his father had always answered that nobody knew. Mika used to imagine the strange creatures who must have inhabited the world when it lived and who were perhaps nourished by its leaves.
+	Now he sat at the base of the tree alone. It was the darkest time of night. The stars were gone. The morning yet to come. He remembered times he shared with his father under the tree and soon fell asleep. Later, after the shaman had passed from this world into the next, his mother found him there shivering and wrapped a blanket around him.
+
+
+	There was a gathering in the cermonial grounds. A large bonfire was kindled on the ceremonial grounds and every kind of food was prepared. Families from all over the surrounding hills were invited to pay their respects to the great Sakima, but also to enjoy the good food and the company of their neighbors.
+	A high platform constructed from reed was raised within the ceremonial grounds and the beloved shaman was placed upon it. His body was anointed with strongly-scented oils and adorned with the beadwork he wore throughout his lifetime. The platform where he rested stood six feet off the ground and some of the children dared one another to climb up the sides to have a peek but when the parents saw what they were doing they scolded them harshly and reminded them to show respect. The young women arranged flower sashes all about the base of the platform. Here the shaman would lie until the elders decided it was time to bury him in the ground. It was the same for every great man.
+	Roasting spits were planted near the bonfire and skewered with deer, pigs, rabbits and other game. Long tables were brought out and set upon them were clay bowls and pots filled with sour mashed hominy, locust-pod soup, honey, fried bean and corn bread, dried peaches, dried apples, and *kanuchi*, which is a soup made from hickory nuts. All the families of the village brought something and all were welcome to partake. Gathered they numbered in the hundreds.
+	Mika walked among them. He was alone and tried to stay invisible, though it was hard. He did not like to be consoled for the loss of his father. He did not like to be reminded what a great man Sakima was. He even avoided his mother because of the way she now looked at him. Those sad eyes, filled with pity, he could not stand it.
+	He found a hidden spot, away from the crowd, and sat upon a log there to watch them. They were kind people who meant well. He did not resent them. He wanted only to be left alone. His thoughts turned to the ancient tree in the shadow of the bonfire flames. There it loomed over them all. Ignored but happy to be ignored. Just like him. 
+	Then Mika recalled the last words his father had spoken to him and wondered what they could mean. He wished the ghost of his father would visit him in his dreams and tell him what they meant and what to do about them. Why he must do that particular thing. But he knew such things did not happen. Only in stories did they happen.
+	At the edge of the bonfire flames he spotted his friend Tye. He  longed to run up to his friend and joke like they always did yet he knew it was not appropriate here. Tye was a hunter like Mika and it did not take him long to spot his friend hidden in the darkness. Tye was savvy and did not approach his friend in mourning. Instead he made a gesture by interlocking his two forefingers like a chain, a secret symbol of their friendship. Mika returned the gesture from his spot on the log. His true friend.
+	Yet someone else had discovered him there in the shadows of the bonfire light and approached him from behind, in secret. Leoti emerged carrying a small bowl of food. Her hair was braided and hung gracefully over the shoulder. She was beautiful indeed. The last time Mika had seen her was the night his father died. She was part of the group of girls who chanted with the turtle shell rattles outside the house. Leoti placed the bowl on the ground in front of him and demurred in respectful silence. Mika gazed upon her and then glanced at the bowl, steam rising from it.
+	You must eat, she said.
+	He picked up the bowl and drank the soup down with only a few gulps. Kanuchi was one of his favorites. She then placed a wrapped cloth full of bread and roasted deer meat next to the bowl. Still warm and grease seeping through the material.
+	Eat, Mika.
+	He noticed she did not try to console him though he could see the pity in her eyes. He unraveled the cloth and ate. His mood changed as the food restored energy to his body. The meat was good. The bread was good too. He had not realized how hungry he was.
+	Thank you, Leoti.
+	She smiled and they sat together for awhile. Mika was happy she was here. He looked at all the people and for the first time that evening understood that it was love that had brought them together and that it was something not to take for granted. And he felt it himself and no longer wanted to be alone.
+	The elders of the tribe then gathered around the fire and the people gathered around them and sat on the ground. Mika and Leoti came closer and found a place next to the others. Then, in turn, each of the village elders told stories about Sakima the medicine man. As he listened Mika was filled with such pride at the things they said. Half of the stories he had never heard before.
+	At last Kulsathee rose from his spot in the center of the group of elders, a large rotund man the same age as his father. He was what they called the *chief of peace* and had been the leader of the tribe ever since before Mika was born. There were deep lines in his face and when he smiled, which he did often, the lines grew deeper still, like bunched up leather.
+	The old Kulsathee told a story of how he and Sakima were out hunting one day, far away from the village, when they were just boys. Far away, he repeated. Many weeks. They were hunting bison  in the plains and decided to explore the valleys of the Southern Mountains. He spread his arms around him. 
+	These green valleys, he said. How we loved them. We found deer and pigs, squirrels and turkey. And then my good friend, Sakima the brave, he took a walk by himself one morning in a dense fog and discovered our tree by accident. Kulsathee gestured toward its dead, ancient branches and everyone looked at it.
+	Sakima discovered the tree and had a vision on that misty morning. He foresaw that our people would establish a village here on this same spot. So we returned and told the elders what we had found and about the vision Sakima had been given. But the elders laughed at Sakima and called him just a boy. The next year was the bloody war among the plains people and we were uprooted, our homes burned, our crops destroyed. We traveled here as it seemed a safe haven from the death and desolation of the plains. From that point on his visions were respected and he became shaman.
+	The old chief of peace continued to tell stories of Sakima well into the morning. He told of the establishment of the tribe in the hills around. He told of the first council that united the neighboring tribes together. And when he was done there were tears in his eyes and the people watching were amazed as they had never seen him show emotion as he did that night.
+	It was then, in the lull between speakers, that Mika felt compelled to rise and tell the crowd about what his father had said to him just before his death. He rose and approached the center of the circle near the flames of the bonfire. No one said anything when they saw him approach. Kulsathee walked up to the young boy and held both of his arms in the gesture of great kinship, and then sat down with the others.
+	Mika stood before the people with his head bowed. Moments went by in complete silence as he collected his thoughts. Then he raised his head and observed them all. He looked into their eyes. Each one of them. They were expectant and hopeful. They wanted to hear something about his father, to inspire them. To let them know it was okay for a great man to die. Yet Mika did not speak. The words his father had spoken to him that night in the sweat house was not for them. What had been asked of him was not for them to know and that it would be a betrayal to the memory of his father to utter them to those whom it had not been given. He now understood.
+	The people stirred and wanted him to say something yet Mika remained silent. Some in the crowd laughed it off as youthful shyness. Some took it as pride on his part and wrinkled their noses in disgust before returning to see if there was anything good left to eat. Some pitied him. Some said he was not the man his father was.
+
+
+	Those were the days of abundance when the meadows in the valley turned green and blossomed with wildflowers and berries. A myriad of colors replaced the grays and browns of Winter. The river which ran through the village and irrigated their crops glistened in those mild afternoons. The women went daily along its banks and pulled trout from traps they built in the small cascades. Those fish they would barbecue that same evening to feed their families for supper. There was no need to salt them for storage during this time of the year.
+	The men hunted game in the nearby forests or busied themselves with construction that had been put off during the cold season. They fixed leaky roofs and erected summer shelters that allowed the breeze to blow through. This work they did communally from shared materials, harvested and stored in a building on the Northern side of the village. 
+	The young children ran in the fields and played games in the woods like hide and seek. They went shirtless and ate strawberries and blackberries until their mouths and fingers were stained purple. 
+	The older children collected in a wide open area on the Southern edge of the village grounds. There a field had been cleared of all shrubs and grass so that only a dirt floor remained. Over the years it had been hardened by the weather and by their footsteps. Here they played dice and ball games. Stick ball was popular when there were many in the group, but the game that required the most skill and therefore attracted the attention of even the elders was *tchungkee*. 
+	Tchungkee was a game for hunters since it required the use of a spear. There was a stone disc about the size of a grapefruit, polished smooth, with two concave indentations carved into opposite sides. This caused the disc to roll in unpredictable patterns. Two competitors lined up at the edge of a small arena whose boundaries were marked with rocks. The roller would stand between the boys and let out of a *yip* as he tossed the disc hard into the arena. The boys with the spears then had only a few seconds to gauge where they thought the disc would end up and throw their spears. Whoever threw nearest to the place where the disc ended up got the point.
+	This game was so popular the elders gathered under the shade of the trees that ran along the dirt arena. They brought their pipes and blankets and gambled with each other about who would win and by how many points. They all had their favorites but by far the most favored was Mika the son of Sakima, since he had the most steady throw and consistently scored more points than any of the other boys.
+	On this day they had already played for hours and Mika was indeed  ahead of the others in points, and yet not as much as usual, so much that some of the elders who regularly bet on his wide spread were now losing and whenever he looked over there he could see them frowning and waving their hands in frustration.
+	The reason for his unusually bad performance was that all afternoon his attention had been drawn to the distant Northern mountains that could be seen from here. They were not visible from within the village gates. It was only from here, in the arena clearing, that he could see those rocky ridges so far away. Once more Mika was reminded of the words of his father had spoken to him on his deathbed. He became distracted and threw his spear off the mark.
+	His opponent in this match, a poor player named Mohe, was excited and ran to the place his spear had landed and counted how many notches he was to the disc. Four two Mika’s seven. He had won by three points. Mika walked to his spear which stuck in the dirt a few feet from the disc. Mohe was thrilled by his score and shouted to the others to make sure everyone saw and that the scorekeeper had marked it down accurately.
+	Mika pulled his spear and walked to the side of the arena and sat down. His friend Tye approached.
+	The old men say your spear must be bad for you to be throwing like this. They say to me, Tye give him yours and he will win again.
+	Old buzzards, Mika said, don’t they have anything else to do? Like smoke their pipes or take cat naps.
+	They are worried about their bets, that’s all.
+	Tye looked towards the field and saw Mohe was trying to get the attention of a group of girls who sat in a circle under a tree, sewing bead necklaces. Leoti was among them. She glanced back towards Mika and Tye.
+	Mohe is fond of Leoti. Are you going to let that happen?
+	I don’t care what that frog eater does.
+	His friend laughed. Then he dropped his own spear in front of Mika.
+	Use my spear. Challenge him again. I want to see the look on his face when you prove it was just bad luck.
+	Mika looked at his friend.
+	My spear is good. See for yourself.
+	Tye picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for imperfections.
+	He agreed. Your spear is good. No splinters. No warp. But how did you lose to Mohe?
+	I tell you my head is not right. I cannot stop thinking about my father.
+	His friend nodded. Tye’s brother had died in a hunting accident two summers ago so he understood loss.
+	It will get better, Tye said. He rose and clasped on hand on his friend’s shoulder and looked him in the eyes. You are the best tchungkee thrower of them all.
+	Tye left to join a game of dice across the field but then shouted over his shoulder, Except for me!
+	Mika grinned.
+	Soon another round of tchungkee started and Mohe took the lead in points since Mika did not feel like playing anymore. His friends were disappointed. The gambling elders gave up on him and placed their bets on Mohe instead. Mika watched the game from the sidelines for awhile longer then went to find his mother.
+	Ama was outside their summer house teaching a group of young girls how to flesh deer hides for tanning. She was old but still strong. When she scraped the broad flint blade across a hide draped along a flat wooden incline she moved like a woman twenty years younger than she was. The girls each took turns and were not nearly as quick and efficient as Ama, but they were learning and Mika’s mother was patient with them.
+	When she saw her son approach she wiped her hands on a cloth and embraced him. That look of pity she always gave him was present and though Mika still resented it he wanted her counsel. From the way he walked she knew something was the matter.
+	Let us talk, she said. 
+	Ama told the girls to keep up the work and to finish the hide they were working on and then they could take a break. This renewed their enthusiasm.
+	They walked together along the road that led out of the village. The gates were open this time of year. From here they could hear the children playing in the arena. They could hear their laughter.
+	Why are you not in the arena with your friends?
+	I was there, Mika said, I lost to Mohe.
+	Is that why you are sad?
+	No, mama.
+	Ama looked at him with understanding. 
+	Of course it isn’t. Now tell me what is wrong, my son.
+	Mika was upset to the point of tears. He wondered if he should tell his mother everything, her eyes so full of compassion. She wanted him to be happy. But he could not tell her. Not even her.
+	Father asked something of me, the night of his death, a thing I must do. So I tell myself Mika this thing can wait. There is time enough to do it later. But when I try to enjoy the things I did before it is there and there is no joy in those things anymore.
+	Mika stopped in the road and his mother did the same. He looked towards the far mountains partially hidden by the hills. His mother followed his eyes but did not speak or asked him why he looked there.
+	I want to play games with my friends again. I want it to be like it was before when life was fun and carefree. Now there is always the voice of my father. It pulls me away from them.
+	Ama reached out and feathered the hair that fell into Mika’s eyes. This show of tenderness caused a tear to fall and he was ashamed because that was not a thing men did.
+	Look at me, Mika.
+	He did so.
+	My son, your heart is now divided. You must do what it asks of you or you will have no peace. Do not be afraid. Your friends will wait for you. You will play games with them again. Like it was before, it will be again. But first you must find peace.
+	Is all that really true? Mika asked. His eyes welled with tears but he smiled with hope.
+	Yes it is true.
+	Mika and his mother embraced and then returned inside the gates of the village. The late afternoon sun shone through the gate poles and lit geometrical shapes onto the path where they walked. It was time for supper and in the air was an aroma of fresh barbecued fish and bread baking on the fire.
+
+
+	Before dawn Mika rose. He was careful not to wake his mother who slept next to him. In the darkness of morning he found his knife and the sheathe with a strap to go around his shoulder. Ama the night before had prepared some fried bread cakes, good food for travel, and wrapped them in a thin cloth. He put those in a satchel also strapped around his shoulder. There was no need to take any water as he would be following the river and could drink from it whenever he was thirsty.
+	There was an old bucket in the storage shed his father had used. Most of the contents of the shed were now dispersed to others in the tribe, but nobody had yet found a need for this bucket, and Mika was happy to find it there just as he remembered.
+	With these few items he stepped on the path that headed outside the Northern gate. His good friend Gawoni stood guard that morning and Mika found him snoring under the platform built for archers.
+	Let me out you lazy dog, Mika said. 
+	He gave his friend a soft kick in the side and Gawoni startled awake. Mika laughed.
+	Why do you laugh? Gawoni said. He stretched both arms above him and yawned like a mountain lion. I was awake the whole time.
+	Again Mika asked his friend to open the gate. Gawoni, when his eyes adjusted to the dim light of morning, gave Mika a strange look.
+	Where are you going so early in the morning?
+	To do what my father asked of me before his death.
+	But where?
+	To the mountains. In the north.
+	Why?
+	I don’t know.
+	Gawoni nearly asked Mika what the bucket was for, but then sighed. It was much too early for this. He swung open one of the wooden gates just enough for Mika to pass.
+	You are a strange one, Mika, that is for sure. Safe travels to you.
+	Mika walked outside and heard the gate shut behind him. He turned to see Gawoni returning to his napping spot under the platform.
+	So long, Gawoni.
+	Do me a favor and when you return make sure it is after sunrise.
+	Now that he was out here it was not so bad. The dirt path ended not too far away from the village and then there was just the river to guide him. But it was a fine guide. The directions clear. When the morning sun appeared over the hills it reflected off of the surface of the water and shined into his eyes. He shielded them and kept walking.
+	Once he left the valley he came to a wide plain. Here for the first time he had a clear view of the far mountains. The peaks of it were covered in snow.
+	But though he was away from the village, away from his friends and all the people that loved him, finally there was a calm inside him. He did not think of the words of his father now. He had no need to. 
+	The bucket he carried in his left hand started to blister the palms so he switched it to the right. But then after an hour it began to blister the right and he switched again. This time there was no avoiding the blisters and he knew when the skin broke because it was a sharp pain now.
+	His legs hurt. His back was sore. He rested in a field of tall grass. He went to the river bank and dunked his head under. The cold revitalized him. He cupped some water and drank it down. Then he sat in the grass and ate a few pieces of the fried bread. It nourished him.
+	That is enough progress for today, he said aloud.
+	He kindled a fire in the grass and watched the sun go down and the stars emerge in the heavens. So bright they were that night because it was the new moon. Then he lay in the grass and fell asleep almost immediately. He did not dream and did not open his eyes once until the morning sun rose over the horizon and illuminated the plains. He held one arm over his eyes to shield himself from the low sunrise. Its radiance warmed his skin and dried up the dew on the grass within the hour.
+	Mika had thought the nights rest would heal the soreness in his legs and back and make the blisters on his palms better. But it was worse today. He walked slower but made progress.
+	You are soft, Mika, he scolded himself, This deed is not for the weak but for the strong. And you are not yet strong.
+	He wrapped the handle of the bucket with blades of grass to make it softer but it helped little. They bled and the pain from them was nearly constant. He had to stop for rest more often on the second day. He ate more of the food. Indeed there was not much of it left, but that was no matter. When he stopped for the day he caught a fish in the river with some line he brought in the satchel and cooked it over the fire. Again he felt his strength return.
+	Three more days passed in the same way. The soreness did not get better but he did get better at living with it. Now in the distance he could see the end of the plains because there were hills and the grass became more sparse. 
+	But he was lonely. He missed the people from his tribe. Missed seeing them each morning. He missed his friends. He missed his mother. He thought of them always. What they were doing. What gossip there was. What they were eating for supper. He even missed Mohe. When he returned he would challenge him to a round and show him what’s what. These thoughts passed the time but they made him very lonely and especially at night when there was nothing else around to distract him.
+	After the third day the fried cakes ran out and he relied on the fish in the river alone to nourish him. He made steady progress even as the landscape inclined. But on the third night he caught no fish, there were none, and that night he went to bed hungry and woke up the next morning with no strength even to fish let alone continue his journey.
+	How weak I am, Mika said aloud, what would my father say if he could see me now? You are not ready to do the thing I asked of you. You cry like a baby because your feet hurt and your palms bleed.
+	Mika lay in the grass feeling low and hungry and lonely for company. He was so hungry. Just a little nourishment and he would be good again. He could continue. Where were the fish? Why had the river not produced any for him? He sat up and looked towards the far mountains. So far away they were. They looked no closer than when he first began. The day ended and Mika had not made any progress and was low in spirit and very hungry. He slept with no fire that night.
+	He arose early the next morning and began the journey home. He followed the tracks he had made the entire way and felt a deep shame. His hunger never abated. He never caught any fish. Sometimes he found a bush with berries and they gave him some energy. He reached the place where the plains ended and the trees of the valley began. 
+	It was late afternoon when he rounded the bend and saw the familiar wooden walls that protected his village. Since it was day the gates were open and he walked in. Several of his friends saw him.
+	Where have you been? They asked, but Mika did not answer. He went to the summer hut he shared with his mother and found her there boiling beans over a fire. When she saw her son she gasped.
+	How thin you are. And weak. Come inside and rest. I will make you something to eat.
+	She prepared bread and salted meat and also dried peaches. He ate it all down as his mother looked on, worried but silent. In the corner she saw the empty bucket he had brought inside, but did not ask what it was for. When he was done she washed the blisters on his palms. By now it was evening and the stars had begun to appear overhead.
+	Mika lay down. His mother gave him a kiss on the forehead.
+	How does it feel now that you have done your father’s will?
+
+	That night Mika wept.
+
+
+	One of Mika’s chores every morning was to feed the chickens in the yard, but on this morning when he went out there with the bag of feed he did not see them. He did not hear them either so he went to the small shed with hay inside where they slept. Just outside he saw the same chicken who was in the sweat house the night his father died. It lay on its side without moving. Its black eyes were covered in a milky film. The boy knelt and looked inside the shed at the others. They were all dead.
+	He looked at the feed in the bag and saw that a few kernals were covered in a black fuzz. He found some kernals on the ground and discovered the same thing.
+	Mika ran into the center of the village where all the corn in the village was stored and saw people gathered. They all carried bags of corn and other dry goods. There was a sense of worry in the air as they showed one another the contaminated grains and debated about what it could be. Mika recognized the same black fuzz on all their food.
+	Yonaguska was in charge of the dry good storage in the village he was duly fetched. When he arrived he inspected the grains and  frowned deeply. He told one of the boys to fetch Kulsathee and the other elders. Then he led the group into the graineries where all the corn was kept. There was a central place for it but every person had access to it and could take from it whatever they needed.
+	It was dark inside but with some of the light from the door it was still plain all the corn inside was also contaminated.
+	When the elders arrived they were shown the grains. They also frowned. Then one of Mika’s neighbors spoke up.
+	My pigs ate of this food and now some are sick. Some are dead. What do we do now?
+	Others said the same thing of their own livestock. Mika told how he had discoverd his chickens. Though it made no sense, the black fuzz had seemed to appear overnight, as nobody had seen it before. By this time the group had grown to a hundred people, everyone carrying examples of contaminated food. Nothing seemed immune to it.
+	The elders next wanted to inspect the crops in the fields. As a group they went to the Western side of the village where there were large square plots of soil. Every other plot was planted with a particular crops since they rotated by season to not deplete the nutrients. There was mostly corn. Some beans. Peppers. Some squash and pumpkin. Potatoes. Tomatoes. Even spices like mint and cinnamon. From a distance the crops looked fine but upon inspection there was the same black mold growing.
+	A group of hunters returned at noon that day and they reported game in the forests had been found ill, just as the livestock had been. They brought examples of the mold growing on wild plants.
+	Panic had been increasing since the morning. Then there was a cry that came from the house of Ninovan and a mother ran through the village carrying Kanuna, her young boy. His skin was blue and there was no life in his eyes which were open. She found the group gathered by the storage buildings and lay him on the ground and asked for their help. Yaholo was fetched and looked the boy over. He said a few words of prayer but there was nothing to be done. He was gone. The mother of Kanuna said her son had eaten some bread and peaches this morning.
+	Then there were reports from others that some elderly become very sick after eating. Children too.
+	Kulsathee and the elders told everyone to avoid the food all around until it was determined safe to eat. Since nobody knew how to determine what was safe every kind of food was brought and inspected. The sick were asked what they had eaten that morning and the night before. Strangely it seemed potatoes were the only thing not contaminated by the mold so far and each family horded what they had of them in secret.
+	Yaholo was asked to perform rites of purification in order to cleanse the food. He consulted some old writings since that particular ritual had not been performed for generations. Though nobody truly believed in the words of the rite to do anything it gave the tribe hope and had value for that reason.
+	The potato crops were harvested early and kept secure in an isolated shed by Yonaguska. Each day they were rationed out to the families since every other food source was unsafe.
+	In the following days they discovered more crop contaminated by the black mold and livestock in the village and game in the wilds were found dead or dying. Of the tribe illness affected the elderly and the young more than the others. A very sick elder passed the second night. No other children died.
+	As the stores of potatoes grew scarce there was a growing panic among the people. Some families ran out faster than others and began to trade clothing and hunting equipment. Some who kept more potatoes than others profited greatly in those days.
+	Mika and his mother kept an average share of potatoes. They did without breakfast and supper and consumed a single one between them daily, cooking it slow in a pot of boiling water. A struggling father of four came to their hut that night and begged a single potato and at first Ama refused but pitied the man, who was a proud hunter, and gave him two.
+	Kulsathee called a meeting in the ceremonial grounds the following day and made it mandatory for every member of the tribe to attend. That night there was silence throughout the village as each family prayed to be saved from the blight.
+
+
+	Under the tree the people had gathered. The easy-going life of spring had been displaced by an anxiety for what was to come. Mika and his mother sat on the ground in silence. He looked around for his friends and saw Leoti and her family near the back. She tended to her baby brother on a blanket and when she saw him she waved. He then saw Tye and his family. Theirs was a large family and had been struggling to feed everyone.
+	The trunk and branches of the ancient tree provided some shade to the families though it bore no leaves. Once again Mika thought of his father and the thing that had been asked of him. Because of the panic in the village he had put it out of his mind, but now it came back to him. His failure came back. But now was not the time for such things. Mika understood this.
+	When the sun was directly overhead the elders emerged together from a large house and entered the ceremonial grounds. They wore beadwork and carried the staffs of tradition, which bore carvings of great deeds from the tribe’s history.
+	Kulsathee led the elders to the log bench and faced the entire group, perhaps three hundred of them. Everyone grew quiet in deference to the chief of peace. His old back was curved but he still carried the presence of a true leader. His voice boomed like the sound a large skin drum makes when it is struck.
+	You must know that a blight has come over our valley. It has affected our stores, our crops, our livestock. It has contaminated plants in the wilds and therefore has sickened game that roam our forests. The only thing not affected at this time are potatoes. Some of our people became ill and we lost some dear ones. This is why we gave counsel to cease eating any food we know to be contaminated or in danger to become contaminated.
+	We do not know the source of this blight. We do know it acts like a mold and spreads from contact with other contaminated foods. It seems to spread through all varieties of plant, grain, vegetable, and fruit, except potato. We do not know why potatoes are immune and we counsel you to take care and inspect what you eat. Although the blight does not spread via animals or people it can make you sick, or in the case of the sick or small ones, it can kill.
+	What can we do? A young father shouted. How can we feed our families when the potato stores are depleted?
+	Some nearby scolded the man for his disrespect but Kulsathee calmed them with a wave of his hand. He was not upset by the outburst.
+	Do not blame this man for his outburst. This good father has said what all of you want to say. I understand this well. Do not forget I am a father, and a grandfather, and soon to be a great grandfather!
+	The people laughed and Kulsathee gestured to his large family sat nearby. His grand-daughter rubbed her belly and smiled bashfully.
+	Fear not. Fear not because together we will overcome this blight. Myself and the elders have discussed many things over the past few days. We have taken counsel with the chief farmers and hunters among you in order to see what can be done. This is what we will do.
+	Every man who is able to hunt will tomorrow set off on a journey to the next valley. It is a five day journey from here and we do not believe the blight has spread that far. Thus we will enter the next valley to hunt deer, rabbit and other wild game. Accompanying this group will be a small group of women to gather fruits that can be dried and nuts and wild vegetables. There will also be a group of women whose job will be to dress the kills and salt them for the journey back. 
+	Because we want the hunters to hunt they will remain in the valley and we will set up a system of checkpoints whereby the kills will be delivered and passed onto the next. Then after a week the hunters will return for a break to see their families and to rest. Then we start again.
+	By doing this we will be able to store enough meat to last throughout the year. Through next winter. The days are now long but we must not forget they will not always be so. We must not forget that our Mother the Earth is kind but she is also harsh. Our people are strong and by working together will survive this blight. We will not starve.
+
+
+	The summer mornings were humid but today there was a gentle breeze that blew across the high grass in the meadow where Tye and Mika hunted together. They were stalking deer. Nearby, a small creek fed into a pond and this particular spot had been lucky to them several times before and they hoped it would be today. 
+	Tye strapped the decoy to his right arm and crawled flat on his stomach to the edge of the water. Then he lifted the mock deer head in a realistic way so that it could just be seen from afar.
+	Mika gave a shrill call when the deer was in the right spot and Tye bobbed its head up and down. Waiting for the deer sometimes took hours so when he became tired he would switch out arms. Being the decoy fell on Tye because Mika had the truer aim. The elder hunters had decided this during target practice and Tye did not resent that it was never him to kill the deer when he and Mika hunted together. He respected the elder huntsmen and knew someday his time would come.
+	As they waited Mika adjusted the tension on his bow and rolled the arrows that lay in the pile next to him. Today was a good day to hunt. The sky was clear. There had been thunderstorms the week before which made things harder, though they still met quota. But today was good, and this week they were well ahead of quota so far. The day before Mika had killed a doe and Tye killed two rabbits on their return to the camp.
+	There was a rustling in the grass close to the pond and Mika refocused and pulled his bow into a ready position, with the arrow already notched and resting against the wood. Tye had heard the sound also and adjusted his movements to not startle whatever it was that had made the sound.
+	Soon there was more rustling and then a large buck and doe appeared together at the edge of the pond. Two of them. They drank from the pond and did not seem to regard the decoy at all. This was good. It gave Mika more time to choose the best shot.
+	He raised up on his haunches so that his eyeline was level with the top of the grass. Without thinking he timed his breaths so they would not interfere with any potential shot that came.
+	The deer were not in the best position. Mika needed them to walk around the other side. As close as they were he could not risk moving even one inch from his spot. The sound would give him away.
+	After a few minutes the deer made their way around the other side of the pond. Mika saw the decoy bob and hoped Tye was strong enough to keep it aloft for however long it took. He knew from experience how difficult it was. But now the deer were faced broadside to Mika and he wasted no time and let the arrow fly. It struck the large buck hard just behind his foreleg.
+	Both deer sprung away as Mika prepared another shot. He wanted to get that doe before it got too far away. He readied the arrow and took a poor shot that missed and disappeared into the grass.
+	But then Tye rose from his spot near the pond, in the perfect position to hit the fleeing deer, took aim at the doe and shot. His aim was true and struck it mid-stride, causing it to collapse right there.
+	Wahooo! Tye shouted.
+	Mika stood upright and beamed at Tye, interlocking his fingers in the gesture of their friendship. He was happy for his friend.  Tye returned the gesture.
+	They each collected their gear and walked over to where the doe lay next to the pond. The buck they would have to track but they were pretty sure he wouldn’t get too far. Together they set to work field dressing the doe. With their flint knives they opened and gutted her and then stretched out the body in an upright angle so the blood would drain out. Tye tossed the entrails into the grass to be consumed by other animals.
+	Then they tracked the blood trail that led to the buck. He had made it further than they thought but was easily found in the grass a few hundred yards away. They dressed him out and bound him for the walk to camp. Then they hauled him together to where the doe was.
+	By now it was midday and they were hungry. They pulled some dried meat and fried potato cakes from the satchel and ate next to the pond. Because they were so famished the food tasted especially good today. They talked about their good fortune. These were good sized kills. This put them well ahead of the other hunting pairs for the week.
+	I never saw somebody go from decoy to kill shot with such speed, Mika said.
+	Tye downplayed the compliment but his pride was evident. 
+	It took the both of us, he said. Your kill shot set me up. All I had to do was aim and shoot.
+	Mika mocked his friend, All you had to do. They laughed.
+	After their meal they drank from their water bladders and then refilled them in the pond. With deer of this size it was going to be an arduous haul back to camp. Better to get it over with, Tye sighed. And they set off.
+	It was late afternoon before they were in sight of the camp. There were other groups of hunters returning also, but it seemed that once again Mika and Tye had the best luck. They were greeted by a group of young women who were in the middle of processing meat from the hunt two days ago. They giggled and pointed at the young hunters, too shy to speak to them. Mika and Tye exchanged glances and nodded as they passed.
+	Help came when they reached the center of the camp. A group of apprentice hunters took the doe and buck and dragged them to the processing tents to be strung up to dry, before being processed, cut for salting, then carried in packs to the first delivery checkpoint.
+	Mika and Tye smelled game roasting on a spit over the large fire in the center of camp. They cleaned themselves and joined the hunters there, some of whom rested on their backs, some napping arrowheads for the next days hunt, or sharpening their knives. All in cheerful mood. Things were going well.
+	The two hunters were welcomed like heroes even among their peers. They fed themselves and sat around the fire. Every night the topic was the day’s hunt, what each man had killed, how he did it, the best spots to find deer or other game. 
+	Word had already got around how fine Mika and Tye’s kills had been today. The hunters assumed it had been all Mika, but he quickly corrected them and told them all about his friend’s impressive feat. He rose in front of the fire and re-enacted the scene in detail. He described where Tye had been with the decoy, where the pond was, where he himself was, and then from which direction the deer approached. Everyone was impressed. Everyone was happy for their tribal brethren.
+	The three elder huntsmen came over to congratulate them.
+	Here is Mika, the boy with the bow. You have made us proud today.
+	It was Tye also. He killed the doe.
+	They smiled.
+	Well then. You have both made us proud. One day you will be warriors. This we know.
+	They each took Mika and Tye around the arms and shook them in the gesture of great respect. Then they told everyone to make sure to get rest because since they had met quota the following morning they would be returning to the village for a few days rest. Everyone cheered, and that night the exhausted hunters slept well and dreamt not about the hunt but about home and being reunited with their loved ones.
+
+
+	Because the hunters were so excited to be going home the journey took four days instead of five. When they rounded the hill and saw the wooden gates their hearts grew large and they quickened their pace even more. A lookout spotted them and let out a call through the village. They opened both gates and all the families met them there.
+	Mika’s mother was there, standing with his aunt and nephews. She hugged her son then looked him up and down. His skin was darker from long days in the sun. His hair matted and dirty from many days without cleaning. She ruffled his hair and kissed him on the forehead. He shied away from her touches, embarassed to be seen coddled by his mother. But she did it anyway.
+	My son, the hunter. The filthy hunter.
+	I swear he has grown by two inches, one of his aunts remarked.
+	Mika blushed.
+	I am happy to see you safe, my son. Everyone in the village now knows me as the mother of Mika, the boy with the bow, as they are saying. The hunter with the truest aim. I am proud to be your mother.
+	They walked home together and Mika told her about all the things he had done that week.
 
 [interaction with children of the village who treat him like a hero]
 
-That evening a feast was held with meat roasted on spits and potatoes boiled. The days of panic had passed when they found plenty of food in the neighboring valley. A stockpile of dried and salted meat had already been stored.
-
-There was dancing. There was a large circle where the young people sang together. The boys and girls sang and beat on skin drums and danced to the rhythmic music inside the circle. The girls sang songs about love. Leoti was there. She saw Mika but was very shy. She stood near him but did not look in his direction. When he saw her he touched her shoulder.
-
-They faced one another. Mika had never seen her so beautiful. Her dark, smooth hair draped down side of her deerskin dress, the light from the fire illuminating her soft cheeks. Hunting  in the valley did not make him nearly as nervous as he was around her.
-
-Hello, Leoti, Mika said. We returned today, from the valley.
-
-This I know.
-
-Then she walked away as if she were uninterested in speaking to him. But was that a smile on the corner of her mouth? In the dark it was hard to tell. Mika followed her.
-
-Leoti walked along the circumference of the ceremonial grounds. She walked slow and Mika kept behind. At some point she heard him and turned around.
-
-Are you stalking me, hunter?
-
-Mika turned red. Then he walked up and stood by her side. Leoti did not refuse his boldness. They walked together around the empty grounds. They said nothing to one another. There were only the sounds of the celebration on the other side and the light of the large bonfire that reached them by way of a dim glow.
-
-Finally Leoti spoke. You have grown stronger.
-
-Everyone keeps saying that. I don’t see how.
-
-It is true. Or maybe it is your reputation that makes you seem larger. Mika the great hunter. The savior of our tribe. The elders beam when they speak your name. The children tell stories about you like you are the hero in a legend. They play hunt in the forest and every boy wants to be Mika, the boy with the bow.
-
-I only do what has been asked of me.
-
-Leoti mocked him. So humble.
-
-They walked underneath the branches of the ancient tree and she sat against its trunk. Mika joined her there and they did not speak again for some time. But it was a good silence. And when he did at last turn to look at her in the firelight he could see in her eyes the thing they had shared so many times before. It was a sense of gentleness and belonging. Leoti was his and Mika was hers and life in the future was something for them to share.
-
-That night Mika went to sleep and dreamed of Leoti. Of her youthful beauty and tenderness. In his dreams they held one another under the tree. Then he kissed her on the lips and they merged into a single happy being, full of an all-knowing love. And then he gazed up where they sat and saw those branches which spiraled from the base of the ancient tree and all of a sudden remembered the things he had forgotten. He remembered the words of his father on his death bed and what had been asked of him.
-
-Then Mika woke. Above him the night sky was clear. His mother was asleep in the bed nearby. His bare feet planted on the cool earth flooring he sat there for some time. It came back like a bolt from a thundercloud. The tree, his father, the bucket, the failure of the journey, his tears. For the longest time he had forgotten about them. So long that he could no longer be sure that it had happened. Perhaps it never had.
-
-When the blight came there was no time to even consider such things as his father’s request. He had decided that himself. But not decided really. Everyone had been so afraid. Everyone had been so focused on coming up with a plan to survive through next winter. It was assumed Mika would help. Join in. And he did so. And look how well it had turned out so far. There was plenty again. They were going to be okay. Mika was a hero. His skills at hunting had inspired them all to be better, and now they were. He had so much to be happy for.
-
-And yet he was not happy. His success at hunting felt devoid of purpose. Meaningless. And this confused him greatly. The tribe loved him now. Families he barely knew now went out of their way to be kind to him. Children re-enacted the great kills he and Tye had achieved in the valley. More importantly the tribe had overcome the blight from the great stores of meat they gained by the work he and the other hunters did. And yet to him it was all like a tree that falls deep in the forest. Outward seeming strong, yet brittle to the touch and dead inside. A hollow thing.
-
-And his mother. Leoti. They were very proud and it was his happiness to make them happy. So why this feeling when he was reminded of the tree and his father and the thing that had been asked of him? Did he not want them to be happy? To be proud of him? Mika could not say.
-
-He went outside and walked along the rows of the houses. He heard the people sleeping in their homes. And in the forests he heard the animals and the chirping of the insects. And in the sky the stars far away and the moon low. In the ceremonial grounds the embers of the bonfire still burned. You could still smell the food but it did not make Mika hungry because had stuffed himself. Like everyone had. It was good. Everything was good and yet nothing was. Mika felt that to be true.
-
-Next to the house he shared with his mother was the storage shed. In what little light there was at this hour he entered and found the bucket, once again filled with refuse in the corner. He emptied it and took it outside and looked at it for a long time. He remembered how the handle had blistered his fingers before. There were still some strands of the grass he wrapped around the wood to protect him.
-
-~
-
-It was time for the hunters to return to the valley. That morning there was bustle as the men readied their hunting gear and women gathered provisions for the camp. The children could sense the solemnity and played quietly together. There were no smiles and laughter as there had been the day of their return. But there were many embraces and kisses to show their love to one another.
-
-Always before the journey back to the valley a small ceremony was held on the grounds underneath the tree. Yaholo anointed the hunters with oils and essense and spoke the words of their ancestors to hunt well and to be safe in their journey, both going there and coming back. Only the closest members of the family attended.
-
-And yet when Ama looked around the group she did not see her son Mika there. Others noticed him missing also and approached her.
-
-Where is Mika this morning? Where is the boy with the bow? A few of the elders asked. He should be a part of the blessing. It is important for him to be here.
-
-Some of Mika’s friends also noticed and looked around for their fellow hunter. Ama told them she would find her son and bring him there, at least in time for the departing meal.
-
-When she found her son he was kneeling next to the thin stream  that irrigated the homes nearby, filling his water bladder until it overflowed. Mika rose and faced her. Strapped around his waist was a satchel and it packed with dried deer meat and potato cakes from the celebration. She noticed it was hard for him to look her in the eyes, so she stood in front of him until he no choice.
-
-Why did you not attend the hunters ceremony this morning? It is important for you to be there and for others to see you there. For many reasons it is important. Do I have to explain it to you why it is important?
-
-I did not attend the ceremony for the hunters because I do not intend to hunt in the valley. And if I will not hunt then why should I attend the ceremony for the hunters.
-
-Ama saw the bucket next to the door of the shed, along with a few other tools for the journey.
-
-Is this because of what your father asked you to do?
-
-It is, Mika answered. For the first time he looked her directly in the eyes. He saw she regarded him with love but also suspicion.
-
-But you have already fulfilled his request. I remember when you left. I remember when you returned.
-
-Ama looked at her son as though she wasn’t sure she knew him anymore.
-
-No. I failed, mama. And in my dreams last night I was reminded of that failure. So I must try again. And not fail.
-
-But the people of this tribe depend upon you. You are the best hunter among them. And this is a time of survival. You know what has been decreed by the elders, by Kulsathee. Every able man to hunt. Remember the blight? Remember the panic? Those times are not in the past yet. Nothing is certain.
-
-I must obey my father. That is certain.
-
-You are mistaken. Your father was not in his right mind, Mika. He was sick. It was not him that spoke to you that night. It was the fever. Please understand that. Whatever it was, it was from madness caused by the fever. Please don’t turn your back on your tribe during this crucial time. They are your people. I will always love you as my son but I will not support this behavior. I cannot support it.
-
-With these words Mika turned to face his mother. Her words were stern. Her face resolute. Mika saw that he was truly alone.
-
-He picked his things from the ground, his flint knife, the bucket whose handle was wrapped with a thick layer of grass. He tucked the knife in his satchel and gripped the bucket in his left hand. He walked away. 
-
-After the ceremony the hunters and their wives and children ate together in the yard. There was cooked game, potato cakes. As Mika went by on the path he smelled the food and watched them. His friend Tye saw him and waved him over to join them. Mika did not go. Tye was confused and interlocked his fingers in the gesture of their friendship. Mika did not return the gesture.
-
-Though you are my friend, I must go alone.
-
-He avoided everyone else by keeping his head down. He passed the circle of elders who gathered near the home of Kulsathee daily to smoke and talk about the old days. But he did not look in their direction, though he knew they saw him walking by.
-
-Though I honor you, I must go alone.
-
-He saw Leoti among her friends near the creek. They were cleaning deer skins. She saw him and stopped working. The other girls noticed and teased her. But Mika did not approach. He felt that to speak to her now might sway him from the journey. He was stronger than he was before, but did not think he was strong enough to resist her power over him.
-
-Though you have my heart, I must go alone.
-
-When Leoti realized Mika would not speak to her she was clearly hurt and returned to the work. From time to time she looked towards the road in hope that he would return though he did not.
-
-At the Northern gate stood Gawoni and a few other lookouts. They looked bored standing there with nothing to do in these times of peace. A couple of them amused themselves with games of dice.
-
-Though the gates were open because of it being daytime, Mika stopped when he saw them there. He felt he should say goodbye to someone at least. And there was no chance they would sway him from the journey he must take.
-
-Hello again, friends.
-
-Hello, Mika. Why are you not with the other hunters? They are leaving soon, though by the Southern gates.
-
-I am not going with them.
-
-But where is your bow?
-
-I did not bring it with me.
-
-One of the lookouts, someone Mika did not know, spoke to him.
-
-But you are the boy with the bow, the greatest hunter among us. You and Tye are responsible for the majority of the food that has been gathered since the blight. Why do you not hunt?
-
-Mika acknowledged the truth of what he said and then answered, I must do what my father has asked of me. When that is done, then will I pick up my bow again.
-
-The lookouts saw the bucket he carried and whispered among themselves. By their snears he saw they resented him for abandoning the tribe in this time of need. For not doing obeying the decree of the elders.
-
-Farewell to you then, boy with the bucket, Gawoni said. The other lookouts laughed at that clever turn of phrase, repeating it among themselves and pointing.
-
-Mika continued outside the gates and onto the dirt path that led out of the village. He did not turn back to address their taunts, which continued until he rounded the rock bend and was therefore out of earshot.
-
-~
-
-The grass grew thin at this altitude from the hard, partially-frozen soil on the high plains. The river he always kept on his left side had become narrower and shallower, its rich sediment bottom had become polished stones. Its water ran clear and was very cold. Still the far mountains loomed on the horizon, obscured in a blue, atmospheric haze. After three days journey Mika had at last reached the point where he gave up before.
-
-Next to the river bank he found the old campsite. Rain seldom fell at this altitude, so there were still ashen remnants of the last fire he built. He collected some twigs and chopped some bushes for kindling and fuel.
-
-As before his food had already run out. Though he had rationed it with care he did not have enough space in the satchel to carry more. But he was not the same boy who had been out here before. He was strong. He was a hunter.
-
-Nearby there were some marmot holes and he patiently waited for them to emerge, knife in hand. Marmots, who live in the ground, are particuarly sensitive to footsteps so he was careful to crawl to the spot. Hours passed and nothing appeared. By now it was getting dark.
-
-No food for you tonight.
-
-In the solitude of the journey he had begun speaking to himself for company. At first it was strange to do, but he had gotten used to hearing his voice and it did make him feel less alone.
-
-He went to the marmot hole and stomped his foot. Then he got down and put his ear to the ground. There was no movement.
-
-Likely an abandoned hole. Makes sense. This is no place for rodents.
-
-Mika put food out of his mind and started a fire. By now the sun was just above the Western horizon and a vivid sheet of red stretched into the darkness there. The first stars had appeared. He went to the river to wash the day’s grime from his face and upper body. When he reached his hand into that cold water he felt something move.
-
-Out of instinct he grasped around underneath the water and felt it again. A fish. Then another. But they were too slippery for him to grab. Luckily he had brought some netting, even though the river had not yielded any fish at home since the blight. He cast the netting wide in the same spot and dragged it deep. When he pulled it out of the water there were two trout squirming around. Upon a rock he cleaned the fish with his knife and skewered them with a twig. Then he roasted both on the fire. Then he ate. It was the best fish he ever tasted. The second he saved for the next day since he did not think his luck would last. It would keep that long.
-
-With his belly full Mika bedded down. He gazed up at the beauty of that clear, dark night and thought about all his loved ones back home. Before long he was asleep and did not wake again until morning.
-
-Mika walked for a long time. The journey through the plains had been hard but it was nothing compared to the mountainous landscape that enveloped him. It was harsh, lifeless. The only movement here at all was the streaming of the river and a wind that never ceased. 
-
-The bucket he carried no longer gave him blisters as it had before. Now on both hands there were callouses as tough as leather. Though he did keep the handle wrapped in grass. He also had a good idea to put kindling and fuel wood in the bucket for the journey to the mountain. Though there were shrubs and small trees he knew he would not be able to count on them as he climbed. 
-
-His luck with the fish had not run out. Without fail he caught a couple each night and cooked them on the fire. They nourished him on the journey and he was grateful.
-
-It was hard for Mika to gauge how much time he had spent out here. Time did not seem to pass the same as in the valley. There was daylight and evening, and the sun rose and the sun went down, and yet he discovered that at any particular time he could only remember few days before today. Time blurred. But there were other ways to tell that some amount of time had passed. He knew he had lost weight because his ribs were now visible. That had not been true for many years. 
-
-Mika did not think about home while he walked. That he would not allow himself to do, remembering the loneliness and how it had overcome him before. He spoke aloud to keep it at bay. But the things he spoke were not merely for diversion. They were to keep himself focused on the journey. I am on the path, he repeated whenever he was particularly sad, I am on the path.
-
-One afternoon there was a moment when all Mika could hear was the whistle of the wind around a few boulders. He then saw the river was gone. His first thought was that he had lost it by not paying attention. By letting his mind become unfocused. He sat on the ground and panicked.
-
-But as he sat there he heard the muffled sound of water flowing underground. He placed his ear against the rocks. The sound grew louder. Mika then scanned the area for any kind of opening. He saw nothing apparent. He backtracked and found the spot where the river emerged from a low fissure in the side of the mountain. There was no room for a person to fit inside, so Mika continued up the mountain, making sure he could always hear the flowing water under his feet.
-
-He came to a plateau where the rocks leveled out. Above him an enormous outcropping blocked out any sunlight and shadowed the entire space. At the other end Mika saw an opening where light returned. It was cold here and a harsh wind whipped through the funnel the outcropping formed. Mika put on his deerskin shirt and folded his arms together, the bucket beating against his thigh. He entered and let his eyes become accustomed to the lack of sunlight.
-
-The sound of the river was loud. It echoed off the high walls and reverberated into echoes. Mika walked to the middle of the plateau and came to a wide chasm there. The dark of the shadows grew deeper as he peered into it. There was no bottom. Yet there was where the sound of the river came from. By the smooth rush the water made he knew it must be deep there. Likely he was near the source. He picked up a small stone and dropped it down there and listened for a splash but with the roar of the water he could not tell.
-
-Mika looked again at the opening on the other end of the plateau. He walked along the chasm and saw what he was looking for. A glint of sunlight blinded him and he held up his hand. His destination.
-
-Mika surveyed the width of the chasm. It was easily thirty feet across. Impossible to jump. Perhaps he had made a mistake after all. Perhaps there had been a better approach up the mountain after all. He retraced his footsteps outside to where the plateau dropped off. Along the mountainside shear cliffs rose to great heights. Impossible to climb. Mika walked back to the edge and sat down near it. 
-
-There he meditated on the opening on the other side. The sunlight shining through the opening on the other side. He listened to the roar of the river. The roar he heard at the bottom of the chasm, but could not see. After some time he rose and then tied a piece of twine from the handle of the bucket around his arm. He tugged on it to make sure it was secure and then walked right up to the ledge of the chasm. Then he fell in.
-
-~
-
-The boy hit the frigid surface of the water and sank like a rock to the river bottom. When his foot touched on hard ground he pushed against it with all his strength and fought his way back up. The water was very cold but lucky for him it was also deep in this spot. He emerged and his gasping for breath echoed up the high, narrow walls of the chasm. The bucket strapped to his wrist filled with water and began to take him downstream. Quickly he lifted the bucket out of the water held it aloft with one arm as he swam with the other against the current.
-
-Only now did it dawn on him that there might be no exit down here. His decision to leap moments ago had been based on a feeling. Not reason. All around him was darkness and the cold. He fought the current anyway and made slow progress.
-
-When his eyes grew accustomed to the darkness he spotted a small sliver of light, though it was hard to tell how far away it was. That gave him some hope and he swam toward it.
-
-It may only be a trick of the mind, he thought. 
-
-The chasm widened. He knew this because the echoes of the river grew longer. The light he saw was very far away. It was not a small light at all but appeared to be coming from the mouth of a large cave. The arm which held the bucket grew tired so he swapped it with his swimming arm and did so several more times before he reached a beach where the cave was. As soon as he felt his feet touch bottom he stood and walked the rest of the way.
-
-The light illuminated the wet, smooth sides of the chasm walls. This same water had been flowing for thousands of years. He wondered how few had seen what he now saw.
-
-The entrance of the cave was high. At its mouth Mika sat on his haunches and took some time to rest. Then he picked up the bucket and continued on the path. The light was not close. The walls of the cave were jagged, not smooth like the walls where the river ran. He was careful not to brush against them. He tried to keep near the center of the path. 
-
-Mika was tired, very tired. And cold. The path through the cave was going up and made his progress slow. The sound of the rushing water grew faint as he went. The light brighter. And soon the incline leveled off and he went around one last bend.
-
-There he could see the exit and the light was coming from the opening on the other side the chasm. But there was another way to go. To the left was another cave. The light did not enter it. As he approached his eyes were drawn into those shadows. Something was there. Something alive was just out of sight in that darkness. He heard its breaths and the closer he came he saw its eyes reflecting light from the exit. But he could not see its shape. Then it saw him and Mika panicked. He removed the flint knife from his satchel and stood still.
-
-Do not be afraid, traveler, a voice spoke to him from the darkness, its voice a low growl, much like the sounds of the brown bears in the hills of the valley near his home.
-
-Then he saw its shape emerge from those shadows. It was a brown bear, reared up on its hind legs, but Mika knew that it was really no bear at all, and gripped his knife to be prepared.
-
-Please, put down your weapon, traveler, the bear said, Come with us inside the cave. We have fire to keep you warm. We have food to fill your belly. So many travelers have come this way before. All travelers must join us in time.
-
-It came closer.
-
-Stay back! Mika shouted, Return to the place you came from.
-
-It flashed its teeth and reared its claws but came no closer to him. Then the bear, who was no bear at all, backed away until it was once more two eyes glowering in the darkness. Mika sheathed his knife and walked slowly past it and tempted though he was, he did not look once in its direction.
-
-He emerged from a small exit on the other side of the chasm. The light shone bright from opening. He glanced back at the other side of the chasm, where he had leap in. Beyond he saw the stretch of the high plains to the horizon, and beyond that was home. Mika kept going through the opening and came to a wide open meadow covered with overgrown grass and the dead, ancient trees like the one in their village. But the most impressive sight was a broad lake in th middle, as large as the entire village back home. Rays of sunlight gleamed on the surface of the still water and reflected into his eyes.
-
-Mika jumped down from the rock and entered the meadow. Though there seemed to be no life here now he saw the remnants of an old civiliation. Crumbled rock walls and the foundations of buildings were interpersed throughout the petrified forest. Mika wondered who they were, what happened to them, and whether they had lived during the time of the ancient trees.
-
-When he reached the edge of the lake he put his toe in and was surprised to find that it was warm. He tore off his wet clothes and set them on the beach to dry out. Then he went for a swim. The water was clear and he could see the small rock bottom. His feet sank into the rocks and they were smooth so it did not hurt. There were small trout swimming around his legs and nosing at his feet. He swam out until he could no longer see the bottom. The water here was a deep, bright blue. Though still warm. He swam back to the beach where his clothes were now dry and put them back on.
-
-Next Mika pulled the netting from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
-
-~
-
-With twigs and fallen limbs from the trees in the meadow and twine he wove from the high grass Mika constructed a narrow bridge that was light enough for him to drag to the chasm ledge and then slide across the wide gap. When he was sure it was secure enough he cautiously placed a single foot on it. Then another. And another. When he reached the midway point, the point he was most in danger, he felt the bridge bend under his weight and quickly hopped to the other side. Then he breathed a sigh of relief and walked to the edge of the plateau where he first ascended.
-
-The expanse of the high plains stretched to the horizon before him and he closed his eyes and thought about the valley. His home. He thought about how it would be when he rounded the bend at last and saw the wooden gates of his village again. This gave him strength to begin the journey and he climbed down the rocky slope in the same place he went before.
-
-The first day he felt the weight of the bucket of water in his arms. He was not used to the burden of it and the joints in his elbows and shoulders ached. Every half hour he would switch arms. While building the bridge he had also constructed a small lid to fit over the bucket so the water would not spill out. He was glad to have thought of that before heading off. The water sloshed against the sides in rhythm with his footsteps.
-
-The abundance of trout he enjoyed while at the lake vanished though he was still able to catch a fish or two each day. The river granted him that at least. It was not enough to put meat on his bones but it gave him energy to make progress and for that he was grateful.
-
-Mika walked and his thought drifted to his father and the people of the village. It did not make him lonely anymore to think about them. He was not lonely. He welcomed the silence of the plains, the simple pleasure of placing one foot in front of the other, measuring his progress by noting how minute landmarks on the horizon grew larger each day. There was a peace in his heart now that he was doing what his father had asked of him, a peace he had not felt since he was a young child, and that peace seemed to extend also to the landscape itself. No longer did the plains seem austere and hostile to him. The hard ground was not uncomfortable. No longer did it blister his feet. He welcomed the silence of the wind and felt gratitude for the vast emptiness of the plains.
-
-Time passed but Mika was not aware of it in a conscious way. Soon the rocky, high plains turned into the rolling grasslands and finally the river valley that was the place of his birth. The sight of the forest appearing was like a vision to him. The soil here rich and soft. He knew he was close to home when he began to see the dark blight on the fallen fruits and decayed animals that had died from it.
-
-And then, one late afternoon, he rounded the small bend in the path and in the distance saw the familiar wooden gates of his village. It was just as he imagined on top of the mountain plateau. His heart grew full and tears welled in his eyes at the site of his home.
-
-He came to the closed gates and stood by and rested next to it. He was too exhausted to shout for them to open the gates. But soon one of the lookouts saw him. And his eyes grew wide when he recognized who it was.
-
-He has returned! the lookout shouted to someone on the other side of the gate. Mika has come back at last.
-
-You lie.
-
-See for yourself.
-
-There was some movement on the other side and then another lookout appeared at the post.
-
-He does not look the same. He does not look strong as he did before. I can see his ribs.
-
-Then the first lookout shouted to Mika.
-
-Boy with the bucket. Welcome. Have you returned from your journey then?
-
-I have. Open the gates for me.
-
-There was more movement and then the sound of the gate as it  unlatched. They swung open and a few other lookouts, including Gawoni stood there. They looked at Mika as if he were a stranger to them.
-
-Like a skeleton, one of them remarked.
-
-Mika has returned, Gawoni said, run and tell the people. They will want to know our great hunter has returned, such as he is.
-
-There were no smiles on their faces. Mika noticed they were polite but the familarity they had once greeted him with was gone.
-
-The path through the village was lively with people from the tribe. This was a period when the hunters were at home. Mika smelled the cooked meat and salivated. He went through the village with his head down. He was not used to being around them. He was not used to human voices. From all sides he felt their eyes upon him. In silence he listened to the things they said.
-
-What happened to him out there?
-
-A miracle. I thought he was dead. Yet here he is.
-
-But where is the rest of him? All I see are skin and bones.
-
-Some laughed at that.
-
-What does he have in the bucket?
-
-What is he doing?
-
-Mika saw his friend Tye. He saw Mohe and Leoti too. All his friends. The elders. Yaholo and Kulsathee. They all stared at him with pitying, unbelieving eyes. But he did not speak to them, nor they to him. Then, near the back of the crowd, he saw his mother approach with her sisters. Her face when she saw him dropped and there were tears welling in her eyes.
-
-As he walked a crowd grew until it was fifty strong. They kept their distance but followed just behind. 
-
-He went along the path through the village and approached the ceremonial grounds where the ancient tree stood. The group did not enter the grounds with Mika. Instead they stood around the small fence that outlined it and gossiped to one another in hushed voices. 
-
-Mika ignored them all and walked up to the ancient tree. When he reached it he lifted off the makeshift cover from the bucket and gently poured its contents into the ground at the base of the tree. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited.
-
-~
-
-It was an overcast day in early autumn. The pack of hunters came to rest at a high ridge overlooking a meadow. This was the spot where the scout, a boy nicknamed Turkeyfoot, had discovered a herd of doe the morning before. Twenty strong, no lie, he said. There was a creek that ran through the middle of the meadow. It ran with clear, cold water. No doubt that is what brought them here. Mist-sodden leaves from the surrounding oak and maple trees patchworked the meadow floor in shades of red, orange, yellow, and brown.
-
-Turkeyfoot pointed out the spot he saw them emerge from on his walk. The elder huntsmen surveyed the area and decided that instead of hunting in pairs all the hunters would work together in what was called the *deer drive*, which is a method of hunting that uses carefully arranged hunters to push a herd of deer into an area where they have no escape and therefore are easily be picked off with bow and arrow.
+	That evening a feast was held with meat roasted on spits and potatoes boiled. The days of panic had passed when they found plenty of food in the neighboring valley. A stockpile of dried and salted meat had already been stored.
+	There was dancing. There was a large circle where the young people sang together. The boys and girls sang and beat on skin drums and danced to the rhythmic music inside the circle. The girls sang songs about love. Leoti was there. She saw Mika but was very shy. She stood near him but did not look in his direction. When he saw her he touched her shoulder.
+	They faced one another. Mika had never seen her so beautiful. Her dark, smooth hair draped down side of her deerskin dress, the light from the fire illuminating her soft cheeks. Hunting  in the valley did not make him nearly as nervous as he was around her.
+	Hello, Leoti, Mika said. We returned today, from the valley.
+	This I know.
+	Then she walked away as if she were uninterested in speaking to him. But was that a smile on the corner of her mouth? In the dark it was hard to tell. Mika followed her.
+	Leoti walked along the circumference of the ceremonial grounds. She walked slow and Mika kept behind. At some point she heard him and turned around.
+	Are you stalking me, hunter?
+	Mika turned red. Then he walked up and stood by her side. Leoti did not refuse his boldness. They walked together around the empty grounds. They said nothing to one another. There were only the sounds of the celebration on the other side and the light of the large bonfire that reached them by way of a dim glow.
+	Finally Leoti spoke. You have grown stronger.
+	Everyone keeps saying that. I don’t see how.
+	It is true. Or maybe it is your reputation that makes you seem larger. Mika the great hunter. The savior of our tribe. The elders beam when they speak your name. The children tell stories about you like you are the hero in a legend. They play hunt in the forest and every boy wants to be Mika, the boy with the bow.
+	I only do what has been asked of me.
+	Leoti mocked him. So humble.
+	They walked underneath the branches of the ancient tree and she sat against its trunk. Mika joined her there and they did not speak again for some time. But it was a good silence. And when he did at last turn to look at her in the firelight he could see in her eyes the thing they had shared so many times before. It was a sense of gentleness and belonging. Leoti was his and Mika was hers and life in the future was something for them to share.
+	That night Mika went to sleep and dreamed of Leoti. Of her youthful beauty and tenderness. In his dreams they held one another under the tree. Then he kissed her on the lips and they merged into a single happy being, full of an all-knowing love. And then he gazed up where they sat and saw those branches which spiraled from the base of the ancient tree and all of a sudden remembered the things he had forgotten. He remembered the words of his father on his death bed and what had been asked of him.
+	Then Mika woke. Above him the night sky was clear. His mother was asleep in the bed nearby. His bare feet planted on the cool earth flooring he sat there for some time. It came back like a bolt from a thundercloud. The tree, his father, the bucket, the failure of the journey, his tears. For the longest time he had forgotten about them. So long that he could no longer be sure that it had happened. Perhaps it never had.
+	When the blight came there was no time to even consider such things as his father’s request. He had decided that himself. But not decided really. Everyone had been so afraid. Everyone had been so focused on coming up with a plan to survive through next winter. It was assumed Mika would help. Join in. And he did so. And look how well it had turned out so far. There was plenty again. They were going to be okay. Mika was a hero. His skills at hunting had inspired them all to be better, and now they were. He had so much to be happy for.
+	And yet he was not happy. His success at hunting felt devoid of purpose. Meaningless. And this confused him greatly. The tribe loved him now. Families he barely knew now went out of their way to be kind to him. Children re-enacted the great kills he and Tye had achieved in the valley. More importantly the tribe had overcome the blight from the great stores of meat they gained by the work he and the other hunters did. And yet to him it was all like a tree that falls deep in the forest. Outward seeming strong, yet brittle to the touch and dead inside. A hollow thing.
+	And his mother. Leoti. They were very proud and it was his happiness to make them happy. So why this feeling when he was reminded of the tree and his father and the thing that had been asked of him? Did he not want them to be happy? To be proud of him? Mika could not say.
+	He went outside and walked along the rows of the houses. He heard the people sleeping in their homes. And in the forests he heard the animals and the chirping of the insects. And in the sky the stars far away and the moon low. In the ceremonial grounds the embers of the bonfire still burned. You could still smell the food but it did not make Mika hungry because had stuffed himself. Like everyone had. It was good. Everything was good and yet nothing was. Mika felt that to be true.
+	Next to the house he shared with his mother was the storage shed. In what little light there was at this hour he entered and found the bucket, once again filled with refuse in the corner. He emptied it and took it outside and looked at it for a long time. He remembered how the handle had blistered his fingers before. There were still some strands of the grass he wrapped around the wood to protect him.
+
+
+	It was time for the hunters to return to the valley. That morning there was bustle as the men readied their hunting gear and women gathered provisions for the camp. The children could sense the solemnity and played quietly together. There were no smiles and laughter as there had been the day of their return. But there were many embraces and kisses to show their love to one another.
+	Always before the journey back to the valley a small ceremony was held on the grounds underneath the tree. Yaholo anointed the hunters with oils and essense and spoke the words of their ancestors to hunt well and to be safe in their journey, both going there and coming back. Only the closest members of the family attended.
+	And yet when Ama looked around the group she did not see her son Mika there. Others noticed him missing also and approached her.
+	Where is Mika this morning? Where is the boy with the bow? A few of the elders asked. He should be a part of the blessing. It is important for him to be here.
+	Some of Mika’s friends also noticed and looked around for their fellow hunter. Ama told them she would find her son and bring him there, at least in time for the departing meal.
+	When she found her son he was kneeling next to the thin stream  that irrigated the homes nearby, filling his water bladder until it overflowed. Mika rose and faced her. Strapped around his waist was a satchel and it packed with dried deer meat and potato cakes from the celebration. She noticed it was hard for him to look her in the eyes, so she stood in front of him until he no choice.
+	Why did you not attend the hunters ceremony this morning? It is important for you to be there and for others to see you there. For many reasons it is important. Do I have to explain it to you why it is important?
+	I did not attend the ceremony for the hunters because I do not intend to hunt in the valley. And if I will not hunt then why should I attend the ceremony for the hunters.
+	Ama saw the bucket next to the door of the shed, along with a few other tools for the journey.
+	Is this because of what your father asked you to do?
+	It is, Mika answered. For the first time he looked her directly in the eyes. He saw she regarded him with love but also suspicion.
+	But you have already fulfilled his request. I remember when you left. I remember when you returned.
+	Ama looked at her son as though she wasn’t sure she knew him anymore.
+	No. I failed, mama. And in my dreams last night I was reminded of that failure. So I must try again. And not fail.
+	But the people of this tribe depend upon you. You are the best hunter among them. And this is a time of survival. You know what has been decreed by the elders, by Kulsathee. Every able man to hunt. Remember the blight? Remember the panic? Those times are not in the past yet. Nothing is certain.
+	I must obey my father. That is certain.
+	You are mistaken. Your father was not in his right mind, Mika. He was sick. It was not him that spoke to you that night. It was the fever. Please understand that. Whatever it was, it was from madness caused by the fever. Please don’t turn your back on your tribe during this crucial time. They are your people. I will always love you as my son but I will not support this behavior. I cannot support it.
+	With these words Mika turned to face his mother. Her words were stern. Her face resolute. Mika saw that he was truly alone.
+	He picked his things from the ground, his flint knife, the bucket whose handle was wrapped with a thick layer of grass. He tucked the knife in his satchel and gripped the bucket in his left hand. He walked away. 
+	After the ceremony the hunters and their wives and children ate together in the yard. There was cooked game, potato cakes. As Mika went by on the path he smelled the food and watched them. His friend Tye saw him and waved him over to join them. Mika did not go. Tye was confused and interlocked his fingers in the gesture of their friendship. Mika did not return the gesture.
+	Though you are my friend, I must go alone.
+	He avoided everyone else by keeping his head down. He passed the circle of elders who gathered near the home of Kulsathee daily to smoke and talk about the old days. But he did not look in their direction, though he knew they saw him walking by.
+	Though I honor you, I must go alone.
+	He saw Leoti among her friends near the creek. They were cleaning deer skins. She saw him and stopped working. The other girls noticed and teased her. But Mika did not approach. He felt that to speak to her now might sway him from the journey. He was stronger than he was before, but did not think he was strong enough to resist her power over him.
+	Though you have my heart, I must go alone.
+	When Leoti realized Mika would not speak to her she was clearly hurt and returned to the work. From time to time she looked towards the road in hope that he would return though he did not.
+	At the Northern gate stood Gawoni and a few other lookouts. They looked bored standing there with nothing to do in these times of peace. A couple of them amused themselves with games of dice.
+	Though the gates were open because of it being daytime, Mika stopped when he saw them there. He felt he should say goodbye to someone at least. And there was no chance they would sway him from the journey he must take.
+	Hello again, friends.
+	Hello, Mika. Why are you not with the other hunters? They are leaving soon, though by the Southern gates.
+	I am not going with them.
+	But where is your bow?
+	I did not bring it with me.
+	One of the lookouts, someone Mika did not know, spoke to him.
+	But you are the boy with the bow, the greatest hunter among us. You and Tye are responsible for the majority of the food that has been gathered since the blight. Why do you not hunt?
+	Mika acknowledged the truth of what he said and then answered, I must do what my father has asked of me. When that is done, then will I pick up my bow again.
+	The lookouts saw the bucket he carried and whispered among themselves. By their snears he saw they resented him for abandoning the tribe in this time of need. For not doing obeying the decree of the elders.
+	Farewell to you then, boy with the bucket, Gawoni said. The other lookouts laughed at that clever turn of phrase, repeating it among themselves and pointing.
+	Mika continued outside the gates and onto the dirt path that led out of the village. He did not turn back to address their taunts, which continued until he rounded the rock bend and was therefore out of earshot.
+
+
+	The grass grew thin at this altitude from the hard, partially-frozen soil on the high plains. The river he always kept on his left side had become narrower and shallower, its rich sediment bottom had become polished stones. Its water ran clear and was very cold. Still the far mountains loomed on the horizon, obscured in a blue, atmospheric haze. After three days journey Mika had at last reached the point where he gave up before.
+	Next to the river bank he found the old campsite. Rain seldom fell at this altitude, so there were still ashen remnants of the last fire he built. He collected some twigs and chopped some bushes for kindling and fuel.
+	As before his food had already run out. Though he had rationed it with care he did not have enough space in the satchel to carry more. But he was not the same boy who had been out here before. He was strong. He was a hunter.
+	Nearby there were some marmot holes and he patiently waited for them to emerge, knife in hand. Marmots, who live in the ground, are particuarly sensitive to footsteps so he was careful to crawl to the spot. Hours passed and nothing appeared. By now it was getting dark.
+	No food for you tonight.
+	In the solitude of the journey he had begun speaking to himself for company. At first it was strange to do, but he had gotten used to hearing his voice and it did make him feel less alone.
+	He went to the marmot hole and stomped his foot. Then he got down and put his ear to the ground. There was no movement.
+	Likely an abandoned hole. Makes sense. This is no place for rodents.
+	Mika put food out of his mind and started a fire. By now the sun was just above the Western horizon and a vivid sheet of red stretched into the darkness there. The first stars had appeared. He went to the river to wash the day’s grime from his face and upper body. When he reached his hand into that cold water he felt something move.
+	Out of instinct he grasped around underneath the water and felt it again. A fish. Then another. But they were too slippery for him to grab. Luckily he had brought some netting, even though the river had not yielded any fish at home since the blight. He cast the netting wide in the same spot and dragged it deep. When he pulled it out of the water there were two trout squirming around. Upon a rock he cleaned the fish with his knife and skewered them with a twig. Then he roasted both on the fire. Then he ate. It was the best fish he ever tasted. The second he saved for the next day since he did not think his luck would last. It would keep that long.
+	With his belly full Mika bedded down. He gazed up at the beauty of that clear, dark night and thought about all his loved ones back home. Before long he was asleep and did not wake again until morning.
+	Mika walked for a long time. The journey through the plains had been hard but it was nothing compared to the mountainous landscape that enveloped him. It was harsh, lifeless. The only movement here at all was the streaming of the river and a wind that never ceased. 
+	The bucket he carried no longer gave him blisters as it had before. Now on both hands there were callouses as tough as leather. Though he did keep the handle wrapped in grass. He also had a good idea to put kindling and fuel wood in the bucket for the journey to the mountain. Though there were shrubs and small trees he knew he would not be able to count on them as he climbed. 
+	His luck with the fish had not run out. Without fail he caught a couple each night and cooked them on the fire. They nourished him on the journey and he was grateful.
+	It was hard for Mika to gauge how much time he had spent out here. Time did not seem to pass the same as in the valley. There was daylight and evening, and the sun rose and the sun went down, and yet he discovered that at any particular time he could only remember few days before today. Time blurred. But there were other ways to tell that some amount of time had passed. He knew he had lost weight because his ribs were now visible. That had not been true for many years. 
+	Mika did not think about home while he walked. That he would not allow himself to do, remembering the loneliness and how it had overcome him before. He spoke aloud to keep it at bay. But the things he spoke were not merely for diversion. They were to keep himself focused on the journey. I am on the path, he repeated whenever he was particularly sad, I am on the path.
+	One afternoon there was a moment when all Mika could hear was the whistle of the wind around a few boulders. He then saw the river was gone. His first thought was that he had lost it by not paying attention. By letting his mind become unfocused. He sat on the ground and panicked.
+	But as he sat there he heard the muffled sound of water flowing underground. He placed his ear against the rocks. The sound grew louder. Mika then scanned the area for any kind of opening. He saw nothing apparent. He backtracked and found the spot where the river emerged from a low fissure in the side of the mountain. There was no room for a person to fit inside, so Mika continued up the mountain, making sure he could always hear the flowing water under his feet.
+	He came to a plateau where the rocks leveled out. Above him an enormous outcropping blocked out any sunlight and shadowed the entire space. At the other end Mika saw an opening where light returned. It was cold here and a harsh wind whipped through the funnel the outcropping formed. Mika put on his deerskin shirt and folded his arms together, the bucket beating against his thigh. He entered and let his eyes become accustomed to the lack of sunlight.
+	The sound of the river was loud. It echoed off the high walls and reverberated into echoes. Mika walked to the middle of the plateau and came to a wide chasm there. The dark of the shadows grew deeper as he peered into it. There was no bottom. Yet there was where the sound of the river came from. By the smooth rush the water made he knew it must be deep there. Likely he was near the source. He picked up a small stone and dropped it down there and listened for a splash but with the roar of the water he could not tell.
+	Mika looked again at the opening on the other end of the plateau. He walked along the chasm and saw what he was looking for. A glint of sunlight blinded him and he held up his hand. His destination.
+	Mika surveyed the width of the chasm. It was easily thirty feet across. Impossible to jump. Perhaps he had made a mistake after all. Perhaps there had been a better approach up the mountain after all. He retraced his footsteps outside to where the plateau dropped off. Along the mountainside shear cliffs rose to great heights. Impossible to climb. Mika walked back to the edge and sat down near it. 
+	There he meditated on the opening on the other side. The sunlight shining through the opening on the other side. He listened to the roar of the river. The roar he heard at the bottom of the chasm, but could not see. After some time he rose and then tied a piece of twine from the handle of the bucket around his arm. He tugged on it to make sure it was secure and then walked right up to the ledge of the chasm. Then he fell in.
+
+
+	The boy hit the frigid surface of the water and sank like a rock to the river bottom. When his foot touched on hard ground he pushed against it with all his strength and fought his way back up. The water was very cold but lucky for him it was also deep in this spot. He emerged and his gasping for breath echoed up the high, narrow walls of the chasm. The bucket strapped to his wrist filled with water and began to take him downstream. Quickly he lifted the bucket out of the water held it aloft with one arm as he swam with the other against the current.
+	Only now did it dawn on him that there might be no exit down here. His decision to leap moments ago had been based on a feeling. Not reason. All around him was darkness and the cold. He fought the current anyway and made slow progress.
+	When his eyes grew accustomed to the darkness he spotted a small sliver of light, though it was hard to tell how far away it was. That gave him some hope and he swam toward it.
+	It may only be a trick of the mind, he thought. 
+	The chasm widened. He knew this because the echoes of the river grew longer. The light he saw was very far away. It was not a small light at all but appeared to be coming from the mouth of a large cave. The arm which held the bucket grew tired so he swapped it with his swimming arm and did so several more times before he reached a beach where the cave was. As soon as he felt his feet touch bottom he stood and walked the rest of the way.
+	The light illuminated the wet, smooth sides of the chasm walls. This same water had been flowing for thousands of years. He wondered how few had seen what he now saw.
+	The entrance of the cave was high. At its mouth Mika sat on his haunches and took some time to rest. Then he picked up the bucket and continued on the path. The light was not close. The walls of the cave were jagged, not smooth like the walls where the river ran. He was careful not to brush against them. He tried to keep near the center of the path. 
+	Mika was tired, very tired. And cold. The path through the cave was going up and made his progress slow. The sound of the rushing water grew faint as he went. The light brighter. And soon the incline leveled off and he went around one last bend.
+	There he could see the exit and the light was coming from the opening on the other side the chasm. But there was another way to go. To the left was another cave. The light did not enter it. As he approached his eyes were drawn into those shadows. Something was there. Something alive was just out of sight in that darkness. He heard its breaths and the closer he came he saw its eyes reflecting light from the exit. But he could not see its shape. Then it saw him and Mika panicked. He removed the flint knife from his satchel and stood still.
+	Do not be afraid, traveler, a voice spoke to him from the darkness, its voice a low growl, much like the sounds of the brown bears in the hills of the valley near his home.
+	Then he saw its shape emerge from those shadows. It was a brown bear, reared up on its hind legs, but Mika knew that it was really no bear at all, and gripped his knife to be prepared.
+	Please, put down your weapon, traveler, the bear said, Come with us inside the cave. We have fire to keep you warm. We have food to fill your belly. So many travelers have come this way before. All travelers must join us in time.
+	It came closer.
+	Stay back, Mika said, Return to the place you came from.
+	It flashed its teeth and reared its claws but came no closer to him. Then the bear, who was no bear at all, backed away until it was once more two eyes glowering in the darkness. Mika sheathed his knife and walked slowly past it and tempted though he was, he did not look once in its direction.
+	He emerged from a small exit on the other side of the chasm. The light shone bright from opening. He glanced back at the other side of the chasm, where he had leap in. Beyond he saw the stretch of the high plains to the horizon, and beyond that was home. Mika kept going through the opening and came to a wide open meadow covered with overgrown grass and the dead, ancient trees like the one in their village. But the most impressive sight was a broad lake in th middle, as large as the entire village back home. Rays of sunlight gleamed on the surface of the still water and reflected into his eyes.
+	Mika jumped down from the rock and entered the meadow. Though there seemed to be no life here now he saw the remnants of an old civiliation. Crumbled rock walls and the foundations of buildings were interpersed throughout the petrified forest. Mika wondered who they were, what happened to them, and whether they had lived during the time of the ancient trees.
+	When he reached the edge of the lake he put his toe in and was surprised to find that it was warm. He tore off his wet clothes and set them on the beach to dry out. Then he went for a swim. The water was clear and he could see the small rock bottom. His feet sank into the rocks and they were smooth so it did not hurt. There were small trout swimming around his legs and nosing at his feet. He swam out until he could no longer see the bottom. The water here was a deep, bright blue. Though still warm. He swam back to the beach where his clothes were now dry and put them back on.
+	Next Mika pulled the netting from his satchel and caught a few trout. He collected enough twigs from the surrounding bushes and built a fire. There he roasted the fish and ate well. That night he slept on the beach. The first thing he did early the next morning was to fill the bucket with water from the lake. He filled it to the brim.
+
+
+	With twigs and fallen limbs from the trees in the meadow and twine he wove from the high grass Mika constructed a narrow bridge that was light enough for him to drag to the chasm ledge and then slide across the wide gap. When he was sure it was secure enough he cautiously placed a single foot on it. Then another. And another. When he reached the midway point, the point he was most in danger, he felt the bridge bend under his weight and quickly hopped to the other side. Then he breathed a sigh of relief and walked to the edge of the plateau where he first ascended.
+	The expanse of the high plains stretched to the horizon before him and he closed his eyes and thought about the valley. His home. He thought about how it would be when he rounded the bend at last and saw the wooden gates of his village again. This gave him strength to begin the journey and he climbed down the rocky slope in the same place he went before.
+	The first day he felt the weight of the bucket of water in his arms. He was not used to the burden of it and the joints in his elbows and shoulders ached. Every half hour he would switch arms. While building the bridge he had also constructed a small lid to fit over the bucket so the water would not spill out. He was glad to have thought of that before heading off. The water sloshed against the sides in rhythm with his footsteps.
+	The abundance of trout he enjoyed while at the lake vanished though he was still able to catch a fish or two each day. The river granted him that at least. It was not enough to put meat on his bones but it gave him energy to make progress and for that he was grateful.
+	Mika walked and his thought drifted to his father and the people of the village. It did not make him lonely anymore to think about them. He was not lonely. He welcomed the silence of the plains, the simple pleasure of placing one foot in front of the other, measuring his progress by noting how minute landmarks on the horizon grew larger each day. There was a peace in his heart now that he was doing what his father had asked of him, a peace he had not felt since he was a young child, and that peace seemed to extend also to the landscape itself. No longer did the plains seem austere and hostile to him. The hard ground was not uncomfortable. No longer did it blister his feet. He welcomed the silence of the wind and felt gratitude for the vast emptiness of the plains.
+	Time passed but Mika was not aware of it in a conscious way. Soon the rocky, high plains turned into the rolling grasslands and finally the river valley that was the place of his birth. The sight of the forest appearing was like a vision to him. The soil here rich and soft. He knew he was close to home when he began to see the dark blight on the fallen fruits and decayed animals that had died from it.
+	And then, one late afternoon, he rounded the small bend in the path and in the distance saw the familiar wooden gates of his village. It was just as he imagined on top of the mountain plateau. His heart grew full and tears welled in his eyes at the site of his home.
+	He came to the closed gates and stood by and rested next to it. He was too exhausted to shout for them to open the gates. But soon one of the lookouts saw him. And his eyes grew wide when he recognized who it was.
+	He has returned! the lookout shouted to someone on the other side of the gate. Mika has come back at last.
+	You lie.
+	See for yourself.
+	There was some movement on the other side and then another lookout appeared at the post.
+	He does not look the same. He does not look strong as he did before. I can see his ribs.
+	Then the first lookout shouted to Mika.
+	Boy with the bucket. Welcome. Have you returned from your journey then?
+	I have. Open the gates for me.
+	There was more movement and then the sound of the gate as it  unlatched. They swung open and a few other lookouts, including Gawoni stood there. They looked at Mika as if he were a stranger to them.
+	Like a skeleton, one of them remarked.
+	Mika has returned, Gawoni said, run and tell the people. They will want to know our great hunter has returned, such as he is.
+	There were no smiles on their faces. Mika noticed they were polite but the familarity they had once greeted him with was gone.
+	The path through the village was lively with people from the tribe. This was a period when the hunters were at home. Mika smelled the cooked meat and salivated. He went through the village with his head down. He was not used to being around them. He was not used to human voices. From all sides he felt their eyes upon him. In silence he listened to the things they said.
+	What happened to him out there?
+	A miracle. I thought he was dead. Yet here he is.
+	But where is the rest of him? All I see are skin and bones.
+	Some laughed at that.
+	What does he have in the bucket?
+	What is he doing?
+	Mika saw his friend Tye. He saw Mohe and Leoti too. All his friends. The elders. Yaholo and Kulsathee. They all stared at him with pitying, unbelieving eyes. But he did not speak to them, nor they to him. Then, near the back of the crowd, he saw his mother approach with her sisters. Her face when she saw him dropped and there were tears welling in her eyes.
+	As he walked a crowd grew until it was fifty strong. They kept their distance but followed just behind. 
+	He went along the path through the village and approached the ceremonial grounds where the ancient tree stood. The group did not enter the grounds with Mika. Instead they stood around the small fence that outlined it and gossiped to one another in hushed voices. 
+	Mika ignored them all and walked up to the ancient tree. When he reached it he lifted off the makeshift cover from the bucket and gently poured its contents into the ground at the base of the tree. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited.
+
+
+	It was an overcast day in early autumn. The pack of hunters came to rest at a high ridge overlooking a meadow. This was the spot where the scout, a boy nicknamed Turkeyfoot, had discovered a herd of doe the morning before. Twenty strong, no lie, he said. There was a creek that ran through the middle of the meadow. It ran with clear, cold water. No doubt that is what brought them here. Mist-sodden leaves from the surrounding oak and maple trees patchworked the meadow floor in shades of red, orange, yellow, and brown.
+	Turkeyfoot pointed out the spot he saw them emerge from on his walk. The elder huntsmen surveyed the area and decided that instead of hunting in pairs all the hunters would work together in what was called the *deer drive*, which is a method of hunting that uses carefully arranged hunters to push a herd of deer into an area where they have no escape and therefore are easily be picked off with bow and arrow.
 
 [Put something here about the scout being on a mission to track the other tribe, whose campfires they had seen since coming deeper into the valley]
 
-It began to drizzle and the hunters hung their deerskins over their heads and ducked underneath some outcroppings. The drizzle turned to rain and pattered on the rocks and onto the forest canopy.
+	It began to drizzle and the hunters hung their deerskins over their heads and ducked underneath some outcroppings. The drizzle turned to rain and pattered on the rocks and onto the forest canopy.
+	Dried deer meat was rationed to the men and they sat together and ate. Because of the long walk up the ridge they were famished and most of them finished off their fist portion quickly and asked for another, which they were granted with a reluctant grunt.
+	As they ate they argued about strategies for the drive. 
+	In a deer drive there are drivers, standers, and snipers, and depending on the landscape there are dozens of possible ways to arrange the lines of drivers, where the standers and snipers should be. There was not much argument where the snipers should be. This ridge had the perfect view of the meadow, and the shear wall was a good barrier against which to push the herd.
+	Mika ate his ration without speaking. He did not talk much anymore since his return, and nobody talked to him. He was still underweight and his strength had not returned in full. He was no longer able to draw his bow and had to weaken it. This he did when nobody else was around. The deer meat was good. Flavorful and nutrient-dense. He listened to the other hunters argue about where the driving line should be.
+	That is not right. We should be as close as possible to the cliff edge, but adjacent to it. Like so.
+	The hunter crossed his arms to show what he meant.
+	No, you want the first line of drivers waiting by the Southern edge, assuming they approach from the East. Isn’t that where Turkeyfoot spotted them?
+	Don’t remember, one of them said. He tore off a large portion of his jerky and shouted to Turkeyfoot, What side did they come from again?
+	The West.
+	Oh, I had it wrong. In that case, the first line needs to be there, down a hundred feet.
+	That is way too far.
+	Mika listened to them but did not participate. At one time he might have been interested in the sort of things they were arguing about but not anymore. He no longer cared about the hunt. Not since his return. He was here. He did his duty to the best of his ability, but he didn’t care about it. And he felt guilty because of that. He felt like he should care, because it was important for the survival of the tribe, and because the others seemed to care so much. It was like life or death to them. But somehow to him it no longer seemed to matter much. Mika watched them argue with such passion and conviction as if life itself depended on proving themselves correct about some minor thing.
+	Well, it doesn’t matter what you think. It is not your decision at the end of the day. The elders will decide where to post every man, that includes drivers, standers, and snipers.
+	That is true, a few others echoed.
+	I better be posted as sniper. I’m tired of being looked over.
+	You are a stander if I ever saw one. You stand well.
+	The others laughed. The one who thought he should be a sniper rose and made an obscene gesture to the rest of them. Mika included. That made them laugh harder.
+	You all are a bunch of frog eaters. I am sniper. I’m going to speak with the elders. They know my aim is some of the truest among you. They know.
+	Mika watched him leave. He sat among them and laughed when they laughed. Became serious when they did. He did everything he was supposed to do as a hunter. 
+	But ever since his return all his waking thoughts were on the mountain in the distance. The lake in the mountain and those warm, blue waters. How he had done the will of his father by watering the tree, and how nothing had come of it after all. Nothing had come of all his struggles.
+	Soon the rain cleared and blue sky appeared. There was a cool wind that blew in and rustled the leaves on the trees and shook piles of them from the limbs and they fell in slow arcs towards the ground.
+	The elders gathered everyone and instructed them where they would be during the drive. The snipers included Tye and all the best hunters. Those whose aim was true and could be relied upon. The one from before was not among them, but he was made a driver, which somewhat placated him. The drivers were the largest group. They had to be strong and quick. The last group was the standers. Nobody wanted to be a stander and yet the stander was a very important position in the drive. They were planted at certain locations throughout the drive area and were responsible to hold ground and act as a human wall. Mika was selected as a stander because of his weakened condition.
+	The drivers and standers were told to descend the ridge into the meadow and arrange at certain locations. They set off with one of the elders to guide them to the right spots. They had to double their pace as it was already late afternoon and they needed to be in their spots by twilight, when the herd was most likely to return.
+	At the bottom Mika was instructed to stand at the Northern edge. This was an important spot since it was the widest gap between standers. The main driver line would be approaching from the opposite side so it may very well be his direction the herd would flee towards. The elder huntsman approached Mika when he was already hunkered behind a treestump.
+	Are you prepared to stand your ground? 
+	I am.
+	From his spot he had a nice view of the meadow and watched as the blue afternoon sky became a deep red and orange. The trees were bathed in an amber glow. He smelled the rich, wet leaves and soil he was crouched in. The bark on the trees was still dark and wet from the rain earlier. The only sound was the sound of the creek. Mika looked at the early evening sky and thought about a particular night he was alone on the high plains when the sky had looked the same. It had been a peaceful day. He had caught a fish in the river and cooked it on the fire. He lay there and watched as the stars appeared one by one.
+	Then he heard a voice shouting from the ridge.
+	Hunter, stand your ground! 
+	Mika glanced up and saw the deer barreling toward him, a dozen of them in flight. He jumped to his feet and made the wide stomping motions they trained for, but he had missed the timing of it and the deer ran past him. One of them grazed his side and knocked him into the ground and his face went into the soft dirt. In danger of being trampled he waited for a few minutes and then rose and wiped mud from his eyes.
+	Mika walked into the open meadow and saw the line of drivers standing there in disbelief. A few of the other standers came out. On the ridge the snipers stood at the edge. They looked at him but none said anything at all.
+	The elder on the ground walked out and shouted to one of the elders on the ridge.
+	Let us head to camp. The herd will not come again. We missed our only chance.
+	It is a shame, the elder on the ridge answered.
+	With that all the hunters bowed their heads and walked to the campsite in silence. Mika followed behind, but not with them. The women at camp greeted them in expectation of a large bounty and he saw their faces drop when told what happened. They were out of provisions and would head the next day back to the village, mostly empty-handed.
 
-Dried deer meat was rationed to the men and they sat together and ate. Because of the long walk up the ridge they were famished and most of them finished off their fist portion quickly and asked for another, which they were granted with a reluctant grunt.
 
-As they ate they argued about strategies for the drive. 
-
-In a deer drive there are drivers, standers, and snipers, and depending on the landscape there are dozens of possible ways to arrange the lines of drivers, where the standers and snipers should be. There was not much argument where the snipers should be. This ridge had the perfect view of the meadow, and the shear wall was a good barrier against which to push the herd.
-
-Mika ate his ration without speaking. He did not talk much anymore since his return, and nobody talked to him. He was still underweight and his strength had not returned in full. He was no longer able to draw his bow and had to weaken it. This he did when nobody else was around. The deer meat was good. Flavorful and nutrient-dense. He listened to the other hunters argue about where the driving line should be.
-
-That is not right. We should be as close as possible to the cliff edge, but adjacent to it. Like so.
-
-The hunter crossed his arms to show what he meant.
-
-No, you want the first line of drivers waiting by the Southern edge, assuming they approach from the East. Isn’t that where Turkeyfoot spotted them?
-
-Don’t remember, one of them said. He tore off a large portion of his jerky and shouted to Turkeyfoot, What side did they come from again?
-
-The West.
-
-Oh, I had it wrong. In that case, the first line needs to be there, down a hundred feet.
-
-That is way too far.
-
-Mika listened to them but did not participate. At one time he might have been interested in the sort of things they were arguing about but not anymore. He no longer cared about the hunt. Not since his return. He was here. He did his duty to the best of his ability, but he didn’t care about it. And he felt guilty because of that. He felt like he should care, because it was important for the survival of the tribe, and because the others seemed to care so much. It was like life or death to them. But somehow to him it no longer seemed to matter much. Mika watched them argue with such passion and conviction as if life itself depended on proving themselves correct about some minor thing.
-
-Well, it doesn’t matter what you think. It is not your decision at the end of the day. The elders will decide where to post every man, that includes drivers, standers, and snipers.
-
-That is true, a few others echoed.
-
-I better be posted as sniper. I’m tired of being looked over.
-
-You are a stander if I ever saw one. You stand well.
-
-The others laughed. The one who thought he should be a sniper rose and made an obscene gesture to the rest of them. Mika included. That made them laugh harder.
-
-You all are a bunch of frog eaters. I am sniper. I’m going to speak with the elders. They know my aim is some of the truest among you. They know.
-
-Mika watched him leave. He sat among them and laughed when they laughed. Became serious when they did. He did everything he was supposed to do as a hunter. 
-
-But ever since his return all his waking thoughts were on the mountain in the distance. The lake in the mountain and those warm, blue waters. How he had done the will of his father by watering the tree, and how nothing had come of it after all. Nothing had come of all his struggles.
-
-Soon the rain cleared and blue sky appeared. There was a cool wind that blew in and rustled the leaves on the trees and shook piles of them from the limbs and they fell in slow arcs towards the ground.
-
-The elders gathered everyone and instructed them where they would be during the drive. The snipers included Tye and all the best hunters. Those whose aim was true and could be relied upon. The one from before was not among them, but he was made a driver, which somewhat placated him. The drivers were the largest group. They had to be strong and quick. The last group was the standers. Nobody wanted to be a stander and yet the stander was a very important position in the drive. They were planted at certain locations throughout the drive area and were responsible to hold ground and act as a human wall. Mika was selected as a stander because of his weakened condition.
-
-The drivers and standers were told to descend the ridge into the meadow and arrange at certain locations. They set off with one of the elders to guide them to the right spots. They had to double their pace as it was already late afternoon and they needed to be in their spots by twilight, when the herd was most likely to return.
-
-At the bottom Mika was instructed to stand at the Northern edge. This was an important spot since it was the widest gap between standers. The main driver line would be approaching from the opposite side so it may very well be his direction the herd would flee towards. The elder huntsman approached Mika when he was already hunkered behind a treestump.
-
-Are you prepared to stand your ground? 
-
-I am sir.
-
-From his spot he had a nice view of the meadow and watched as the blue afternoon sky became a deep red and orange. The trees were bathed in an amber glow. He smelled the rich, wet leaves and soil he was crouched in. The bark on the trees was still dark and wet from the rain earlier. The only sound was the sound of the creek. Mika looked at the early evening sky and thought about a particular night he was alone on the high plains when the sky had looked the same. It had been a peaceful day. He had caught a fish in the river and cooked it on the fire. He lay there and watched as the stars appeared one by one.
-
-Then he heard a voice shouting from the ridge.
-
-Hunter, stand your ground! 
-
-Mika glanced up and saw the deer barreling toward him, a dozen of them in flight. He jumped to his feet and made the wide stomping motions they trained for, but he had missed the timing of it and the deer ran past him. One of them grazed his side and knocked him into the ground and his face went into the soft dirt. In danger of being trampled he waited for a few minutes and then rose and wiped mud from his eyes.
-
-Mika walked into the open meadow and saw the line of drivers standing there in disbelief. A few of the other standers came out. On the ridge the snipers stood at the edge. They looked at him but none said anything at all.
-
-The elder on the ground walked out and shouted to one of the elders on the ridge.
-
-Let us head to camp. The herd will not come again. We missed our only chance.
-
-It is a shame, the elder on the ridge answered.
-
-With that all the hunters bowed their heads and walked to the campsite in silence. Mika followed behind, but not with them. The women at camp greeted them in expectation of a large bounty and he saw their faces drop when told what happened. They were out of provisions and would head the next day back to the village, mostly empty-handed.
-
-~
-
-It was a long trek back to the village. The morale of the hunters and of the elders was low. The three days it took them dragged on. Mika was made to feel bad. He did feel bad. The ill feelings the others had for him already for his neglect of duty exploded at times. But mostly they ignored him altogether. Even his friend Tye no longer wanted to be seen with him.
-
-By the time they reached home the village had already heard the news. They were dishearted as well but still greeted their family at the gate when they arrived. Mika walked past them and went to his house. His mother was not among the others so he went to find her.
-
-Inside the hut was empty. His mother’s bed and her jewelry was gone. Only his things remained. It was like a tomb. There was no feeling of life inside. He left the house and walked to the hut where his aunt and her family lived and there he saw Ama playing with his nephews. Before he could approach her however his aunt Ayita came from behind him and muttered in his direction. She stood in front of him and looked him up and down.
-
-You are selfish. You cannot take care of your mother anymore. She has to come live with us. How do you feel about that?
-
-Mika did know what to say. It was true he had left her for the time he was gone. He had not anticipated that others would resent the fact his mother still partook of the food that her son was not around to help hunt. Ama did not seem to blame him. Even now her eyes were filled with a kind of pity, though she did not come over.
-
-I do try.
-
-Who gave you the right? She depends on you. She has skills and she contributes to the village but this is the bad time, the time of survival. And it is they duty of every able man and boy to join the hunt. This is just as Kulsathee has decreed it. But you are unique. You are special. The rules do not apply to you.
-
-I have rejoined the hunt. We failed this trip. I don’t have rations. Or I would help.
-
-You would help. If you acted more and talked less, it would be better for you. She is my sister and she will not come back when her son goes on his own.
-
-It was for my father, the reason I left. To honor his will.
-
-Sakima is dead. He is buried in the wilds. Your mother is alive. She loves you and she is alive and you have not honored her. Tell me you have honored her.
-
-I have not.
-
-Ayita spit at his feet.
-
-Leave here, Mika. Do what you must. But don’t expect your mother to return until you can provide for her. How do you expect to provide for anyone? You need to honor the man that your father was and take help your family when they are in need. How about your girlfriend? Did you know she has taken up with Mohe? From your face I see that is news to you. But why? What do you expect?
-
-She laughed and walked off to tend to his nephews who were playing, laughing with Ama. He caught her eye once more and saw she was crying. Then she wiped them and turned away. Mika walked off.
-
-The sun had dropped behind the hills and the early evening suddenly turned brisk and cold. Mika dressed in some furs he had removed from storage before the last trip out and walked into the village center. As usual there was a gathering that night in the ceremonial grounds, around a fire, and even though the hunt was not a success they still gathered to be together.
-
-Everything was cast in blue, except for the sky which was a brilliant white-orange color. Mika smelled the meat roasting on the bonfire but did not feel welcome there. He walked around the circumference and looked for Leoti. It had been some time since he had last seen her. They talked a little after his return but he could not make her understand why he had gone. It was not something you could make someone understand.
-
-When Ayita had told him about her and Mohe, together, he felt like his stomach had fallen onto the ground. He looked for her among the people by the fire. He saw her family there. Her brother. Then by the tree he saw her walking. He saw her walking with Mohe, just out of the fire light, and he could just make out there shapes in the dusk of evening. To be sure he walked around the outer edge. He could not be seen but he could see them. They laughed together and there was a way they looked at one another that reminded him of the time they sat beneath the tree. His eyes welled with tears and he fought back an anger that rose inside him.
+	It was a long trek back to the village. The morale of the hunters and of the elders was low. The three days it took them dragged on. Mika was made to feel bad. He did feel bad. The ill feelings the others had for him already for his neglect of duty exploded at times. But mostly they ignored him altogether. Even his friend Tye no longer wanted to be seen with him.
+	By the time they reached home the village had already heard the news. They were dishearted as well but still greeted their family at the gate when they arrived. Mika walked past them and went to his house. His mother was not among the others so he went to find her.
+	Inside the hut was empty. His mother’s bed and her jewelry was gone. Only his things remained. It was like a tomb. There was no feeling of life inside. He left the house and walked to the hut where his aunt and her family lived and there he saw Ama playing with his nephews. Before he could approach her however his aunt Ayita came from behind him and muttered in his direction. She stood in front of him and looked him up and down.
+	You are selfish. You cannot take care of your mother anymore. She has to come live with us. How do you feel about that?
+	Mika did know what to say. It was true he had left her for the time he was gone. He had not anticipated that others would resent the fact his mother still partook of the food that her son was not around to help hunt. Ama did not seem to blame him. Even now her eyes were filled with a kind of pity, though she did not come over.
+	Who gave you the right? She depends on you. She has skills and she contributes to the village but this is the bad time, the time of survival. And it is they duty of every able man and boy to join the hunt. This is just as Kulsathee has decreed it. But you are unique. You are special. The rules do not apply to you.
+	I have rejoined the hunt. We failed this trip. I don’t have rations. Or I would help.
+	You would help. If you acted more and talked less, it would be better for you. She is my sister and she will not come back when her son goes on his own.
+	It was for my father, the reason I left. To honor his will.
+	Sakima is dead. He is buried in the wilds. Your mother is alive. She loves you and she is alive and you have not honored her. Tell me you have honored her.
+	I have not.
+	Ayita spit at his feet.
+	Leave here, Mika. Do what you must. But don’t expect your mother to return until you can provide for her. How do you expect to provide for anyone? You need to honor the man that your father was and take help your family when they are in need. How about your girlfriend? Did you know she has taken up with Mohe? From your face I see that is news to you. But why? What do you expect?
+	She laughed and walked off to tend to his nephews who were playing, laughing with Ama. He caught her eye once more and saw she was crying. Then she wiped them and turned away. Mika walked off.
+	The sun had dropped behind the hills and the early evening suddenly turned brisk and cold. Mika dressed in some furs he had removed from storage before the last trip out and walked into the village center. As usual there was a gathering that night in the ceremonial grounds, around a fire, and even though the hunt was not a success they still gathered to be together.
+	Everything was cast in blue, except for the sky which was a brilliant white-orange color. Mika smelled the meat roasting on the bonfire but did not feel welcome there. He walked around the circumference and looked for Leoti. It had been some time since he had last seen her. They talked a little after his return but he could not make her understand why he had gone. It was not something you could make someone understand.
+	When Ayita had told him about her and Mohe, together, he felt like his stomach had fallen onto the ground. He looked for her among the people by the fire. He saw her family there. Her brother. Then by the tree he saw her walking. He saw her walking with Mohe, just out of the fire light, and he could just make out there shapes in the dusk of evening. To be sure he walked around the outer edge. He could not be seen but he could see them. They laughed together and there was a way they looked at one another that reminded him of the time they sat beneath the tree. His eyes welled with tears and he fought back an anger that rose inside him.
 
 [Confronts them. They greet him with no malice, happy together. He walks away.]
 
-Never before had he felt so alone. His thoughts turned to those days not too ago when he had been welcomed back after the hunt, when he had been a hero to them. Those times had meant nothing in the end. All that praise. All that love. It was a passing thing. It was nothing at all.
+	Never before had he felt so alone. His thoughts turned to those days not too ago when he had been welcomed back after the hunt, when he had been a hero to them. Those times had meant nothing in the end. All that praise. All that love. It was a passing thing. It was nothing at all.
+	Mika walked outside the gates and around the outer edge until he came to the wilds, which was the place they buried their dead and put things that no longer had any use within the walls of the village. The markers were carved totems with the beadwork of the buried hung upon them. This was how you found the grave you wanted. It did not take him long to find the grave of Sakima. Those blue and green beads he had seen many times throughout his life. And he had been here several times before. And yet not since his return from the mountain. He did not know why.
+	Sakima the great shaman, Mika stammered at the grave market. His eyes were red and there was an emptiness inside that physically hurt. Look what you have done to your only son.
+	If only I knew why you asked me to do the thing, then I could take it. But you didn’t. And look at how things are turning out. I have lost mother. I have lost Leoti. The hunters and the people in the village despise me. And the elder no longer nod to me when they pass. The children of the village mock me. They say, here comes the boy with the bucket. There goes the boy with the bucket. As if that is all I was to them.
+	He fell next to the grave and grabbed a hold of some of the beadwork, rolling it through his hands and staring absent-mindedly into the dark edge of the forest near him.
+	I do not understand this life. Please help me to understand. Help me to understand what I must do. Who I am and why you asked me to water the tree. It is all I think about anymore and I am afraid it is all I can do. My strength is gone. My spirit is gone. And when I close my eyes all I see is the mountain. And the tree. And I want to understand.
+	When he returned to the hut that night it was empty and the emptiness of it kept him awake. He wrapped in fur blankets and tried not to think about Leoti and Mohe together. He tried not to think about his mother and his failure to provide for her. He tried not to think about his failure in the hunt and how it was his fault alone. And then he saw other things. He saw a tribe with more people than he had ever seen. Like ants they were. As numerous as the red ants, they moved through a myriad of stone pathways in mechanism of such complexity. The buildings were polished like rock and gleamed in the afternoon sun, their lines perfect and unlike anything in nature. There were machines of such complexity he could not understand what they were even for. They built these machines with their hands but also with their minds. They even had machines to build other machines. It was beautiful to him and horrible. He wondered who these people were. The village they lived in was without trees and grass and seasons. They harnessed the strength of the wind and the fire and made it do their bidding. With machines they launched their bodies among the stars, which have no end.
 
-Mika walked outside the gates and around the outer edge until he came to the wilds, which was the place they buried their dead and put things that no longer had any use within the walls of the village. The markers were carved totems with the beadwork of the buried hung upon them. This was how you found the grave you wanted. It did not take him long to find the grave of Sakima. Those blue and green beads he had seen many times throughout his life. And he had been here several times before. And yet not since his return from the mountain. He did not know why.
 
-Sakima the great shaman, Mika stammered at the grave market. His eyes were red and there was an emptiness inside that physically hurt. Look what you have done to your only son.
+	He was on the path. It had stormed for five days since he left and the river was as high and the current as swift as Mika had ever seen. Thunderclouds moved over the plains that stretched to the mountains and sheets of rain poured down and soaked into the soil. A tree nearby was struck by lightning and after all the hairs on his arm stood up and there was a metallic taste in the air. But he had his skins and furs and one of them brought just to keep over his head. The leather had darkened from the wetness and become water-logged but it was still good to keep the raindrops from running into his eyes.
+	No fire when he camped and the late autumn nights were cold, very cold and with the rain it was worse. Still he made ground and kept his energy up by catching a trout in the river when he was hungry. Those fish he gutted and ate raw to the bone and then chucked those back into the rapids. He would have preferred it roasted over flame and salted. But he was grateful for the trout because it gave him strength.
+	Then it was over. The thunderclouds and the gray skies moved towards the East and he could see little wisps of blue. The most beautiful blue he had ever seen against that colorless cloud front. Then more blue. And then it was a cold, brisk autumn day. His feet mushed through puddles and the still-sodden ground and yet because of the sunlight and the clear skies it made the journey better.
+	A massive flock of birds in migration danced in the skies above him in perfect synchronization and then landed on a far away tree. There must have been three hundred birds. Their feathers were black and orange and brown and half an hour later when they flew back into the air it was like the leaves of the tree were being sucked up by a tornado.
+	Mika had lost weight. His hands were like bones and a person could easily count the number of ribs in his chest. It was very possible that now he would not be able to draw the bow string at all. But he tried to see the good side of this also. Maybe you can no longer hunt but you are light on your feet and to travel upon them is easier than it has ever been before. By saying such things he kept his spirits up because high spirits helped to pass the days out here.
+	Now he knew the path well. Every hill or tree or outcropping he recognized from the previous journey and knew what was to come after. He used his sense of location to push ahead some nights before camping down, because there was a nice overhang to camp under. Or to rest early because of a particularly harsh stretch was upcoming. This knowledge added to his enjoyment. No longer did things seem so random out here, and wild. Everything was in its place and he was within it.
+	The grasslands with their rolling yellow fields gave way to the high plains where vegetation grew sparse. On the high plains the seasons were not apparent. Trees were evergreen. The wind grew harsh in the plains and bitingly cold, especially at night. Mika wrapped up as he could and nestled close to the embers of the fire. Sometimes he sweated from being so close to it and the beads ran down his neck onto his back and froze into tiny ice beads from the exposure to the wind chill.
+	As he walked up the mountain approach he saw the aftermath of a natural disaster that had happened since the last time he was here. There were rocks and trees scattered along the horizon. Uprooted as if some massive force had exploded the ground. Mika kept walking and by the end of that day he was among the rubble. That night he camped under a hole that two large trees made when they fell against each other. There was no lack of wood for the fire so he made it big and caught a fish and as he lay under the stars tried to imagine what had happened here.
+	In the morning he made it all the way to the point where the river disappeared into a crevice and then it was the steep rise up the mountain to the plateau. Yet when he had climbed high enough he saw the opening to the other side was covered by boulders and dirt and trees. At the sight of this he quicked his pace and made it up to the top before noon.
+	It was his hope that he could find a way through the rubble but it was a solid wall. There were spaces of ingress but nothing that led through it.
+	Mika looked all around the edge for places that might have opened up during the destruction. There was nothing. He had no ideas. Steep walls of the mountain rose to the East and West. It seemed to him this was the only way inside. He felt anxious. He felt like not resting. So he paced back to the campsite from the night before. For the first time he noticed just how quiet it was up here on the mountain. The wind was the only sound. Sometimes it was so loud and rushed with such intensity through the crevices and outcroppings that it sounded like waves crashing onto the beach. But it was not like that now. It was quiet and because he could no longer make progress it made him anxious and also angry. It was just the sort of thing that happened to him. There is only one place on the mountain he wants to go and that one spot is covered over. He pitied himself off and on like that for hours, until it was sundown and he made camp again. Luckily he was still able to catch a good fish and cooked it over the fire.
+	The next day the feeling was the same so he started walking West. This was the first time he had left the guide of the river and that concerned him greatly. If he lost his way he may not be able to find the way back. He noted the layout of the rocks and consoled himself that he could always use the sun to return here. Just go East.
+	The path was harsh and it did not take him long to regret his decision to come this way. Here the ground was covered in broken rocks. By the time night came his feet were blistered and his back ached like it did the first time. He camped and only then did he realize he had no way to catch a fish. Not here. Here it was rocks and dirt all around. His stomach turned in on itself and he felt a great pain. Toughen up. You have to make it back alive. Tomorrow will be better. He told himself things like this until he was asleep, though he woke several more times that night from the discomfort of sleeping on the small rocks.
+	Mika told himself he would walk half a day more East and then turn back. After that it wasn’t worth it. He needed food soon. He was weak and in a bad temper. He was angry at himself and asked himself questions like why would anyone decide to come this way. Such a person would not be bright. This direction only seemed to carry him further from the lake in the mountain.
+	But then he came to an opening, a crack and explored it. It was almost mid-day and the sun was directly overhead and shined down onto it. At any other time of the day he might have overlooked it hidden as it was in the crease between two outcroppings. As he walked into it he saw it was not just a crack but a fissure that went on as far as he could see. How far it was hard to say. The fissure was only wide enough for someone of his thinness. The Mika from early in the year would not have fit. Even as thin as he was it was still tight. He looked up and saw the sun in a small sliver of blue. It was almost like two mountain ranges had come together in this one spot and collided with one another.
+	As he shuffed through the narrow passage his feet kicked up dirt and rocks. It made it hard to breathe. The sharp rocks poked into his back as he slid across them.
+	Yet soon it opened up again and he followed the path until he could see sunlight ahead. By then it was late afternoon and the sun was low. The sky was a deep blue and there was an orange tinge in the air. Mika emerged from the natural corridor into a wide open area.
+	Here there was short grass and bushes unlike anything on the other side of the mountain. The incline to the summit was less severe than his normal path. He continued up the gentle slope in the general direction where he thought the lake plateu should be. After a certain point he had to climb up onto a rock ledge in order to keep going, but still this path was easier. Along the way were small ingresses like minature caves but they weren’t very deep. Mika saw evidence of mountain lions and birds nests but nothing actually alive. He never did at this altitude.
 
-If only I knew why you asked me to do the thing, then I could take it. But you didn’t. And look at how things are turning out. I have lost mother. I have lost Leoti. The hunters and the people in the village despise me. And the elder no longer nod to me when they pass. The children of the village mock me. They say, here comes the boy with the bucket. There goes the boy with the bucket. As if that is all I was to them.
+[Two snakes entwined]
 
-He fell next to the grave and grabbed a hold of some of the beadwork, rolling it through his hands and staring absent-mindedly into the dark edge of the forest near him.
-
-I do not understand this life. Please help me to understand. Help me to understand what I must do. Who I am and why you asked me to water the tree. It is all I think about anymore and I am afraid it is all I can do. My strength is gone. My spirit is gone. And when I close my eyes all I see is the mountain. And the tree. And I want to understand.
-
-When he returned to the hut that night it was empty and the emptiness of it kept him awake. He wrapped in fur blankets and tried not to think about Leoti and Mohe together. He tried not to think about his mother and his failure to provide for her. He tried not to think about his failure in the hunt and how it was his fault alone. And then he saw other things. He saw a tribe with more people than he had ever seen. Like ants they were. As numerous as the red ants, they moved through a myriad of stone pathways in mechanism of such complexity. The buildings were polished like rock and gleamed in the afternoon sun, their lines perfect and unlike anything in nature. There were machines of such complexity he could not understand what they were even for. They built these machines with their hands but also with their minds. They even had machines to build other machines. It was beautiful to him and horrible. He wondered who these people were. The village they lived in was without trees and grass and seasons. They harnessed the strength of the wind and the fire and made it do their bidding. With machines they launched their bodies among the stars. Into the stars which have no end.
-
-~
-
-He was on the path. It had stormed for five days since he left and the river was as high and the current as swift as Mika had ever seen. Thunderclouds moved over the plains that stretched to the mountains and sheets of rain poured down and soaked into the soil. A tree nearby was struck by lightning and after all the hairs on his arm stood up and there was a metallic taste in the air. But he had his skins and furs and one of them brought just to keep over his head. The leather had darkened from the wetness and become water-logged but it was still good to keep the raindrops from running into his eyes.
-
-No fire when he camped and the late autumn nights were cold, very cold and with the rain it was worse. Still he made ground and kept his energy up by catching a trout in the river when he was hungry. Those fish he gutted and ate raw to the bone and then chucked those back into the rapids. He would have preferred it roasted over flame and salted. But he was grateful for the trout because it gave him strength.
-
-Then it was over. The thunderclouds and the gray skies moved towards the East and he could see little wisps of blue. The most beautiful blue he had ever seen against that colorless cloud front. Then more blue. And then it was a cold, brisk autumn day. His feet mushed through puddles and the still-sodden ground and yet because of the sunlight and the clear skies it made the journey better.
-
-A massive flock of birds in migration danced in the skies above him in perfect synchronization and then landed on a far away tree. There must have been three hundred birds. Their feathers were black and orange and brown and half an hour later when they flew back into the air it was like the leaves of the tree were being sucked up by a tornado.
-
-Mika had lost weight. His hands were like bones and a person could easily count the number of ribs in his chest. It was very possible that now he would not be able to draw the bow string at all. But he tried to see the good side of this also. Maybe you can no longer hunt but you are light on your feet and to travel upon them is easier than it has ever been before. By saying such things he kept his spirits up because high spirits helped to pass the days out here.
-
-Now he knew the path well. Every hill or tree or outcropping he recognized from the previous journey and knew what was to come after. He used his sense of location to push ahead some nights before camping down, because there was a nice overhang to camp under. Or to rest early because of a particularly harsh stretch was upcoming. This knowledge added to his enjoyment. No longer did things seem so random out here, and wild. Everything was in its place and he was within it.
-
-The grasslands with their rolling yellow fields gave way to the high plains where vegetation grew sparse. On the high plains the seasons were not apparent. Trees were evergreen. The wind grew harsh in the plains and bitingly cold, especially at night. Mika wrapped up as he could and nestled close to the embers of the fire. Sometimes he sweated from being so close to it and the beads ran down his neck onto his back and froze into tiny ice beads from the exposure to the wind chill.
-
-As he walked up the mountain approach he saw the aftermath of a natural disaster that had happened since the last time he was here. There were rocks and trees scattered along the horizon. Uprooted as if some massive force had exploded the ground. Mika kept walking and by the end of that day he was among the rubble. That night he camped under a hole that two large trees made when they fell against each other. There was no lack of wood for the fire so he made it big and caught a fish and as he lay under the stars tried to imagine what had happened here.
-
-In the morning he made it all the way to the point where the river disappeared into a crevice and then it was the steep rise up the mountain to the plateau. Yet when he had climbed high enough he saw the opening to the other side was covered by boulders and dirt and trees. At the sight of this he quicked his pace and made it up to the top before noon.
-
-It was his hope that he could find a way through the rubble but it was a solid wall. There were spaces of ingress but nothing that led through it.
-
-Mika looked all around the edge for places that might have opened up during the destruction. There was nothing. He had no ideas. Steep walls of the mountain rose to the East and West. It seemed to him this was the only way inside. He felt anxious. He felt like not resting. So he paced back to the campsite from the night before. For the first time he noticed just how quiet it was up here on the mountain. The wind was the only sound. Sometimes it was so loud and rushed with such intensity through the crevices and outcroppings that it sounded like waves crashing onto the beach. But it was not like that now. It was quiet and because he could no longer make progress it made him anxious and also angry. It was just the sort of thing that happened to him. There is only one place on the mountain he wants to go and that one spot is covered over. He pitied himself off and on like that for hours, until it was sundown and he made camp again. Luckily he was still able to catch a good fish and cooked it over the fire.
-
-The next day the feeling was the same so he started walking West. This was the first time he had left the guide of the river and that concerned him greatly. If he lost his way he may not be able to find the way back. He noted the layout of the rocks and consoled himself that he could always use the sun to return here. Just go East.
-
-The path was harsh and it did not take him long to regret his decision to come this way. Here the ground was covered in broken rocks. By the time night came his feet were blistered and his back ached like it did the first time. He camped and only then did he realize he had no way to catch a fish. Not here. Here it was rocks and dirt all around. His stomach turned in on itself and he felt a great pain. Toughen up. You have to make it back alive. Tomorrow will be better. He told himself things like this until he was asleep, though he woke several more times that night from the discomfort of sleeping on the small rocks.
-
-Mika told himself he would walk half a day more East and then turn back. After that it wasn’t worth it. He needed food soon. He was weak and in a bad temper. He was angry at himself and asked himself questions like why would anyone decide to come this way. Such a person would not be bright. This direction only seemed to carry him further from the lake in the mountain.
-
-But then he came to an opening, a crack and explored it. It was almost mid-day and the sun was directly overhead and shined down onto it. At any other time of the day he might have overlooked it hidden as it was in the crease between two outcroppings. As he walked into it he saw it was not just a crack but a fissure that went on as far as he could see. How far it was hard to say. The fissure was only wide enough for someone of his thinness. The Mika from early in the year would not have fit. Even as thin as he was it was still tight. He looked up and saw the sun in a small sliver of blue. It was almost like two mountain ranges had come together in this one spot and collided with one another.
-
-As he shuffed through the narrow passage his feet kicked up dirt and rocks. It made it hard to breathe. The sharp rocks poked into his back as he slid across them.
-
-Yet soon it opened up again and he followed the path until he could see sunlight ahead. By then it was late afternoon and the sun was low. The sky was a deep blue and there was an orange tinge in the air. Mika emerged from the natural corridor into a wide open area.
-
-Here there was short grass and bushes unlike anything on the other side of the mountain. The incline to the summit was less severe than his normal path. He continued up the gentle slope in the general direction where he thought the lake plateu should be. After a certain point he had to climb up onto a rock ledge in order to keep going, but still this path was easier. Along the way were small ingresses like minature caves but they weren’t very deep. Mika saw evidence of mountain lions and birds nests but nothing actually alive. He never did at this altitude.
-
-But as he rounded one corner he was startled by the sound of a rattlesnake. He heard it but could not see it. He stopped and looked around and like when shapes in the darkness reveal themselves when your eyes become accustomed to it, so it was now in this dusk light.
-
-It uncoiled from one of the ingresses, the same color as the rock. The head of the snake was as large as his, though Mika knew it was no snake really. He drew his knife and prepared.
-
-Mika traced its body until it disappeared into the blackness of the ingress. He could not be sure how long it actually was. Two fangs bared at him and he could see the venom glistening on the tips, waiting. It seemed fierce but when it spoke it had a sickly, weakened rasp.
-
-Please, put down your weapon, traveler. Come with us inside. We tell jokes to make us laugh. We give hugs to make us feel loved. So many travelers have come this way before. All travelers must join us in time.
-
-Stay away! Mika shouted. Go back to where you came from.
-
-He threatened the snake that was no snake really, and after some time it retreated into the rocks. He kept his knife at the ready as he walked past and tempted though he was, he did not stop until he was at a safe distance from it.
-
-At last there was a plateau. Mika climbed onto it and saw that there was no chasm here. And at the other end he could already see the bright blue waters rippled by a soft breeze. Once his feet reached the small beach area he could see he was on the opposite end of the lake. In the distance he saw his former campsite and the opening. He set the bucket down in the spot he had chosen to make his camp. The sun was low and long shadows bathed the rocks around him. The air at this altitude was chill and made goosebumps appear on his forearms. He cupped a handful of water from the lake and was surprised to find it lukewarm. He drank of it and then built a small fire and because he was so exhausted he fell asleep on the ground before catching his supper.
+	But as he rounded one corner he was startled by the sound of a rattlesnake. He heard it but could not see it. He stopped and looked around and like when shapes in the darkness reveal themselves when your eyes become accustomed to it, so it was now in this dusk light.
+	It uncoiled from one of the ingresses, the same color as the rock. The head of the snake was as large as his, though Mika knew it was no snake really. He drew his knife and prepared.
+	Mika traced its body until it disappeared into the blackness of the ingress. He could not be sure how long it actually was. Two fangs bared at him and he could see the venom glistening on the tips, waiting. It seemed fierce but when it spoke it had a sickly, weakened rasp.
+	Please, put down your weapon, traveler. Come with us inside. We tell jokes to make us laugh. We give hugs to make us feel loved. So many travelers have come this way before. All travelers must join us in time.
+	Stay away, Mika said. Go back to where you came from.
+	He threatened the snake that was no snake really, and after some time it retreated into the rocks. He kept his knife at the ready as he walked past and tempted though he was, he did not stop until he was at a safe distance from it.
+	At last there was a plateau. Mika climbed onto it and saw that there was no chasm here. And at the other end he could already see the bright blue waters rippled by a soft breeze. Once his feet reached the small beach area he could see he was on the opposite end of the lake. In the distance he saw his former campsite and the opening. He set the bucket down in the spot he had chosen to make his camp. The sun was low and long shadows bathed the rocks around him. The air at this altitude was chill and made goosebumps appear on his forearms. He cupped a handful of water from the lake and was surprised to find it lukewarm. He drank of it and then built a small fire and because he was so exhausted he fell asleep on the ground before catching his supper.
 
 ~
 
-Mika approached the ancient tree and lifted off the cover from the bucket and gently poured its contents into the ground at the base. The dry earth soaked up the water and was gone again. Then he set the bucket on the ground and stood by and he waited.
-
-Only now that he had poured the water from the bucket did he look at his surroundings. It was early evening though not yet dark. Mika felt that same feeling of disconnection he always felt upon returning from the mountain. Sometimes it was like a thousand years had passed. What he noticed tonight was that nobody was outside. It was true that it was late in the year and becoming colder. Still it was uncommon not to see anybody. Smoke curled from the chimneys in the sweat houses. He saw the flickering fire light through the smalll doors on them.
-
-Yet there was no activity. There was an unnatural quiet to the entire village. Even the lookouts at the gate had seemed different to him. Stonefaced, serious. He remembered they did not even acknowledge him being there.
-
-Mika walked outside the ceremonial grounds and along the path through the village. There were no children playing as they normally were. He walked to the southern gate and found the lookouts there as serious as the others.
-
-On his way to visit his mother at his Ayita’s hut he saw pylons with torches burning upon them. They were arranged near the memorial site. He went to see what that was about. There he discovered rows of reed platforms. Upon them the dead bodies of hunters lay, both elder and young. He recognized his friends and tears came to his eyes. Families had placed the bows and knives of their loved ones next to their bodies and Mika pictured their distraught, helpless faces as they lay them down. He saw Turkeyfoot the scout and the elder who had called him Boy with the Bow, and remembered his beaming smile when they returned from a good day’s hunt. They had been scalped.
-
-Mika, came a voice from behind, You must come with us.
-
-He turned and saw two warriors standing there, once of whom had addressed him. They also looked at him with stone faces. He recognized them as fellow hunters but saw that now they were dressed in the garb of war. They were painted red on the face and chest and tomahawks hung at their sides.
-
-He wiped the tears from his face.
-
-Where are we going?
-
-To see the chief of war. He knows you have returned and has demanded to speak to you.
-
-Mika followed them without resistence. He wanted to understand what was going on. They led him by torchlight through the empty pathways of the village. Now from the lights in the windows he saw faces looking out. Now he was beginning to understand.
-
-The warriors led him to the house of the chieftan though he was sure he would not find Kulsathee inside. The familiar totem outside the house that for all his life had been painted white was now painted red. You could still see traces of white underneath the red. The paint was fresh.
-
-They parted the deerskin at the entrance and stood aside. Mika entered alone. He had never been inside and was taken by the large, open space. Skins and furs hung on the walls and green soapstone ornaments from previous generations were arranged on tables. Spears and bows collected in the corner. It was the abode of a leader and not a home.
-
-One warrior was stationed at the door and when he saw Mika he gestured to an area beside a small fire. Yaholo was there and though his eyes met Mika’s they did not acknowledge that he knew him. Sitting beside the fire and staring into it with intense concentration was his old friend.
-
-Tye opened his eyes and faced Mika. His face was also painted red and there was a solemnity in his expression. He gestured for Mika to sit next to him. Then he spoke.
-
-After hunting for months in the next valley, we hunters had exhausted the game. As you know we sent out scouts to find new areas in which to hunt. This led us deeper into the valley. We found herds of deer, turkey, geese. There was also wild vegetables here, untouched by the blight. We brought women to harvest the vegetables and we hunted the game.
-
-Soon our scout discovered smoke from campfires nearby. We knew there was another tribe that lives in this valley. We knew they would not like our being there.
-
-With these thoughts in mind the elder huntsmen decided to send a diplomat bearing gifts, to show our good will and that we wished them no harm. We sent them dried meat and soft skins, jewelry and wampum. The elder named Salal was chosen as the diplomat and set off that same day wearing a large pack on his back. One week later Turkeyfoot was out exploring an area where deer had been spotted and found the leather pack with no contents except for the head of Salal.
-
-Mika contemplated what he had been told and stared into the fire. Tye drifted away from a moment but then came back and continued his story.
-
-This we would not tolerate. The hunters grew angry at camp. We wanted blood for the disrespect they had shown our elder. He had gone in peace and had not deserved murder.
-
-The hunters returned to the village and Kulsathee was told of the news. The old leader was not prepared for this turn of events. He told us to return to the hunt and to avoid the other tribe. Perhaps they would ignore us if we did not try to initiate contact. Though some doubted this strategy we honored the chief of peace and did as he said.
-
-We journeyed to the valley and resumed the hunt. Our quota had increased because of the delay of circumstances. This late in the year we must not lose time. Every kill is vital. Every kill will keep our people alive throughout the winter.
-
-There was a night. It was only a week ago now, but it feels as if an eternity has passed since the terrors of that night. Our camp had bedded down next to the embers. It was a clear night and the moon was full. That is to say it was not so dark. Even so those warriors crept past our lookouts and a dozen of them descended on the camp. They went after the elder huntsmen first, slaughtering some of them in their sleep.
-
-As people awoke and realized what was going on there was shouting and screaming. After the elders they went after the hunters yet by that time we had been able to gather our weapons to defend ourselves. We fought and killed several of them. I myself killed two of them. But we also lost men. Thankfully our women remained unharmed though certainly they would have been targeted after the hunters.
-
-When they realized they were outnumbered and had lost the advantage of surprise the warriors who still lived escaped into the woods and disappeared. Our scouts tracked them but they know the land better than we.
-
-We collected the dead and prepared them for the journey and came back to the village. When the tribe saw what had happened they panicked and demanded to Kulsathee that we retaliate. Otherwise we could not hunt and so would be unable to store the food we need to survive the winter.
-
-Kulsathee was not prepared to make that kind of decision. The other elders consulted and decided that it was proper in a time such as this to appoint a chief of war until the time of war had passed. The chief of peace agreed and since there were no more elder huntsmen to take the position they chose me, since I had acted bravely in the ambush. I was made chief of war and the other hunters who survived were promoted to warriors and we held counsel to decide what should be done.
-
-We decided to close the gates of the village to any outsider and to keep lookout both day and night. We decided to set a curfew for every family, not to leave their homes after the sun goes down. We enacted a ration program to control the distribution of food. Since we do not know how long this will go on and therefore do not know how much more food we will be able to store for winter, we must be cautious.
-
-Tye broke from his story. Mika could tell his thoughts were heavy and felt pity for his old friend who carried so much responsiblitiy on his shoulders. He gazed into the flames and continued.
-
-Help us, Mika. I know you have gone another way but I command you to help us in this fight. Help your tribe in its time of need. Abandon your selfish journey and help your people to survive the winter. Quickly the others have forgotten. They call you the Boy with the Bucket and riducule you. But I remember how  it was before. I do not forget so quickly as them. No one could touch your skills in the hunt. Not even me. This I know. Regain your strength and we can fight them together. Side by side. Soon we will return to the valley to take revenge for what they did and to claim our stake. Please help us.
-
-Mika stared into the flames as newly-appointed chief of war watched him.
-
-That I cannot do, Mika said.
-
-Tye shook his head and also stared into the fire.
-
-The others told me you would say this. Yaholo told me so but I did not believe it. I thought you would understand how important this is to your people.
-
-His old friend rose. Mika stood up too.
-
-Mika, understand that because you have turned your back on your tribe and on me, the chief of war, you are no longer welcome in our tribe. Understand you must leave the gates of our village and not return again. Understand that it was you who abandoned us.
-
-The chief of war nodded to the warrior who stood by the door and he collected the others from outside and they took Mika by the arms. As they carried him out Mika looked at Tye. There were tears in his eyes. The chief of war said, Once you were my good friend.
-
-The warriors escorted Mika, who carried only his bucket, outside the gates of the village. The gates closed with a loud noise and then there was no sound. The lookouts stood there with stony faces. 
-
-Mika walked to the wilds and made a spot in the dry grass and among the village refuse he lay down. He was hungry and cold. He had not had anything to eat since yesterday and felt weak in his bones. The night was clear. It hurt him to look at the wooden walls of his home village so he closed his eyes and imagined he was at the lake in the mountain, swimming in its warm, blue waters among a multitude of fish.
-
-~
-
-In the morning there was frost on the grass and on the edge of the briar thorns. The ground in the wilds was covered in weeds that poked Mika in the back as he slept. In that uncomfortable sleep Mika shivered from the late autumn freeze. When the sunlight shone through the trees into his eyes he rose and the first thing he did was gather wood from the surrounding forest and kindled a fire to keep warm. He looked for something to eat among the dead leaves but found nothing at all to give him strength. That morning a thick sheet of fog had descended into the valley so that he could not see his village from this distance.
-
-But that is good, he thought as he stoked the embers of the fire. It is better not to see it. Forget about them for they no longer want anything to do with you. But he could not forget.
-
-Out of the fog a dark figure emerged and approached him next to the fire. The figure came from the direction of the village gate and upon reaching him placed a pot of deer meat at his feet and then knelt beside him. Mika took up the bowl ate its contents greedily. Then he licked the grease from his fingertips. He ate like an animal, but was so hungry he was not ashamed.
-
-You look like you have not slept well for days.
-
-That is true, mama.
-
-Mika flashed his eyes in her direction and she was taken aback how the thinness had exaggerated his facial features. His eyes bulged from deep sockets and his cheekbones protruded and made his face long like a horse. He was not the same handsome boy she remembered. This made her sad.
-
-You look hungry and weak, she said. She observed him with pity in her eyes.
-
-That is also true, Mika said, but now I am less hungry. So thank you.
-
-Do you not get enough to eat on your way? Has the blight reached to the mountain where you go?
-
-Sometimes from the river I catch trout that I cook upon the fire. Those fish keep me going but its not enough to keep me strong. As you can see.
-
-Mika regarded himself with his mother’s eyes and saw how thin and bony he had become. His arms were like two sticks, his former lean and muscular physique atrophied away. His legs had the nearly same girth as his arms. His feet were knotted and bruised from a thousand walking miles and his hands were calloused from carrying the bucket so far. For the first time he could see himself as others did and it made him want to cry.
-
-They told me you refused to join Tye and the warriors in the defense of the village. They told me because of this betrayal you were banished from our tribe forever. I thought to come here to find you. I thought you would come to the wilds.
-
-She looked around and now that the fog was clearing and the frost melting it was all grass and briars growing around old farm equipment and the ashes of a yearly bonfire they held to burn the things they no longer could use. This was no place to live. It was harsh and there was no love in it. Only forgotten things, dead things.
-
-They sat together and did not speak for some time, although each thought about many things they wanted to say to the other. 
-
-Soon tears welled in Mika’s eyes as he remembered back to the days of his childhood and how they were had been happy then. In the days when his father Sakima was still alive and he and his mother and father once took blankets to the ceremonial grounds and lay on the grass under the sun all day long for no reason at all. Just to be together and to enjoy the gift of sunshine. Mika looked up and saw that the eyes of his mother also welled with tears. Mika thought perhaps she was remembering the same day as him. He reached out to embrace her.
-
-I miss you, mama, Mika began. His voice was shaking yet focused as if he wanted to express something vital, And father. I miss my friends and the people of the tribe. I miss how life was before. Those days will never come again, that is for sure. Be honest and tell me, will they come again?
-
-Mika looked at his mother. She looked back at her son and saw that he what he needed was to be close to her now, to hear her voice. She held him and feathered his hair between her fingers like she did when he was small enough to sit in her lap.
-
-Yes, my son. She told him. Those days will come again. Do not lose hope in that. Do not fall into despair.
-
-The voice of his mother was tender. It had been months since Mika had heard any kindness spoken to him and the gentle sound of her words alone broke his heart. He wept like a child and bowed his head agaist her breast.
-
-I am low in spirit, mama. Worse than all of them. Selfish to have abandoned my tribe for a promise made to a dead man. My heart is impure. They are right to banish me from the tribe. In the wilds is where I belong. This is my home now.
-
-Do not say such things. You are brave to follow your heart against the ways of the world. You are strong to honor the will of your father and to do the thing he has asked of you. Though I do not understand it I will do what I can to help you along the way.
-
-But you don’t understand. I am not strong. I am weak and miserable. Not brave. Please don’t say those things. They hurt me because I know they are not true. How hungry I am, mama. Every night I dream of meat roasting on the fire. I dream of kanuchi and fried bean and corn bread, and stewed peaches. But even more than hungry I am lonely for companionship. I am so lonely. For companionship of any kind. I am worse than all of them. My heart feels as if it has no bottom. I don’t care about honoring my father or doing what he asked of me. I don’t care about the ancient tree or the lake on the mountain. All that struggle has not brought anything good to others or to myself. All it has brought me is loneliness and suffering. I continue to do it only because it is all I know anymore. All that I am good for, as weak as I have become. I am no hunter. I am no warrior. This is true. So do not call me brave. Do not call me strong. For I am weak and my heart feels as if it has no bottom.
-
-Mika gestured to the village walls, where above them the smoke from the home fires swirled against a blue and orange tinted sky.
-
-Look at what they have to be thankful for. Warm fires, food to eat. Joking and laughter in the company of friends. Women to cherish and to hold when the nights are cold. Do you want to know a secret? I crave those things too. You see? I am not pure. I am sick with envy of what they have. So I am not better than them. How pathetic I am. They are right to mock me and to scorn me like they do. The boy with the bucket. That is what they call me. I am worse than all of them.
-
-And that was all he said. He became quiet after that. Ama held her son and comforted him for many hours, but the thing that had been asked of him had not been asked of her and therefore Mika knew she could not stay with him in the wilds. Nor did he want her to. He wanted her to be happy most of all. She prayed for him to be strong and told him she would help as best she could and then rose to her feet and returned to the village. Mika watched his mother go.
-
-In the days that followed he contemplated many things in the wilds. His mother brought him food from time to time. Enough to keep him going. He gathered his strength and hardened his resolve. Then one morning when the frost was still on the ground he set to packing up his things. Then he put on his furs and the satchel for his knife and gear. Then set off on the path to the mountain once again. The bucket he carried with him.
-
-~
-
-It was on the journey back that the first signs of winter came. The days had grown shorter, the skies grayer, trees almost completly bare. Mika took care at night to keep the fire going for this was the season of exposure. Of frostbite. He entered the valley from the plains as hungry as he had ever been. The river had never stopped providing trout but there were some days when he was too tired to fish so over the last few days he had become weak.
-
-The final morning he got up when the sun shone through the exposed branches of the woods and felt strong enough to cast the net for a fish. When he caught one he roasted it over the fire and ate. After that breakfast he continued on the path.
-
-Always on his mind was how he would find a way inside the village gates upon his return, in order to water the tree and to complete the journey. Over vast stretches of time he meditated on the possible scenarios and came up with elaborate plans but in the end he decided to trust that his mother would somehow be able to help him get inside. These same thoughts were on his mind as he rounded the hill on the path just before he could see the village walls. 
-
-Even after his exile Mika’s heart swelled when he saw the familiar landmarks that indicated he was almost home. The rotted treestump where a nest of squirrels had made their den, the pattern of the lichen growing on the rocks up on the hill, the ruts in the path. His pace quickened and when he emerged onto the final stretch he saw the destruction there and could not take another step.
-
-There was no more gate and no lookouts. Shards of the gate were strewn on the ground. The wooden poles which made up the walls that protected the village were charred, destroyed in some places so that the buildings and homes within were exposed to the outside. From here Mika could see homes that lay in rubble. Though he was too weak to run he walked as fast as he could inside those burned walls.
-
-Lying just inside on the road was one of the elders. He looked to have been dead for more than a week. His flesh was being picked on by birds. Mika shooed them away and tears fell onto his cheeks. He headed in the direction of the home of his aunt, Ayita.
-
-When he arrived there he was glad to see the home intact. He went inside and saw them lying there. When they saw Mika their eyes grew large. Ayita crawled to him. 
-
-Give us food. Give us anything to eat. There is so little left.
-
-Where is my mother?
-
-Ama is with the others. The others who try to keep order in the village. She laughed bitterly. But the blight has taken it all. And they took the rest. Now we will starve. This we know.
-
-What happened here?
-
-Ayita collapsed onto the bed where the rest of her family lay, weak from malnourishment. Her eyes were red. Mika saw there was no more light in her eyes. She was not dead but something akin to it. He tried speaking with the others but they stared off at a faraway place and did not respond to him.
-
-Mika left them and continued through the village. He saw many houses were destroyed. He saw bodies in them. Families he recognized. Eventually he came to the village center where people were collected. They worked at collecting the bodies of the dead in their final resting place. The elders and leaders were on platforms in the memorial area. The poor had already been placed inside their homes and the home burned down around them. That was their grave.
-
-From this work there was smoke that rose and a smell of ash and fire. Mika saw his mother among the workers. He went to her and they embraced. He could see she had also lost hope. Her eyes were empty. She was doing this work mechanically. Because it was what they were supposed to do with the dead.
-
-Mama.
-
-Ama looked up.
-
-My son, she feathered his hair, there is no more food left. They came. They took it all. We have to bury them. We will burn them in the wilds.
-
-She pointed to the rows of the dead on platforms.
-
-They cannot stay out like this, the bodies exposed. There are some on the other side of the village. Do not go there, Mika. Whatever you do. They are those who lost all hope. They have taken bodies. They take them and they -
-
-She began to weep into her hands.
-
-Life has become horrible. You should not have come back. I prayed after for you not to return. You should have stayed out there. You should have stayed on the mountain.
-
-Mika looked out over the people who worked together. There were still a great number of them. They did their jobs without passion. Collecting the dead, wrapping them in skins, and carrying them to the wilds. It was only then Mika noticed the large black cloud of smoke that came from that direction. 
-
-On a platform in the back he saw his old tchungkee rival. Mohe. He was on his knees next to a platform. On the platform was Leoti. Her skin white. Dressed in her favorite skins and beads. Someone came to tell him they had to take her and he pushed them away. There were tears in his eyes. His face was one of utter loss and bewilderment. Mika wept too, for Leoti was his first love. She was beautiful indeed.
-
-He left them and continued into the village center. On the eastern side of the village he saw the place his mother told him to stay away from. There the buildings were in ruins, ashen. But there were people among the destruction. Their deer skins torn from their bodies in tatters. Their hair matted with ash and dirt. They were truly those who have lost all hope. He watched them crawl around the rubble, looking for food or anything of value they could trade for the scraps that remained. There were bloodstains around their mouths. They saw Mika and looked away, ashamed of themselves and of what they had become.
-
-The house of the chief still stood, though the roof had collapsed. Its post was still painted red. There were no warriors outside.
-
-Inside he found his old friend Tye, the chief fo war, at a table staring into the wall. He noticed Mika but did not acknowledge him. Only then from the light that shone from the hole in the roof that his face was injured from wounds that had not yet healed. His neck and back were burned and the skin was forming scars.
-
-You should not be here, Tye said.
-
-Any talk of exile and banishment seemed meaningless now. Mika sensed that and sat down near him, unafraid. Tye seemed to understand that too.
-
-You should not have returned, Mika.
-
-But I have.
-
-All our preparation, all our courage, meant nothing in the end. We gathered our warriors. We gathered our bows, spears, tomahawks. And we entered the valley to show them we were not afraid. We tracked their camps and made our ambush in the night, fierce and quick. We scalped many and lost few. Pleased with our success we established a new camp there and resumed the hunt as before.
-
-We heard nothing from them for weeks and when we returned with the spoils of that victorious trip we celebrated long into the night, along with our families and friends. But it was in those early morning hours, after the bonfire had burned down, and after we were exhausted and filled with meat - that was when they made their attack.
-
-You see they tracked us. All without our knowledge. They followed us home and stood waiting in the forests. There were dozens of them. Prepared not merely for ambush but for annihilation. In the darkness they came carrying torches with oil that they threw upon the houses to burn them down. Innocent families, children. None were spared. They first group of them tore down the gates and more of them flooded inside. By now the fires had grown and illuminated our attackers faces. We saw them enraged, their faces painted red and black.
-
-Our warriors acted quickly and tried to fight them back. But it was no good. There were too many of them and we were not prepared. We lost elders and women. We lost children. The murders lasted until the sun came up. Only then did we realized it was not their plan to kill us all. They took our supplies, our stores of meat. Because now we know they too have been affected by the blight. They carried off everything we had and cruelly left us to starve.
-
-When they were gone we counted the dead. But once it was discovered our food was gone that the people lost hope. The eldrs lost hope. Then I lost hope too. For what can we do? Our people will starve. We will not survive the winter. All our plans were for nothing. All our courage, all our preparation, meant nothing in the end.
-
-Where are the elders and the other leaders? Where is Kulsathee?
-
-With their families. Isn’t that where you want to be at the end?
-
-There are some who still have hope. I saw them in the square. They are collecting the dead and burning them. They are foraging for food. There is still hope among the people.
-
-What they do makes no difference. The blight has taken everything.
-
-Mika saw that his old friend had lost any glimmer of light in his eyes. He merely stared at the wall and said no more.
-
-With his heart low Mika left the house of the chief and continued to the ceremonial grounds. He carried the bucket and felt the waters slosh against the side. The dried grass had been scorched from the fires and when he got close enough he saw that the ancient tree itself had been burned.
-
-The base of it was blackened with char and the burned area went up to the branches. Pieces of it had fallen to the ground. Mika dropped to his knees in front of it. He closed his eyes and tried to accept this new reality. It was gone. Mika fought back the tears that came anyway. He sobbed like a child. All that he had struggled for was truly gone. He thought about the mountain and the lake and the days he spent doing the will of his father. He thought about how he had been treated by the people of the village and how they had exiled him. Perhaps if he had been there he could have done something to help. But likely not.
-
-Mika thought back to the night his father passed away. He remembered the chicken in the corner. Those stupid black eyes watching all. Those eyes he now understood. He now understood why he had hated them so much. It was the same look he saw on the faces of the people in the village. He remembered the warmth of his father’s breath when he held Mika close to him, the smell of the medicine salve. He remembered the words his father spoke in his ear. Those words he could never forget. And he remembered the last thing his father said to him before Mika ran outside.
-
-Do what I ask of you.
-
-Mika got to his feet and approached the remains of the ancient tree. Then he lifted off the cover from the bucket and gently poured its contents into the ground at the base. The dry earth and ashes soaked up the water and was gone again. Then he set the bucket on the ground and stood by and he waited.
-
-~
-
-Over the course of two days the sky had turned a gray so absolute and dark it blocked out the sun and cast a shadow over the valley and the grass plains where Mika carried the bucket. Then the snows came. At first there was a serenity to the way the flakes came softly to rest on the ground and in the treetops and along the banks of the river. With the snow came silence because there was no wind in the front as of yet. When it got too dark to see he camped for the night.
-
-He built a fire and warmed his hands and his feet because the wet snow had started to soak through his shoes, which were not very water proof. Snowflakes turned into mist when they reached the rising heat the campfire. But it was not yet heavy enough to snuff the fire out completely. Mika was thankful for that.
-
-He tried to catch a fish for supper but his hands were already freezing and they cramped when he drew the net through the cold and swift waters. He never did see one fish.
-
-Sleep was not hard for him now because he was so weakened from the lack of food. He stoked the fire to make it burn hotter and lay down. He lost consciousness as soon as his head hit the earth and he did not wake up again until morning.
-
-When he opened his eyes and saw the vast plains and gentle sloping hills covered over in a sheet of white snow, his first thought was that it was a beautiful sight to see. Then he wondered how deep the snow was and reached his hand down into it. Two inches, maybe more.
-
-Enough to slow us down, but isn’t it something to see.
-
-The river had little pieces of ice floating in it and Mika wondered if it were frozen further up. Now that he was rested he was able to catch a fish and cooked it over the rekindled fire. As he ate he thought about the people of his village and how they were starving now. They had not believed him about the fish because the river in the valley did not provide fish anymore.
-
-It snowed off and on for days on end. When it was clear and the sun came out it was not bad. On those days the top layer of snow melted and when it froze in the night it was easier to walk on the next day. That cycle continued until he reached the high plains.
-
-Now there islands of ice that floated down the river current. Mika had a hard time fishing in those waters but caught enough to keep his energy up. He was thankful for the fish he caught.
-
-In the night another front moved in and brought with it winds and snow like Mika had never seen. He awoke frozen to find his fire snuffed under the snow. From now on he would have to make sure to camp under an outcropping or in a cave. He could do that in the mountains.
-
-By the next morning he could not see ten feet in front of him. He oriented himself by listening for the sound of the river. He packed his things and wrapped the furs around him tight and kept going. The snow was up to six inches and accumulating all the time. The wind blew the snow across his face and he felt his face and nose becoming numb. He wrapped a cloth around his face because it was breathable and made sure he did not freeze.
-
-Because he could not see he had to rely on the river to guide him. It was hard because the ground near its banks were thick with snow and made the walking harder. Sometimes he got to close and his foot slipped into the icy water.
-
-His camping routing was dictated by camp sites now. From his many journeys he could plan ahead which to use, and when. The  experience he had gathered from the many journies had probably kept him from freezing because in the blizzard he could not keep a fire going without some kind of shelter.
-
-When he reached the final ascent up the mountain path and the river went underground he had to find his way by memory alone. How many times had he come this way. He visualized the landmarks  along the way and found them in the blizzard by touch alone. For a great distance his eyes were closed because they were no use in this white wall. He found the spot where he had to turn to the West and kept close to the large rocks. He found the fissure through the mountain and inched his way through it. Here was the only respite he had from the snow. He rested here knowing that his goal was only a half day’s journey from here.
-
-The rock pathway that led up to the summit was covered with snow but also ice. That made the final stretch hard for Mika. His shoes did not have good traction and he slipped and fell. When he got high enough he was very careful because a slip from this height and he could fall to his death.
-
-Carefully he navigated the ice and found places where he could get a sure footing. The blizzard had abated for the time being and once again he was granted a vision of a vast white landscape stretching for a hundred miles below him. What a strange and beautiful world, he said.
-
-By the time he reached the top and saw the familiar blue waters he was exhausted physically but also mentally. He walked to the beach and set the bucket down. He collapsed on the snow. His hand hit the lake and he was surprised to find its waters were still warm. He got up and placed both arms into the water, feeling the warmth soothe his joints and muscles. Then he dipped his whole head in and felt the waters thaw his ears and nose.
-
-He collected some firewood and built a fire near the water, after clearing a place in the snow. Then he quickly removed his clothes and walked into the water. Its temperature was the same as the first time he swam in it, on that hot summer day. Mika wondered at that. Perhaps it was fed from a hot spring deep in the mountain. He thought it best not to think about it too much, but to enjoy the unexpected gift from the mountain.
-
-Then he saw there were fish and he jumped out and caught one for supper. When he was ready he climbed out and dried out as close to the fire as he could. The wet started to freeze against those parts of his body not facing the heat. Then he put his skins and furs back on and cooked the fish. That night he slept better than he had for nearly a month. He dreamed about the springtime and of green grass and strawberries in the meadow. In his dreams he heard a voice tell him that it was okay to stay here, if he liked. Stay on the mountain. His mother had wished it for him. His old friend had warned him not to return. With those thoughts he awoke in the morning and it was a blue sky that day.
-
-But when he awoke with those thoughts and saw the empty bucket nearby he dismissed them and filled the bucket and covered it.
-
-He sat and thought about the return journey. How hard it was going to be on him. The snows would increase. In the plains he was sure it was over a foot deep. It was very possible that when the river froze there would be no more trout to catch from the river. Also he was tired. More tired than he had ever been. And hungry. More hungry than he had ever been.
-
-The bucket was heavy and it was hard to not spill on the way down the icy rocks. It took him almost an entire day to navigate it with the full bucket. But once he reached the bottom he realized that if he could deal with such an obstacle he could deal with anything. Then he set off again.
-
-The journey home was harsh. Harsher than he had imagined. The weather turned again and a front descended onto the plains. Again he found himself navigating in blinding drives of snow. It slowed him down but not as much as he thought it would. He was still able to find his way by memory and other senses besides his eyes. He thought at times that every moment up till now had only been a preparation for this.
-
-One strange thing was that the water in the bucket never cooled. Not by one degree. He had planned for it to freeze in the bucket and was surprised the first night when lifted the cover and found it just as warm as it was in the lake. After discovering this he dipped his hands and feet into it from time to time to keep them warm. He was thankful for that.
-
-The hardest part was the depth of the snow. When he reached the plains he found it had accumulated up to two feet in places. Then every step was an ordeal. Then every step was a journey in itself. He found he had to focus in order to keep momentum. Otherwise he would expend too much energy and get tired out too quickly. 
-
-On the plains he he had no more protection from the wind and the snows. Many nights his campfire blew out and he did what he could to keep warm. Several nights it was only the water in the bucket that kept his fingers and toes from freezing. He was thankful.
-
-The river was frozen now and he had a hard time to keep it on his right side. At times he had to stop and find the ice with his feet. As flat as this landscape was it was hard to navigate with no visual signs. He used distant hills when the fog of snow was not too much. Other than that he used the frozen lake.
-
-But needless to say he caught very few fish. Sometimes he had the strength to break through the ice but it was hard to drag the net. He tried to make a line and hook but it was not much use. Sometimes he broke down and wept until the tears froze on his face and he had to stop for that reason.
-
-He grew very hungry. Combined with the weariness of the plodding through endless miles of snow overcame him sometimes. There were days when he could not get the energy to make any progress at all. His bones and joints ached. His muscles cramped.
-
-In those times it was the vision he had of the village in springtime and of his father that night in the hut and of the words he spoke to him alone that afterwards Mika had so taken to heart. Those memories gave him the strength to walk again for one more day. And when he was on the path he found it best to focus on the path itself and not to think about anything else. But to place one foot in front of the other. Only that action itself. Anything else would be a distraction to him. Anything else could take him off the path. He must not allow that to happen. Sometimes he could not help it and because he was so weak his mind would drift. Sometimes his mind would drift and he would imagine he could see himself as if from above. From a great height he could see himself walking. A boy with a bucket across the vast plains walking. Ever walking.
-
-~
-
-It was morning in the village. The snows had blanketed the burned grass and the rubble from the destruction and lay in drifts against the sides of the homes. The winter sun was over the tops of the trees and was beginning to melt the top layer. All the people were inside their homes. They were weak because they had not eaten for weeks now but they had also lost hope.
-
-Then a voice came. It echoed through the village and the people inside heard it vaguely at first, small but excited. They listened close and soon made out what the voice was shouting.
-
-Come and see! He has returned! Come everyone and see!
-
-Ama heard the voice enter the house where she lay on the bed next to her kin. She sat up and listened and then went to the door and opened the deerskin cover. Sunlight came in. It shone inside and woke everyone else. They rubbed their eyes and sat up. The voice continued to shout.
-
-The excited voice made them excited too and they put on their skins and looked at one another with confused expressions. Ama walked outside and she saw several families outside. They looked at one another. Some of them were heading in the direction of the shouting. Then others came out of their homes and followed.
-
-It came from the ceremonial grounds in the middle of the village and by the time that Ama and the others arrived from their homes they could see that the entire village, all that were still alive, had gathered there. Everyone was gathered.
-
-The boy who shouted was still shouting. It was the lookout Gawoni. He cupped his hands around his mouth and let out another shout. There were tears on his cheeks.
-
-He has returned! Come everyone and see!
-
-The crowds murmured and pointed. Ama went through them. She led her family through the crowds who had gathered. She saw Yaholo kneeling. She saw the old chief of peace, Kulsathee on his knees. And Tye the warrior also. There were tears in their eyes. And people walking to the middle of the grounds, to the tree.
-
-At the base of the tree she saw her son. She saw him collapsed against the tree. The bucket empty beside him. She ran over and embraced the body of her son because there was no more life in it. She wept and held him in her arms.
-
-My son.
-
-It was only later that she realized that the tears of the others were not tears of sorrow like hers. They were tears of joy and their voices had a sound of hope in them. Her eyes lifted and she saw the trunk. She saw it was no longer charred. The tree had life in it. It lived again. The bark healthy and rich in color. She gazed up and saw those branches, which had always been barren in the past, were now full of leaves like they are in springtime, full and bright green they were. Delicate and fluttering in the winter air. Yet it was the fruit that at last turned Ama’s tears of sorrow into joy.
-
-The large, round yellow fruit, bursting from its flowers on the ends of the limbs. There were multitudes of them on every branch all the way to the top of the tree. Some had fallen loose onto the ground and cracked open, spilling the deep red and orange flesh onto the ground. Underneath the canopy of the great tree the snow had melted and exposed the earth and although she wasn’t sure how it could be so, it was also warm there.
-
-The people of the village had brought baskets. They collected the fallen fruit and marveled when they saw the empty stem on the branch immediately blossom in its place.
-
-How strange it is, said a young girl to her mother, How strange in the dead of winter for the fruit to grow.
-
-Ama saw the looks on their faces. They were in disbelief. They ate the fruit and the looks on their faces was first of shock and then a smile. Some broke into laughter and passed the fruit around to their families. They collected the fruit in baskets and shared with one another. As they ate their eyes grew bright and color returned to their cheeks. She watched all of this but did not once rise to join them. She held her son and kissed the hair on his head. How thin and frail he was. She remembered the night Sakima died, when she found him sleeping against the tree and wrapped the blanket around him. Her son would be honored like his father had been for he was the son of his father after all. He would be remembered forever in the stories and songs of their people. Mika, the boy with the bucket, the son of his father.
-
-Kulsathee, the old chief of peace, rose to his feet and stood underneath the canopy of the ancient tree and he faced the people gathered there. He faced them with kind, tearful eyes and tried to express in words the feeling of hope he saw on all their faces and perceived in all their hearts. But the words did not come, so he sat again and instead watched the children sat around the base of the tree, where there was grass growing, laughing together and partaking of that strange and replenishing fruit.
+	Mika approached the ancient tree and lifted off the cover from the bucket and gently poured its contents into the ground at the base. The dry earth soaked up the water and was gone again. Then he set the bucket on the ground and stood by and he waited.
+	Only now that he had poured the water from the bucket did he look at his surroundings. It was early evening though not yet dark. Mika felt that same feeling of disconnection he always felt upon returning from the mountain. Sometimes it was like a thousand years had passed. What he noticed tonight was that nobody was outside. It was true that it was late in the year and becoming colder. Still it was uncommon not to see anybody. Smoke curled from the chimneys in the sweat houses. He saw the flickering fire light through the smalll doors on them.
+	Yet there was no activity. There was an unnatural quiet to the entire village. Even the lookouts at the gate had seemed different to him. Stonefaced, serious. He remembered they did not even acknowledge him being there.
+	Mika walked outside the ceremonial grounds and along the path through the village. There were no children playing as they normally were. He walked to the southern gate and found the lookouts there as serious as the others.
+	On his way to visit his mother at his Ayita’s hut he saw pylons with torches burning upon them. They were arranged near the memorial site. He went to see what that was about. There he discovered rows of reed platforms. Upon them the dead bodies of hunters lay, both elder and young. He recognized his friends and tears came to his eyes. Families had placed the bows and knives of their loved ones next to their bodies and Mika pictured their distraught, helpless faces as they lay them down. He saw Turkeyfoot the scout and the elder who had called him Boy with the Bow, and remembered his beaming smile when they returned from a good day’s hunt. They had been scalped.
+	Mika, came a voice from behind, You must come with us.
+	He turned and saw two warriors standing there, once of whom had addressed him. They also looked at him with stone faces. He recognized them as fellow hunters but saw that now they were dressed in the garb of war. They were painted red on the face and chest and tomahawks hung at their sides.
+	He wiped the tears from his face.
+	Where are we going?
+	To see the chief of war. He knows you have returned and has demanded to speak to you.
+	Mika followed them without resistence. He wanted to understand what was going on. They led him by torchlight through the empty pathways of the village. Now from the lights in the windows he saw faces looking out. Now he was beginning to understand.
+	The warriors led him to the house of the chieftan though he was sure he would not find Kulsathee inside. The familiar totem outside the house that for all his life had been painted white was now painted red. You could still see traces of white underneath the red. The paint was fresh.
+	They parted the deerskin at the entrance and stood aside. Mika entered alone. He had never been inside and was taken by the large, open space. Skins and furs hung on the walls and green soapstone ornaments from previous generations were arranged on tables. Spears and bows collected in the corner. It was the abode of a leader and not a home.
+	One warrior was stationed at the door and when he saw Mika he gestured to an area beside a small fire. Yaholo was there and though his eyes met Mika’s they did not acknowledge that he knew him. Sitting beside the fire and staring into it with intense concentration was his old friend.
+	Tye opened his eyes and faced Mika. His face was also painted red and there was a solemnity in his expression. He gestured for Mika to sit next to him. Then he spoke.
+	After hunting for months in the next valley, we hunters had exhausted the game. As you know we sent out scouts to find new areas in which to hunt. This led us deeper into the valley. We found herds of deer, turkey, geese. There was also wild vegetables here, untouched by the blight. We brought women to harvest the vegetables and we hunted the game.
+	Soon our scout discovered smoke from campfires nearby. We knew there was another tribe that lives in this valley. We knew they would not like our being there.
+	With these thoughts in mind the elder huntsmen decided to send a diplomat bearing gifts, to show our good will and that we wished them no harm. We sent them dried meat and soft skins, jewelry and wampum. The elder named Salal was chosen as the diplomat and set off that same day wearing a large pack on his back. One week later Turkeyfoot was out exploring an area where deer had been spotted and found the leather pack with no contents except for the head of Salal.
+	Mika contemplated what he had been told and stared into the fire. Tye drifted away from a moment but then came back and continued his story.
+	This we would not tolerate. The hunters grew angry at camp. We wanted blood for the disrespect they had shown our elder. He had gone in peace and had not deserved murder.
+	The hunters returned to the village and Kulsathee was told of the news. The old leader was not prepared for this turn of events. He told us to return to the hunt and to avoid the other tribe. Perhaps they would ignore us if we did not try to initiate contact. Though some doubted this strategy we honored the chief of peace and did as he said.
+	We journeyed to the valley and resumed the hunt. Our quota had increased because of the delay of circumstances. This late in the year we must not lose time. Every kill is vital. Every kill will keep our people alive throughout the winter.
+	There was a night. It was only a week ago now, but it feels as if an eternity has passed since the terrors of that night. Our camp had bedded down next to the embers. It was a clear night and the moon was full. That is to say it was not so dark. Even so those warriors crept past our lookouts and a dozen of them descended on the camp. They went after the elder huntsmen first, slaughtering some of them in their sleep.
+	As people awoke and realized what was going on there was shouting and screaming. After the elders they went after the hunters yet by that time we had been able to gather our weapons to defend ourselves. We fought and killed several of them. I myself killed two of them. But we also lost men. Thankfully our women remained unharmed though certainly they would have been targeted after the hunters.
+	When they realized they were outnumbered and had lost the advantage of surprise the warriors who still lived escaped into the woods and disappeared. Our scouts tracked them but they know the land better than we.
+	We collected the dead and prepared them for the journey and came back to the village. When the tribe saw what had happened they panicked and demanded to Kulsathee that we retaliate. Otherwise we could not hunt and so would be unable to store the food we need to survive the winter.
+	Kulsathee was not prepared to make that kind of decision. The other elders consulted and decided that it was proper in a time such as this to appoint a chief of war until the time of war had passed. The chief of peace agreed and since there were no more elder huntsmen to take the position they chose me, since I had acted bravely in the ambush. I was made chief of war and the other hunters who survived were promoted to warriors and we held counsel to decide what should be done.
+	We decided to close the gates of the village to any outsider and to keep lookout both day and night. We decided to set a curfew for every family, not to leave their homes after the sun goes down. We enacted a ration program to control the distribution of food. Since we do not know how long this will go on and therefore do not know how much more food we will be able to store for winter, we must be cautious.
+	Tye broke from his story. Mika could tell his thoughts were heavy and felt pity for his old friend who carried so much responsiblitiy on his shoulders. He gazed into the flames and continued.
+	Help us, Mika. I know you have gone another way but I command you to help us in this fight. Help your tribe in its time of need. Abandon your selfish journey and help your people to survive the winter. Quickly the others have forgotten. They call you the Boy with the Bucket and riducule you. But I remember how  it was before. I do not forget so quickly as them. No one could touch your skills in the hunt. Not even me. This I know. Regain your strength and we can fight them together. Side by side. Soon we will return to the valley to take revenge for what they did and to claim our stake. Please help us.
+	Mika stared into the flames as newly-appointed chief of war watched him.
+	That I cannot do, Mika said.
+	Tye shook his head and also stared into the fire.
+	The others told me you would say this. Yaholo told me so but I did not believe it. I thought you would understand how important this is to your people.
+	His old friend rose. Mika stood up too.
+	Mika, understand that because you have turned your back on your tribe and on me, the chief of war, you are no longer welcome in our tribe. Understand you must leave the gates of our village and not return again. Understand that it was you who abandoned us.
+	The chief of war nodded to the warrior who stood by the door and he collected the others from outside and they took Mika by the arms. As they carried him out Mika looked at Tye. There were tears in his eyes. The chief of war said, Once you were my good friend.
+	The warriors escorted Mika, who carried only his bucket, outside the gates of the village. The gates closed with a loud noise and then there was no sound. The lookouts stood there with stony faces. 
+	Mika walked to the wilds and made a spot in the dry grass and among the village refuse he lay down. He was hungry and cold. He had not had anything to eat since yesterday and felt weak in his bones. The night was clear. It hurt him to look at the wooden walls of his home village so he closed his eyes and dreamed he was at the lake in the mountain again, swimming in those warm blue waters among a multitude of fish.
+
+
+	In the morning there was frost on the grass and on the edge of the briar thorns. The ground in the wilds was covered in weeds that poked Mika in the back as he slept. In that uncomfortable sleep Mika shivered from the late autumn freeze. When the sunlight shone through the trees into his eyes he rose and the first thing he did was gather wood from the surrounding forest and kindled a fire to keep warm. He looked for something to eat among the dead leaves but found nothing at all to give him strength. That morning a thick sheet of fog had descended into the valley so that he could not see his village from this distance.
+	But that is good, he thought as he stoked the embers of the fire. It is better not to see it. Forget about them for they no longer want anything to do with you. But he could not forget.
+	Out of the fog a dark figure emerged and approached him next to the fire. The figure came from the direction of the village gate and upon reaching him placed a pot of deer meat at his feet and then knelt beside him. Mika took up the bowl ate its contents greedily. Then he licked the grease from his fingertips. He ate like an animal, but was so hungry he was not ashamed.
+	You look like you have not slept well for days.
+	That is true, mama.
+	Mika flashed his eyes in her direction and she was taken aback how the thinness had exaggerated his facial features. His eyes bulged from deep sockets and his cheekbones protruded and made his face long like a horse. He was not the same handsome boy she remembered. This made her sad.
+	You look hungry and weak, she said. She observed him with pity in her eyes.
+	That is also true, Mika said, but now I am less hungry. So thank you.
+	Do you not get enough to eat on your way? Has the blight reached to the mountain where you go?
+	Sometimes from the river I catch trout that I cook upon the fire. Those fish keep me going but its not enough to keep me strong. As you can see.
+	Mika regarded himself with his mother’s eyes and saw how thin and bony he had become. His arms were like two sticks, his former lean and muscular physique atrophied away. His legs had the nearly same girth as his arms. His feet were knotted and bruised from a thousand walking miles and his hands were calloused from carrying the bucket so far. For the first time he could see himself as others did and it made him want to cry.
+	They told me you refused to join Tye and the warriors in the defense of the village. They told me because of this betrayal you were banished from our tribe forever. I thought to come here to find you. I thought you would come to the wilds.
+	She looked around and now that the fog was clearing and the frost melting it was all grass and briars growing around old farm equipment and the ashes of a yearly bonfire they held to burn the things they no longer could use. This was no place to live. It was harsh and there was no love in it. Only forgotten things, dead things.
+	They sat together and did not speak for some time, although each thought about many things they wanted to say to the other. 
+	Soon tears welled in Mika’s eyes as he remembered back to the days of his childhood and how they were had been happy then. In the days when his father Sakima was still alive and he and his mother and father once took blankets to the ceremonial grounds and lay on the grass under the sun all day long for no reason at all. Just to be together and to enjoy the gift of sunshine. Mika looked up and saw that the eyes of his mother also welled with tears. Mika thought perhaps she was remembering the same day as him. He reached out to embrace her.
+	I miss you, mama, Mika began. His voice was shaking yet focused as if he wanted to express something vital, And father. I miss my friends and the people of the tribe. I miss how life was before. Those days will never come again, that is for sure. Be honest and tell me, will they come again?
+	Mika looked at his mother. She looked back at her son and saw that he what he needed was to be close to her now, to hear her voice. She held him and feathered his hair between her fingers like she did when he was small enough to sit in her lap.
+	Yes, my son. She told him. Those days will come again. Do not lose hope in that. Do not fall into despair.
+	The voice of his mother was tender. It had been months since Mika had heard any kindness spoken to him and the gentle sound of her words alone broke his heart. He wept like a child and bowed his head agaist her breast.
+	I am low in spirit, mama. I am worse than all of them, selfish to have abandoned my tribe for a promise made to a ghost. My heart is impure. They are right to banish me from the tribe. In the wilds is where I belong truly. This is now my home.
+	Do not say such things. You are brave to follow your heart against the ways of the world. You are strong to honor the will of your father and to do the thing he has asked of you. Though I do not understand it I will do what I can to help you along the way.
+	But you don’t understand. I am not strong. I am weak and miserable. Not brave. Please don’t say those things. They hurt me because I know they are not true. How hungry I am, mama. Every night I dream of meat roasting on the fire. I dream of kanuchi and fried bean and corn bread, and stewed peaches. But even more than hungry I am lonely for companionship. I am so lonely. For companionship of any kind. I am worse than all of them. My heart feels as if it has no bottom. I don’t care about honoring my father or doing what he asked of me. I don’t care about the ancient tree or the lake on the mountain. All that struggle has not brought anything good to others or to myself. All it has brought me is loneliness and suffering. I continue to do it only because it is all I know anymore. All that I am good for, as weak as I have become. I am no hunter. I am no warrior. This is true. So do not call me brave and do not call me strong. For I am weak truly and my heart feels as if it has no bottom.
+	Mika gestured to the village walls, where above them the smoke from the home fires swirled against a blue and orange tinted sky.
+	Look at what they have to be thankful for. Warm fires, food to eat. Joking and laughter in the company of friends. Women to cherish and to hold when the nights are cold. Do you want to know a secret? I crave those things too. You see? I am not pure. I am sick with envy of what they have. So I am not better than them. How pathetic I am. They are right to mock me and to scorn me like they do. The boy with the bucket. I am worse than all of them.
+	And that was all he said. He became quiet after that. Ama held her son and comforted him for many hours, but the thing that had been asked of him had not been asked of her and therefore Mika knew she could not stay with him in the wilds. Nor did he want her to. He wanted her to be happy most of all. She prayed for him to be strong and told him she would help as best she could and then rose to her feet and returned to the village. Mika watched his mother go.
+	In the days that followed he contemplated many things in the wilds. His mother brought him food from time to time. Enough to keep him going. He gathered his strength and hardened his resolve. Then one morning when the frost was still on the ground he set to packing up his things. Then he put on his furs and the satchel for his knife and gear. Then set off on the path to the mountain once again. The bucket he carried with him.
+
+
+	It was on the journey back that the first signs of winter came. The days had grown shorter, the skies grayer, trees almost completly bare. Mika took care at night to keep the fire going for this was the season of exposure. Of frostbite. He entered the valley from the plains as hungry as he had ever been. The river had never stopped providing trout but there were some days when he was too tired to fish so over the last few days he had become weak.
+	The final morning he got up when the sun shone through the exposed branches of the woods and felt strong enough to cast the net for a fish. When he caught one he roasted it over the fire and ate. After that breakfast he continued on the path.
+	Always on his mind was how he would find a way inside the village gates upon his return, in order to water the tree and to complete the journey. Over vast stretches of time he meditated on the possible scenarios and came up with elaborate plans but in the end he decided to trust that his mother would somehow be able to help him get inside. These same thoughts were on his mind as he rounded the hill on the path just before he could see the village walls. 
+	Even after his exile Mika’s heart swelled when he saw the familiar landmarks that indicated he was almost home. The rotted treestump where a nest of squirrels had made their den, the pattern of the lichen growing on the rocks up on the hill, the ruts in the path. His pace quickened and when he emerged onto the final stretch he saw the destruction there and could not take another step.
+	There was no more gate and no lookouts. Shards of the gate were strewn on the ground. The wooden poles which made up the walls that protected the village were charred, destroyed in some places so that the buildings and homes within were exposed to the outside. From here Mika could see homes that lay in rubble. Though he was too weak to run he walked as fast as he could inside those burned walls.
+	Lying just inside on the road was one of the elders. He looked to have been dead for more than a week. His flesh was being picked on by birds. Mika shooed them away and tears fell onto his cheeks. He headed in the direction of the home of his aunt, Ayita.
+	When he arrived there he was glad to see the home intact. He went inside and saw them lying there. When they saw Mika their eyes grew large. Ayita crawled to him. 
+	Give us food. Give us anything to eat. There is so little left.
+	Where is my mother?
+	Ama is with the others. The others who try to keep order in the village. She laughed bitterly. But the blight has taken it all. And they took the rest. Now we will starve. This we know.
+	What happened here?
+	Ayita collapsed onto the bed where the rest of her family lay, weak from malnourishment. Her eyes were red. Mika saw there was no more light in her eyes. She was not dead but something akin to it. He tried speaking with the others but they stared off at a faraway place and did not respond to him.
+	Mika left them and continued through the village. He saw many houses were destroyed. He saw bodies in them. Families he recognized. Eventually he came to the village center where people were collected. They worked at collecting the bodies of the dead in their final resting place. The elders and leaders were on platforms in the memorial area. The poor had already been placed inside their homes and the home burned down around them. That was their grave.
+	From this work there was smoke that rose and a smell of ash and fire. Mika saw his mother among the workers. He went to her and they embraced. He could see she had also lost hope. Her eyes were empty. She was doing this work mechanically. Because it was what they were supposed to do with the dead.
+	Mama.
+	Ama looked up.
+	My son, she feathered his hair, there is no more food left. They came. They took it all. We have to bury them. We will burn them in the wilds.
+	She pointed to the rows of the dead on platforms.
+	They cannot stay out like this, the bodies exposed. There are some on the other side of the village. Do not go there, Mika. Whatever you do. They are those who have truly lost hope. They have taken the bodies. They take them and they -
+	She began to weep into her hands.
+	Life has become horrible, Mika. You should not have come back. I prayed after for you not to return. You should have stayed on the mountain. You should have stayed away.
+	Mika looked out over the people who worked together. There were still a great number of them. They did their jobs without passion. Collecting the dead, wrapping them in skins, and carrying them to the wilds. It was only then Mika noticed the large black cloud of smoke that came from that direction. 
+	On a platform in the back he saw his old tchungkee rival. Mohe. He was on his knees next to a platform. On the platform was Leoti. Her skin white. Dressed in her favorite skins and beads. Someone came to tell him they had to take her and he pushed them away. There were tears in his eyes. His face was one of utter loss and bewilderment. Mika wept too, for Leoti was his first love. She was beautiful indeed.
+	He left them and continued into the village center. On the eastern side of the village he saw the place his mother told him to stay away from. There the buildings were in ruins, ashen. But there were people among the destruction. Their deer skins torn from their bodies in tatters. Their hair matted with ash and dirt. They were truly those who have lost all hope. He watched them crawl around the rubble, looking for food or anything of value they could trade for the scraps that remained. There were bloodstains around their mouths. They saw Mika and looked away, ashamed of themselves and of what they had become.
+	The house of the chief still stood, though the roof had collapsed. Its post was still painted red. There were no warriors outside.
+	Inside he found his old friend Tye, the chief fo war, at a table staring into the wall. He noticed Mika but did not acknowledge him. Only then from the light that shone from the hole in the roof that his face was injured from wounds that had not yet healed. His neck and back were burned and the skin was forming scars.
+	You should not be here, Tye said.
+	Any talk of exile and banishment seemed meaningless now. Mika sensed that and sat down near him, unafraid. Tye seemed to understand that too.
+	You should not have returned, Mika.
+	But I have.
+	All our preparation, all our courage, meant nothing in the end. We gathered our warriors. We gathered our bows, spears, tomahawks. And we entered the valley to show them we were not afraid. We tracked their camps and made our ambush in the night, fierce and quick. We scalped many and lost few. Pleased with our success we established a new camp there and resumed the hunt as before.
+	We heard nothing from them for weeks and when we returned with the spoils of that victorious trip we celebrated long into the night, along with our families and friends. But it was in those early morning hours, after the bonfire had burned down, and after we were exhausted and filled with meat - that was when they made their attack.
+	You see they tracked us. All without our knowledge. They followed us home and stood waiting in the forests. There were dozens of them. Prepared not merely for ambush but for annihilation. In the darkness they came carrying torches with oil that they threw upon the houses to burn them down. Innocent families, children. None were spared. They first group of them tore down the gates and more of them flooded inside. By now the fires had grown and illuminated our attackers faces. We saw them enraged, their faces painted red and black.
+	Our warriors acted quickly and tried to fight them back. But it was no good. There were too many of them and we were not prepared. We lost elders and women. We lost children. The murders lasted until the sun came up. Only then did we realized it was not their plan to kill us all. They took our supplies, our stores of meat. Because now we know they too have been affected by the blight. They carried off everything we had and cruelly left us to starve.
+	When they were gone we counted the dead. But once it was discovered our food was gone that the people lost hope. The eldrs lost hope. Then I lost hope too. For what can we do? Our people will starve. We will not survive the winter. All our plans were for nothing. All our courage, all our preparation, meant nothing in the end.
+	Where are the elders and the other leaders? Where is Kulsathee?
+	With their families. Isn’t that where you want to be at the end?
+	There are some who still have hope. I saw them in the square. They are collecting the dead and burning them. They are foraging for food. There is still hope among the people.
+	What they do makes no difference. The blight has taken everything.
+	Mika saw that his old friend had lost any glimmer of light in his eyes. He merely stared at the wall and said no more.
+	With his heart low Mika left the house of the chief and continued to the ceremonial grounds. He carried the bucket and felt the waters slosh against the side. The dried grass had been scorched from the fires and when he got close enough he saw that the ancient tree itself had been burned.
+	The base of it was blackened with char and the burned area went up to the branches. Pieces of it had fallen to the ground. Mika dropped to his knees in front of it. He closed his eyes and tried to accept this new reality. It was gone. Mika fought back the tears that came anyway. He sobbed like a child. All that he had struggled for was truly gone. He thought about the mountain and the lake and the days he spent doing the will of his father. He thought about how he had been treated by the people of the village and how they had exiled him. Perhaps if he had been there he could have done something to help. But likely not.
+	Mika thought back to the night his father passed away. He remembered the chicken in the corner. Those stupid black eyes watching all. Those eyes he now understood. He now understood why he had hated them so much. It was the same look he saw on the faces of the people in the village. He remembered the warmth of his father’s breath when he held Mika close to him, the smell of the medicine salve. He remembered the words his father spoke in his ear. Those words he could never forget. And he remembered the last thing his father said to him before Mika ran outside.
+	Do what I ask of you.
+	Mika got to his feet and approached the remains of the ancient tree. Then he lifted off the cover from the bucket and gently poured its contents into the ground at the base. The dry earth and ashes soaked up the water and was gone again. Then he set the bucket on the ground and stood by and he waited.
+
+
+	Over the course of two days the sky had turned a gray so absolute and dark it blocked out the sun and cast a shadow over the valley and the grass plains where Mika carried the bucket. Then the snows came. At first there was a serenity to the way the flakes came softly to rest on the ground and in the treetops and along the banks of the river. With the snow came silence because there was no wind in the front as of yet. When it got too dark to see he camped for the night.
+	He built a fire and warmed his hands and his feet because the wet snow had started to soak through his shoes, which were not very water proof. Snowflakes turned into mist when they reached the rising heat the campfire. But it was not yet heavy enough to snuff the fire out completely. Mika was thankful for that.
+	He tried to catch a fish for supper but his hands were already freezing and they cramped when he drew the net through the cold and swift waters. He never did see one fish.
+	Sleep was not hard for him now because he was so weakened from the lack of food. He stoked the fire to make it burn hotter and lay down. He lost consciousness as soon as his head hit the earth and he did not wake up again until morning.
+	When he opened his eyes and saw the vast plains and gentle sloping hills covered over in a sheet of white snow, his first thought was that it was a beautiful sight to see. Then he wondered how deep the snow was and reached his hand down into it. Two inches, maybe more.
+	Enough to slow us down, but isn’t it something to see.
+	The river had little pieces of ice floating in it and Mika wondered if it were frozen further up. Now that he was rested he was able to catch a fish and cooked it over the rekindled fire. As he ate he thought about the people of his village and how they were starving now. They had not believed him about the fish because the river in the valley did not provide fish anymore.
+	It snowed off and on for days on end. When it was clear and the sun came out it was not bad. On those days the top layer of snow melted and when it froze in the night it was easier to walk on the next day. That cycle continued until he reached the high plains.
+	Now there islands of ice that floated down the river current. Mika had a hard time fishing in those waters but caught enough to keep his energy up. He was thankful for the fish he caught.
+	In the night another front moved in and brought with it winds and snow like Mika had never seen. He awoke frozen to find his fire snuffed under the snow. From now on he would have to make sure to camp under an outcropping or in a cave. He could do that in the mountains.
+	By the next morning he could not see ten feet in front of him. He oriented himself by listening for the sound of the river. He packed his things and wrapped the furs around him tight and kept going. The snow was up to six inches and accumulating all the time. The wind blew the snow across his face and he felt his face and nose becoming numb. He wrapped a cloth around his face because it was breathable and made sure he did not freeze.
+	Because he could not see he had to rely on the river to guide him. It was hard because the ground near its banks were thick with snow and made the walking harder. Sometimes he got to close and his foot slipped into the icy water.
+	His camping routing was dictated by camp sites now. From his many journeys he could plan ahead which to use, and when. The  experience he had gathered from the many journies had probably kept him from freezing because in the blizzard he could not keep a fire going without some kind of shelter.
+	When he reached the final ascent up the mountain path and the river went underground he had to find his way by memory alone. How many times had he come this way. He visualized the landmarks  along the way and found them in the blizzard by touch alone. For a great distance his eyes were closed because they were no use in this white wall. He found the spot where he had to turn to the West and kept close to the large rocks. He found the fissure through the mountain and inched his way through it. Here was the only respite he had from the snow. He rested here knowing that his goal was only a half day’s journey from here.
+	The rock pathway that led up to the summit was covered with snow but also ice. That made the final stretch hard for Mika. His shoes did not have good traction and he slipped and fell. When he got high enough he was very careful because a slip from this height and he could fall to his death.
+	Carefully he navigated the ice and found places where he could get a sure footing. The blizzard had abated for the time being and once again he was granted a vision of a vast white landscape stretching for a hundred miles below him. What a strange and beautiful world, he said.
+	By the time he reached the top and saw the familiar blue waters he was exhausted physically but also mentally. He walked to the beach and set the bucket down. He collapsed on the snow. His hand hit the lake and he was surprised to find its waters were still warm. He got up and placed both arms into the water, feeling the warmth soothe his joints and muscles. Then he dipped his whole head in and felt the waters thaw his ears and nose.
+	He collected some firewood and built a fire near the water, after clearing a place in the snow. Then he quickly removed his clothes and walked into the water. Its temperature was the same as the first time he swam in it, on that hot summer day. Mika wondered at that. Perhaps it was fed from a hot spring deep in the mountain. He thought it best not to think about it too much, but to enjoy the unexpected gift from the mountain.
+	Then he saw there were fish and he jumped out and caught one for supper. When he was ready he climbed out and dried out as close to the fire as he could. The wet started to freeze against those parts of his body not facing the heat. Then he put his skins and furs back on and cooked the fish. That night he slept better than he had for nearly a month. He dreamed about the springtime and of green grass and strawberries in the meadow. In his dreams he heard a voice tell him that it was okay to stay here, if he liked. Stay on the mountain. His mother had wished it for him. His old friend had warned him not to return. With those thoughts he awoke in the morning and it was a blue sky that day.
+	But when he awoke with those thoughts and saw the empty bucket nearby he dismissed them and filled the bucket and covered it.
+	He sat and thought about the return journey. How hard it was going to be on him. The snows would increase. In the plains he was sure it was over a foot deep. It was very possible that when the river froze there would be no more trout to catch from the river. Also he was tired. More tired than he had ever been. And hungry. More hungry than he had ever been.
+	The bucket was heavy and it was hard to not spill on the way down the icy rocks. It took him almost an entire day to navigate it with the full bucket. But once he reached the bottom he realized that if he could deal with such an obstacle he could deal with anything. Then he set off again.
+	The journey home was harsh. Harsher than he had imagined. The weather turned again and a front descended onto the plains. Again he found himself navigating in blinding drives of snow. It slowed him down but not as much as he thought it would. He was still able to find his way by memory and other senses besides his eyes. He thought at times that every moment up till now had only been a preparation for this.
+	One strange thing was that the water in the bucket never cooled. Not by one degree. He had planned for it to freeze in the bucket and was surprised the first night when lifted the cover and found it just as warm as it was in the lake. After discovering this he dipped his hands and feet into it from time to time to keep them warm. He was thankful for that.
+	The hardest part was the depth of the snow. When he reached the plains he found it had accumulated up to two feet in places. Then every step was an ordeal. Then every step was a journey in itself. He found he had to focus in order to keep momentum. Otherwise he would expend too much energy and get tired out too quickly. 
+	On the plains he he had no more protection from the wind and the snows. Many nights his campfire blew out and he did what he could to keep warm. Several nights it was only the water in the bucket that kept his fingers and toes from freezing. He was thankful.
+	The river was frozen now and he had a hard time to keep it on his right side. At times he had to stop and find the ice with his feet. As flat as this landscape was it was hard to navigate with no visual signs. He used distant hills when the fog of snow was not too much. Other than that he used the frozen lake.
+	But needless to say he caught very few fish. Sometimes he had the strength to break through the ice but it was hard to drag the net. He tried to make a line and hook but it was not much use. Sometimes he broke down and wept until the tears froze on his face and he had to stop for that reason.
+	He grew very hungry. Combined with the weariness of the plodding through endless miles of snow overcame him sometimes. There were days when he could not get the energy to make any progress at all. His bones and joints ached. His muscles cramped.
+	In those times it was the vision he had of the village in springtime and of his father that night in the hut and of the words he spoke to him alone that afterwards Mika had so taken to heart. Those memories gave him the strength to walk again for one more day. And when he was on the path he found it best to focus on the path itself and not to think about anything else. But to place one foot in front of the other. Only that action itself. Anything else would be a distraction to him. Anything else could take him off the path. He must not allow that to happen. Sometimes he could not help it and because he was so weak his mind would drift. Sometimes his mind would drift and he would imagine he could see himself as if from above. From a great height he could see himself walking. A boy with a bucket across the vast plains walking. Ever walking.
+
+
+	It was morning in the village. The snows had blanketed the burned grass and the rubble from the destruction and lay in drifts against the sides of the homes. The winter sun was over the tops of the trees and was beginning to melt the top layer. All the people were inside their homes. They were weak because they had not eaten for weeks now but they had also lost hope.
+	Then a voice came. It echoed through the village and the people inside heard it vaguely at first, small but excited. They listened close and soon made out what the voice was shouting.
+	Come and see! He has returned! Come everyone and see!
+	Ama heard the voice enter the house where she lay on the bed next to her kin. She sat up and listened and then went to the door and opened the deerskin cover. Sunlight came in. It shone inside and woke everyone else. They rubbed their eyes and sat up. The voice continued to shout.
+	The excited voice made them excited too and they put on their skins and looked at one another with confused expressions. Ama walked outside and she saw several families outside. They looked at one another. Some of them were heading in the direction of the shouting. Then others came out of their homes and followed.
+	It came from the ceremonial grounds in the middle of the village and by the time that Ama and the others arrived from their homes they could see that the entire village, all that were still alive, had gathered there. Everyone was gathered.
+	The boy who shouted was still shouting. It was the lookout Gawoni. He cupped his hands around his mouth and let out another shout. There were tears on his cheeks.
+	He has returned! Come everyone and see!
+	The crowds murmured and pointed. Ama went through them. She led her family through the crowds who had gathered. She saw Yaholo kneeling. She saw the old chief of peace, Kulsathee on his knees. And Tye the warrior also. There were tears in their eyes. And people walking to the middle of the grounds, to the tree.
+	At the base of the tree she saw her son. She saw him collapsed against the tree. The bucket empty beside him. She ran over and embraced the body of her son because there was no more life in it. She wept and held him in her arms.
+	My son.
+	It was only later that she realized that the tears of the others were not tears of sorrow like hers. They were tears of joy and their voices had a sound of hope in them. Her eyes lifted and she saw the trunk. She saw it was no longer charred. The tree had life in it. It lived again. The bark healthy and rich in color. She gazed up and saw those branches, which had always been barren in the past, were now full of leaves like they are in springtime, full and bright green they were. Delicate and fluttering in the winter air. Yet it was the fruit that at last turned Ama’s tears of sorrow into joy.
+	The large, round yellow fruit, bursting from its flowers on the ends of the limbs. There were multitudes of them on every branch all the way to the top of the tree. Some had fallen loose onto the ground and cracked open, spilling the deep red and orange flesh onto the ground. Underneath the canopy of the great tree the snow had melted and exposed the earth and although she wasn’t sure how it could be so, it was also warm there.
+	The people of the village had brought baskets. They collected the fallen fruit and marveled when they saw the empty stem on the branch immediately blossom in its place.
+	How strange it is, said a young girl to her mother, How strange in the dead of winter for the fruit to grow.
+	Ama saw the looks on their faces. They were in disbelief. They ate the fruit and the looks on their faces was first of shock and then a smile. Some broke into laughter and passed the fruit around to their families. They collected the fruit in baskets and shared with one another. As they ate their eyes grew bright and color returned to their cheeks. She watched all of this but did not once rise to join them. She held her son and kissed the hair on his head. How thin and frail he was. She remembered the night Sakima died, when she found him sleeping against the tree and wrapped the blanket around him. Her son would be honored like his father had been for he was the son of his father after all. He would be remembered forever in the stories and songs of their people. Mika, the boy with the bucket, the son of his father.
+	Kulsathee, the old chief of peace, rose to his feet and stood underneath the canopy of the ancient tree and he faced the people gathered there. He faced them with kind, tearful eyes and tried to express in words the feeling of hope he saw on all their faces and perceived in all their hearts. But the words did not come, so he sat again and instead watched the children sat around the base of the tree, where there was grass growing, laughing together and partaking of that strange and replenishing fruit.
