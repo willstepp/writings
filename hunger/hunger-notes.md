@@ -1,3 +1,21 @@
+THOUGHTS ON LISTENING TO HUNGER:
+
+The story's pace is good. The descriptions and action are unfocused at times and should 
+definitely be tightened up, always streamlined to the immediate purpose of the story. You'll 
+need to be wary of repetition of imagery (the ancient tree) and dialogue (words of father), 
+so the writing does not seem too artificial. The story is non-engaging in places. I think 
+that comes from the lack of action and dialogue during many scenes, where the story 
+is narrated rather than shown. Make sure transitions of time and place are clearer. It 
+might not be a good idea to start sections without context of setting and time. Experiment 
+there to see if its better to set the scene. Compare these notes with notes on reading the 
+text, some of this may have been caused by the digital voice reader. There are places where 
+tension is inconsistent and would be more effective if moments of relief are taken away. 
+The blizzard walk for example. Be aware of that. The blank, biblical tone is there so that 
+is good.
+
+THOUGHTS ON READING HUNGER:
+
+
 REVISIONS:
 
 Among the stars which are countless in number.
