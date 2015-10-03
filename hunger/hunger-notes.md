@@ -1,3 +1,12 @@
+Next to the lake he weeps. Not from sadness. Nor from happiness. From the burden of it. 
+Unspoken and perhaps unconscious to him it weighed on his heart. The tears helped.
+
+Tye (chief of war) to Mika: 'Leave it. Just stop. Nothing will come of it. Help us.'
+
+(THIS NEEDS IN THE STORY) It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
+
+(THIS NEEDS IN THE STORY) Come back to me again. Do not die out in my heart. I need your strength.
+
 THOUGHTS ON LISTENING TO HUNGER:
 
 The story's pace is good. The descriptions and action are unfocused at times and should 
@@ -40,9 +49,9 @@ Until now my path has been guided by fear and distraction, but no more.
 
 At the crevasse he remembers leaping from a too high branch into hi fathers arms, that is what gives him the courage to fall in. Then he discovers the tunnel up. On the other side he makes a bridge from tree branches.
 
-It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
+(THIS NEEDS IN THE STORY) It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
 
-Come back to me again. Do not die out in my heart. I need you with me.
+(THIS NEEDS IN THE STORY) Come back to me again. Do not die out in my heart. I need you with me.
 
 
 xDocumentary on Native American Tribes before European Colonization: 
