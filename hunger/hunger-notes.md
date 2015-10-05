@@ -1,4 +1,12 @@
-Next to the lake he weeps. Not from sadness. Nor from happiness. From the burden of it. 
+You should not have come back.
+My mother said the same.
+You should listen to your mother. Why did you come back?
+Mika had no answer.
+
+When Mika sees the tree burned emphasize the feeling of hopelessness. It was as if 
+the ground around the base of the tree fell away and revealed a void.
+
+Next to the lake he weeps. Not from sadness. Nor from happiness. From the burden. 
 Unspoken and perhaps unconscious to him it weighed on his heart. The tears helped.
 
 Tye (chief of war) to Mika: 'Leave it. Just stop. Nothing will come of it. Help us.'
