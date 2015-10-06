@@ -9,7 +9,7 @@ the ground around the base of the tree fell away and revealed a void.
 Next to the lake he weeps. Not from sadness. Nor from happiness. From the burden. 
 Unspoken and perhaps unconscious to him it weighed on his heart. The tears helped.
 
-Tye (chief of war) to Mika: 'Leave it. Just stop. Nothing will come of it. Help us.'
+Tye (chief of war) to Mika: 'Leave it. Just stop. Nothing will come of it. Nobody cares. Help us.'
 
 (THIS NEEDS IN THE STORY) It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
 
