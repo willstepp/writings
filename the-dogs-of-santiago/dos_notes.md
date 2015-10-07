@@ -1,3 +1,7 @@
+Why concern is he of yours? 
+Never mind that, how do you get to San Bernardo from here?
+This is not my business.
+
 The Dogs of Santiago Notes:
 
 * The opposite of the pretentious is the *real*
