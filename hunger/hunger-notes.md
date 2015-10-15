@@ -1,3 +1,6 @@
+The preparation for the feast, Mika pitches in and helps because he wants to be 
+distracted.
+
 Describe the back of the elderly woman at the beginning
 
 You should not have come back.
@@ -13,7 +16,7 @@ Unspoken and perhaps unconscious to him it weighed on his heart.
 
 Tye (chief of war) to Mika: 'Leave it. Just stop. Nothing will come of it. Nobody cares. Help us.'
 
-(THIS NEEDS IN THE STORY) It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
+(THIS NEEDS IN THE STORY, when he is unable to help his mother) It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
 
 (THIS NEEDS IN THE STORY) Come back to me again. Do not die out in my heart. I need your strength.
 
