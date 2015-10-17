@@ -1,9 +1,10 @@
 The scene where he discovers the charred remains of the tree. The world fell away, 
-the earth and the village crumbled and exposed the endless dark void. Mika stared into 
-this black space and no matter where he turned his head he could not escape from it. Always 
-he had known this was the reality of things, but had hoped in the deepest, most private 
-part of his being that he would never come face to face with it. But now it was here 
-and even if he shut his eyes and reopened them it was still here.
+the tree and the grounds and the village structures all crumbled away and exposed 
+an endless dark void. Mika stared into this black space and no matter how he turned 
+his head he could not escape from it. Always he had known this was the true reality 
+of the world, but had secretly hoped in the deepest, most private part of his being 
+that he would never have to face it. But now it was here and even if he shut his eyes 
+and reopened them it was still here, an inescapable horror.
 
 Minimize the 'storyness' of it.
 
@@ -29,7 +30,7 @@ Unspoken and perhaps unconscious to him it weighed on his heart.
 
 Tye (chief of war) to Mika: 'Leave it. Just stop. Nothing will come of it. Nobody cares. Help us.'
 
-(THIS NEEDS IN THE STORY, when he is unable to help his mother) It was a blessing to be able to do for others. Not a burden as so many thought. This he knew. As a boy he had not known this. But he was no longer a boy and he knew.
+(THIS NEEDS IN THE STORY, when he is unable to help his mother) It was a blessing to be able to do for others. Not a burden as so many thought. As a child he had not known this, but he was no longer a child and he knew.
 
 (THIS NEEDS IN THE STORY) Come back to me again. Do not die out in my heart. I need your strength.
 
