@@ -1,3 +1,12 @@
+The scene where he discovers the charred remains of the tree. The world fell away, 
+the earth and the village crumbled and exposed the endless dark void. Mika stared into 
+this black space and no matter where he turned his head he could not escape from it. Always 
+he had known this was the reality of things, but had hoped in the deepest, most private 
+part of his being that he would never come face to face with it. But now it was here 
+and even if he shut his eyes and reopened them it was still here.
+
+Minimize the 'storyness' of it.
+
 Read printed draft, make notes per section. Focus on expanding to add detail, but 
 only when necessary, and also to make the story more focused.
 

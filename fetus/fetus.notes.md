@@ -3,3 +3,5 @@ are barren and the ground is covered in leaves. The man is unable to remember hi
 name or where he's from. He can't event remember long he has been walking. He 
 discovers a strange fetus floating in a milky pond. In the surrounding forest 
 there are creatures who want to harm the fetus and he protects it from them.
+
+An enormous sun that overtakes the sky and burns away the leaves.
