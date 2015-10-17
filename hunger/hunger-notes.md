@@ -1,3 +1,7 @@
+Read printed draft, make notes per section. Focus on expanding to add detail, but 
+only when necessary, and also to make the story more focused.
+
+
 The preparation for the feast, Mika pitches in and helps because he wants to be 
 distracted.
 
