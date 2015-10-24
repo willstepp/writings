@@ -1,0 +1,1 @@
+Canoes were not only important for travelling, trading, and fishing, but for bringing the hunter closer to his quarry. In regions where moose, elk and deer abounded, they often had to be pursued across watery terrain. Even the buffalo hunters of the Plains would float down the broad rivers to approach a herd.

@@ -1,10 +1,8 @@
+A valley where the Raven Mocker lives is to be avoided at all costs. He must travel through it, and overcome the superstition.
+
 The scene where he discovers the charred remains of the tree. The world fell away, 
 the tree and the grounds and the village structures all crumbled away and exposed 
-an endless dark void. Mika stared into this black space and no matter how he turned 
-his head he could not escape from it. Always he had known this was the true reality 
-of the world, but had secretly hoped in the deepest, most private part of his being 
-that he would never have to face it. But now it was here and even if he shut his eyes 
-and reopened them it was still here, an inescapable horror.
+an endless void. Mika stared into this black space and no matter how he turned his head he could not escape from it. Always he had known this was the secret truth of the world, but had prayed in the deepest, most private part of his being that he would never have to face it. But now it was here and even if he shut his eyes and reopened them it was still here, an inescapable horror.
 
 Minimize the 'storyness' of it.
 

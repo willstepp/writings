@@ -1,0 +1,7 @@
+On occasion, a whole community would turn out and join together in capturing game. In the Great Basin, women and children would cooperate in trapping rabbits with nets when jack-rabbits became especially plentiful. The Basketmakers of the Southwest were expert weavers of such nets.
+
+Indians were clever at luring animals by baited traps. They dug concealed pits; they constructed free-swinging snares from sappy branches. They also combined together to lure the larger herds onto ground where they could easily be slaughtered. The Stone Age technique of coaxing or scaring buffalo up a slope at the edge of a ravine persisted. When pursuing a deer, a hunter would don the skin, mask and antlers of a deer in order to slip in among the herd. Indians were also gifted at decoying birds and animals by imitating their calls, their mating signals, and the cries of their young.
+
+As for fishermen, they were every bit as resourceful of the huntsmen. The Indian also knew the art of 'tickling', sliding a hand in a mountain stream and holding it motionless until a fish nudges against it and can be grabbed.
+
+When fishing on a large scale, the Indian was skilled at constructing dams, weirs, platforms, and elaborate pens of reeds and osiers. In these the fish were speared, clubbed, shot with bow, or scooped out in wicker baskets. Seine and purse-nets of plaited vines, often requiring many men to handle, were also used. The tribes of the Southeast hit upon a root, narcotic but not poisonous, which they ground up and threw into the water to stun the fish (buckeye)

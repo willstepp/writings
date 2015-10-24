@@ -1,0 +1,1 @@
+All Indians held the bear in reverance. After dispatching a bear, an Indian would often perform a little ritual such as apologizing to it, placing a pipe of tobacco between its lips, addressing it as 'grandfather' or 'grandmother', and seeking in every way to appease its spirit.

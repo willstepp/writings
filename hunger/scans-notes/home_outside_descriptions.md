@@ -1,0 +1,17 @@
+Villages were dotted with these squat, picturesque hogans, as they are called. Their floor-plan is circular, to symbolize the sun and the universe, and their dome-shaped wooden roofs are coated with hard-packed earth. The entrance is a simple aperture covered by a blanket, facing east, again to honor the sun. Outside the main hogan, a little distance from it, would be situated the sweat lodge (hot house), a small hogan without a smokehole, where the family could indulge in the equivalent of a modern sauna. Such sweat-baths were a common feature of Indian Life throughout North America. Also near the hogan would be the ramada, a brush-covered frame with four poles at the corners, beneath the shade of which the older folk could snooze, the children play, and the wife sit comfortably at her loom, or preparing food for the family meal.
+
+http://www.aaanativearts.com/cherokee/cherokee-houses.htm
+Cherokee Houses - Dwellings - Lodges
+
+At the time of contact, the Cherokee were a settled, agricultural people living in approximately 200 fairly, large villages. The typical Cherokee town consisted of 30 to 60 houses and a large council house. They built permanent, well-organized villages in the midst of extensive cornfields and gardens throughout the fertile river valleys of the Cherokee country. 
+
+In these villages, homes ranged around a central plaza used for dances, games, and ceremonies. At one end of the plaza, the council house, or townhouse, held the sacred fire, symbol of the Creator and embodiment of the spirit of the town. Often the townhouse stood on an earthen mound from the earlier Mississippian culture, although the Cherokee themselves did not build mounds during the historic period. However, the mounds sometimes grew with successive, ceremonial rebuildings. 
+
+Ancient Cherokee Village
+The size of the townhouse varied, depending on the size of each village, since it had to be large enough for all the people to meet to discuss community matters and hold festivals. Council houses, as they were also called, were made of saplings (young trees) and mud. The Cherokee would gather at the council house for parties, political assemblies and religious ceremonies. Bunched around the council house was a collection of extended family homes. 
+
+Some cherokees lived in a different style of house in the summer than the winter. Summer houses were in the shape of a square or rectangle. Upright poles formed the framework. The outside was covered with bark, wood or woven siding coated with earth and clay. This type of construction with clay is called wattle and daub. The cherokee dwelling was usually quite large, because Cherokees lived in extended matrilineal families consisting of the mother's parents, the parents, children, and unmarried siblings of the mother of the house. A husband joined the family of his wife.
+
+During the winter, some Cherokee lived in a smaller, circular, dome shaped structure that looked like a beehive or an upsidedown basket. It was partially sunken into the ground. This style of Cherokee lodge was called an asi. Being smaller and lower than the summer homes, it was easier to keep warm in winter.
+
+In later years, many Cherokee, lived in the same kind of houses the European settlers lived in -- log cabins and wooden houses. A typical log cabin had one door and a smoke hole in the center of the roof. 
