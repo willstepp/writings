@@ -1,8 +1,12 @@
+Mika at peace on the mountain, considers staying
+
+Be sure to meditate on the place you're writing about, in as much detail as you can. This is important because you are not working from memory. All senses.
+
 A valley where the Raven Mocker lives is to be avoided at all costs. He must travel through it, and overcome the superstition.
 
 The scene where he discovers the charred remains of the tree. The world fell away, 
 the tree and the grounds and the village structures all crumbled away and exposed 
-an endless void. Mika stared into this black space and no matter how he turned his head he could not escape from it. Always he had known this was the secret truth of the world, but had prayed in the deepest, most private part of his being that he would never have to face it. But now it was here and even if he shut his eyes and reopened them it was still here, an inescapable horror.
+an endless void. Mika stared into this black space and no matter how he turned his head he could not escape from it. Always he had known this was the secret truth of his existence, but had prayed in the deepest, most private part of his being that he would never come face to face with it. But now it was here and even if he shut his eyes and reopened them it was still here.
 
 Minimize the 'storyness' of it.
 
@@ -23,8 +27,7 @@ Mika had no answer.
 When Mika sees the tree burned emphasize the feeling of hopelessness. It was as if 
 the ground around the base of the tree fell away and revealed a void.
 
-Next to the lake he weeps. Not from sadness. Nor from happiness. From the burden. 
-Unspoken and perhaps unconscious to him it weighed on his heart.
+Next to the lake he weeps. Not from sadness. Nor from happiness. From the burden. Unspoken and perhaps unconscious to him it weighed on his heart.
 
 Tye (chief of war) to Mika: 'Leave it. Just stop. Nothing will come of it. Nobody cares. Help us.'
 

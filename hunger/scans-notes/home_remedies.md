@@ -1,0 +1,5 @@
+In the case of simple or straightforward ailments, it was not necessary to summon the medicine-man. The housewife had her own remedies. She knew how to treat the bites of the lice, ticks, fleas, mosquitos and other noxious insects that everywhere abounded, and which often made camp and village life miserable. For arthritis and rheumatism she prescribed sweat-baths. She could set sprains and broken limbs, and apply poultices to boils and bruises.
+
+Poultice: a soft, moist mass of material, typically of plant material or flour, applied to the body to relieve soreness and inflammation and kept in place with a cloth.
+
+She could mix doses for dysentery, or for the less serious forms of stomach upset and headache. Her medicine cupboard contained such specifics as quinine, sassafras, datura, ipecac, cascara, and witch hazel, all of which later passed into modern usage.

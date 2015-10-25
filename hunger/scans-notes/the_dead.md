@@ -1,0 +1,4 @@
+wailing and lamentation that might last up to four days. The mourners would beat their breasts, tear their hair, and gash themselves with knives. Men too would join in the loud demonstrations of grief, to relieve themselves once and for all of all residues of sorrow.
+
+Usually the rites surrounding the cremation or interment of a dead person were simple. Either the dead man was placed in a grave, accompanied by his favorite tools and weapons, with food and water to sustain him on his journey to the next world; or he was put on a platform to be consumed by flames. Sometimes he was placed in a cave, a cleft in a rock, or under a boulder, while the Teton Dakota adopted a practice of wrapping the corpse in a cere cloth and wedging it in the fork of a tree, where it was allowed to shrivel and decompose.
+
