@@ -1,0 +1,3 @@
+Petroglyphs (engravings in rock) are found all over North America. Occasionally they feature stylized, stick-like human beings, or human feet, arms, legs, and fingers. More often, they offer a repertoire of geometrical shapes (circles, ovals, squares, oblongs, triangles, trapeziums) or an amazing series of animals, birds, reptiles, insects. Sometimes they are crowded into a single spot or they can exist alone, in a remote and inaccessible place.
+
+They made have been done by idlers, hunters, lovers, or for personal spiritual expression.
