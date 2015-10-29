@@ -1,0 +1,5 @@
+The conjurers put the sun another hand-breadth higher in the air, but it was still too hot. They raised it another time, and another, until it was seven hand-breadths high and just under the sky arch. Then it was right and they left it so. This is why the conjurers call the highest place, Gulkwagine Digalunlatiyun, 'the seventh height', because its seven hand-breadths above the earth. Every day the sun goes along under this arch, and returns at night on the upper side to the starting place.
+
+There is another world under this, and it is like ours in everything - animals, plants, and people - save that the seasons are different. The streams that come down from the mountains are the trails by which we reach this underworld, and the springs at their heads are the doorways by which we enter it, but to do this one must fast and go to water and have one of the underground people for a guide. We know that the seasons in the underworld are different from ours because the water in the springs is always warmer in winter and cooler in summer than the outer air.
+
+Young men fast and keep awake for seven nights when they pray to their medicine.
