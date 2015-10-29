@@ -1,0 +1,1 @@
+like a fish in a trap - caught defenseless and unable to escape

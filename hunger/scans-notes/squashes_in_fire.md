@@ -1,0 +1,1 @@
+The mother was at the fireplace early and pulled some roasted squashes out of the ashes, and after putting them out, she left them for him to eat.
