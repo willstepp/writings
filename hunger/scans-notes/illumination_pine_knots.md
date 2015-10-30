@@ -1,0 +1,1 @@
+Blazing pine knots - torches of seasoned pine knots are much in use among the Cherokee for lighting up the way on journeys along the difficult mountain trails by night. Owing to the accumulation of resin in the knots they burn with a bright and enduring flame, far surpassing the cloudy glow of a lantern.
