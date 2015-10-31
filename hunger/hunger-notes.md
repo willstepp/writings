@@ -1,8 +1,15 @@
+You have to resist the desire to put a point on themes, pull back on those aspects of the story. Let it be pure 
+action and dialogue and description.
+
+Don't use Mika's name so much, it 'storifies' it in a way that is artificial.
+
 Mika at peace on the mountain, considers staying
 
 Be sure to meditate on the place you're writing about, in as much detail as you can. This is important because you are not working from memory. All senses.
 
-A valley where the Raven Mocker lives is to be avoided at all costs. He must travel through it, and overcome the superstition.
+A gorge where the Raven Mocker lives is said to live is to be avoided at all costs. He must travel through it, and overcome the superstition. He finds a tree of black birds, beating the wind in unison, their screams echoing off the steep hillside.
+
+https://en.wikipedia.org/wiki/Raven_Mocker
 
 The scene where he discovers the charred remains of the tree. The world fell away, 
 the tree and the grounds and the village structures all crumbled away and exposed 
