@@ -11,19 +11,24 @@ What kind of tree is this? How old is it? When was it last alive?
 Nobody knows. It is a mystery.
 One day I will know.
 Will you?
-Yes.
+Yes, father.
 And you think it will be better to know?
-Of course. Don't you, father?
+Of course.
+I myself prefer the mystery.
+Why?
 Some see the purpose of the mystery as a puzzle to be solved or an obstacle to be 
-overcome. Some believe that once all the mysteries in the world are known they will 
-be happier because then they will have a perfect knowledge of their surroundings. 
-With such knowledge we will never lack for food and water, they argue. With such 
-knowledge we will live forever. But the hidden desire in such hearts is domination,
+overcome. Some believe that once all the mysteries in nature are known we will 
+be happier because then we will have a perfect understanding of our surroundings. 
+With such knowledge we will never again lack for food and water, they argue. With 
+such knowledge we may live forever. But the hidden desire in such hearts is domination,
 the will to conquer and control. Such a path will not bring true happiness because 
-they will starve for lack of nourishment of another kind. Knowledge cannot provide 
-them with this nourishment. It cannot provide them what they truly hunger for.
-And what do people truly hunger for?
-But he would not say.
+we will starve for lack of nourishment of another kind, and knowledge can never provide 
+this nourishment. It cannot provide that which we truly hunger for.
+What is this nourishment? Tell me, father.
+But the old man would not say anything more. He took his son into his lap and in silence 
+they admired those ancient, twisted limbs which reached into the reddening sky until they 
+heard the clanging of the pots which meant it was suppertime and they headed home together, 
+hand in hand.
 
 
 You have to resist the desire to put a point on themes, pull back on those aspects of the story. Let it be pure 
