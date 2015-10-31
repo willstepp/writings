@@ -21,9 +21,9 @@ believe that once all the mysteries in nature are known we will be happier becau
 then we will have a perfect understanding of our surroundings. With such knowledge 
 we will never again lack for food and water, they argue. With such knowledge we may 
 even live forever. But the hidden desire in such hearts is domination, the will to 
-conquer and control. Such a path cannot bring true happiness because we will starve 
-for lack of nourishment of another kind, a nourishment for which knowledge can never 
-provide. That which we truly hunger for.
+conquer and control the world. Such a path cannot bring true happiness because we 
+will starve for lack of nourishment of another kind, a nourishment for which knowledge 
+can never provide. That which we truly hunger for.
 What is that, father?
 But the old man would not say anything more. He took his son into his lap and in silence 
 they admired those ancient, twisted limbs which reached into the reddening sky until they 
