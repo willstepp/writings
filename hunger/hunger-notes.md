@@ -16,15 +16,15 @@ And you think it will be better to know?
 Of course.
 I myself prefer the mystery.
 Why?
-Some see the purpose of the mystery as a puzzle to be solved or an obstacle to be 
-overcome. Some believe that once all the mysteries in nature are known we will 
-be happier because then we will have a perfect understanding of our surroundings. 
-With such knowledge we will never again lack for food and water, they argue. With 
-such knowledge we may live forever. But the hidden desire in such hearts is domination,
-the will to conquer and control. Such a path will not bring true happiness because 
-we will starve for lack of nourishment of another kind, and knowledge can never provide 
-this nourishment. It cannot provide that which we truly hunger for.
-What is this nourishment? Tell me, father.
+Some see the mystery as a puzzle to be solved or an obstacle to be overcome. Some 
+believe that once all the mysteries in nature are known we will be happier because 
+then we will have a perfect understanding of our surroundings. With such knowledge 
+we will never again lack for food and water, they argue. With such knowledge we may 
+even live forever. But the hidden desire in such hearts is domination, the will to 
+conquer and control. Such a path cannot bring true happiness because we will starve 
+for lack of nourishment of another kind, a nourishment for which knowledge can never 
+provide. That which we truly hunger for.
+What is that, father?
 But the old man would not say anything more. He took his son into his lap and in silence 
 they admired those ancient, twisted limbs which reached into the reddening sky until they 
 heard the clanging of the pots which meant it was suppertime and they headed home together, 
