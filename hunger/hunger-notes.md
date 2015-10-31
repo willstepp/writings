@@ -1,3 +1,31 @@
+After the success of the hunt, all that. He realizes he has been living outside 
+of himself. And it meant nothing to him within.
+
+Moments of contentment, not an active happiness.
+
+At the tree the first night, a brief conversation between Mika and his father, 
+concerning the mystery of the tree and its unknowable nature:
+
+
+What kind of tree is this? How old is it? When was it last alive?
+Nobody knows. It is a mystery.
+One day I will know.
+Will you?
+Yes.
+And you think it will be better to know?
+Of course. Don't you, father?
+Some see the purpose of the mystery as a puzzle to be solved or an obstacle to be 
+overcome. Some believe that once all the mysteries in the world are known they will 
+be happier because then they will have a perfect knowledge of their surroundings. 
+With such knowledge we will never lack for food and water, they argue. With such 
+knowledge we will live forever. But the hidden desire in such hearts is domination,
+the will to conquer and control. Such a path will not bring true happiness because 
+they will starve for lack of nourishment of another kind. Knowledge cannot provide 
+them with this nourishment. It cannot provide them what they truly hunger for.
+And what do people truly hunger for?
+But he would not say.
+
+
 You have to resist the desire to put a point on themes, pull back on those aspects of the story. Let it be pure 
 action and dialogue and description.
 
