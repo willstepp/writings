@@ -7,3 +7,4 @@ Some say this everlasting fire was only in the larger mounds at Nikwasi Kituhwa 
 The Cherokee once had a wooden box, nearly square and wrapped up in buckskin in which they kept the most sacred things of their old religion. Upon every important expedition two priests carried it in turn and watched over it in camp so that nothing could come near to disturb it. The Delewares captured it more than a hundred years ago, and after that the old religion was neglected and trouble came to the nation. They had also a great peace pipe, carved from white stone, with seven stem-holes, so that seven men could sit around and smoke from it at once at their peace councils. In the old town of Keowee they had a drum of stone, cut in the shape of a turtle, which was hung up inside the townhouse and used at all the town dances. The other towns would borrow it.
 
 All the old things are gone now and the Indian are different.
+
