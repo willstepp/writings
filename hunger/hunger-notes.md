@@ -1,3 +1,6 @@
+As he lay under the skies he thought about things. Funny things like why the 
+sky was the sky and the earth was the earth. Why were they separate?
+
 http://www.cherokeebyblood.com
 
 After the success of the hunt, all that. He realizes he has been living outside 
