@@ -96,7 +96,7 @@ When I was a child this is what the old men told me they had heard when they wer
   The boy said no more. He looked more lost than ever. Ama thought for a moment and her face brightened.
   “Look at me, Mika. Listen.”
   He did so.
-  “Your heart is divided. Two paths have appeared in front of you. Until you find the way that connects them, to find the balance, you will never have peace in your heart. But cheer up, son. Your friends will always be here for you. You will play games with them again, like it was before. But first you must find the balance.”
+  “Your heart is divided. The path you walk has diverged and now there are two paths in front of you. But often there is a hidden path that connects the two, somewhere down the way. You must find this connection, or else you will never have peace in your heart. But cheer up, son. Your friends will wait for you. You will play games with them again, like it was before. But first you must find the path that connects.”
   His eyes filled with tears.
   “Is that all true? Can it really be that way?”
   “It is true.”
