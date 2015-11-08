@@ -1,3 +1,11 @@
+eanger-irving-couse
+evening solitude
+young hunter by a stream
+moonlight meditation
+sacred water
+http://www.encore-editions.com/eanger-irving-couse-sacred-water/download
+figure-by-a-stream
+
 how does this scene move the story along?
 mika is unable to resume his normal life, because of the words
 

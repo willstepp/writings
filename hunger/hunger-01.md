@@ -39,8 +39,8 @@ When I was a child this is what the old men told me they had heard when they wer
   “I am not hungry.”
   But he knew it was not a request, and that she would not leave him be until he ate, so he picked up the bowl and drank the soup down with only a few gulps. It was good, rich and sweet. Leoti then placed a wrapped cloth full of bread and roasted deer meat next to the bowl. It was still warm and the grease seeped through the wrappings.
   “Eat.”
-  He ate the bread and meat too and then invited her to sit next to him. She did so. He noticed she did not try to console him though he saw the pity in her expression. Slowly his mood changed as the food restored his energy. The meat was good. The bread too. He had not realized how truly hungry he was. They sat together while the fire burned. He was happy she was here. Now when he looked at the people gathered in the ceremonial grounds he saw them differently. He saw that it was love that had brought them together and that was not something to take for granted. He felt that love himself and no longer wanted to be alone. He took Leoti by the hand and led them both to the place where his family sat. Ama’s eyes widened when she saw her son and hugged and kissed him.
-  As the evening went on the family was greeted by everyone who came. This was the rite of consolation. Then when it was late and the fire had burned low the people came closer and they took turns telling stories about the old medicine man. Each story surprised him as it was like they were talking about someone other than his father. 
+  He ate the bread and meat too and then invited her to sit next to him. She did so. He noticed she did not try to console him though he saw the pity in her eyes. The meat was good. The bread too. He had not realized how truly hungry he was. They sat together while the fire burned. He was happy she was here. Now when he looked at the people gathered in the ceremonial grounds he saw them differently than before. He saw the love that had brought them together and that this love was not something to take for granted. He felt it himself and no longer wanted to be alone. He took Leoti by the hand and led them both to the benches where his family sat. Ama’s eyes widened when she saw her son and hugged him warmly.
+  As the evening went on the family was greeted by everyone who came. This was the rite of consolation. When it was late and the fire had burned low the people who remained came closer and they each took turns telling stories about the old medicine man. Each story surprised the boy because it was like they were talking about someone other than his father. 
   At last Kulsathee rose from his spot in the circle of elders. He was a large, rotund man with long graying hair. He was the chief of peace and had been the leader of their tribe ever since before the boy was born. There were deep lines in his face and whenever he smiled, which he did often, the lines grew deeper still, like bunched up leather. His eyes were red and cheeks were wet from many tears.
   “All the old things are gone now and the people are different.  When we were boys Sakima and I roamed these forests and hunted together. Even then he was drawn to the mysteries of nature. He would commune with the spirit of the trees to reveal where the rabbits were hidden. We caught so many! I loved Sakima, whom you all knew, from the time we were both young and had our entire lives in ahead of us. But all the old things are gone now and the people are different. He was my good friend and I will miss him.”
   It was then, in the lull between speakers, that the boy felt compelled to rise and tell them all what his father had said to him on his deathbed. He rose and approached the center of the circle near the remnants of the bonfire whose embers still glowed and gave off heat. Nobody said anything when they saw him approach. Kulsathee walked up to him and held both of his arms in the gesture of great kinship and then returned to his seat with the elders.
@@ -51,7 +51,7 @@ When I was a child this is what the old men told me they had heard when they wer
   For many seasons now the best player in the village was Mika. This was well known and there was even a rule put in place by the gamblers so one could not bet Mika more than four times in one day. And yet, ever since his the passing of Sakima, whose name was forbidden to be spoken aloud for one year, his game had fallen off considerably. He was no longer the sure bet he used to be, and both the elders and certain children were beginning to take advantage of it.
   Mohe, an athletic but not particularly bright boy, had challenged him to a game earlier that morning. Mika had not felt like playing today, but when he saw the expectant faces of the elders at the other end he rose from the sidelines, where he sat with Tye, and took up his spear.
   “I will go easy on you today,” Mohe taunted him. He twirled his spear upright and deftly threw it at a practice target a little ways from them.
-  Mika ignored him and ran his hands along the grain of his spear, then walked to the arena. The disc tosser got in position and gave the ready signal with a wave of his hand. Mika and Mohe lined up on the markers at the edge of the arena. From here the boy could see the northern mountains, their snowy ridges hovering faintly blue over the treeline of the surrounding forest. Here was the only place in their village from which you could see the mountain range. The boy was unable to focus on anything else as long as he could see them as they reminded him of his father and the words that had been spoken to him the night he passed away.
+  Mika ignored him and ran his hands along the grain of his spear, then walked to the arena. The disc tosser got in position and gave the ready signal with a wave of his hand. Mika and Mohe lined up on the markers at the edge of the arena. From here the boy could see the northern mountains, their snowy ridges hovering faintly blue over the treeline of the forest. This was the only place in the village from which you could see the far mountain range. He was unable to focus on anything else as long as he could see them, as they reminded him of his father and the words that had been spoken to him the night he passed away.
   Being distracted he was slow off the mark and missed the timing of his throw. His spear wobbled in the air and landed at an odd angle, barely sticking into the ground. This was his worst performance yet and he knew it even before they measured the points. It had landed at least a few feet away, embarrasingly far.
   Mohe excitedly ran onto the arena where his spear stuck mere inches from the disc. When the points were counted up he had won by four points, three notches to Mika’s seven. Mohe was thrilled and ran about the whole arena, shouting to the other children that he had defeated the great player by a huge margin. Then he ran to the scorekeeper and made sure they had recorded it properly. The elders cheered him from afar, as they had started placing their bets on anyone who opposed the boy, his performance had been so bad.
   Truly he did not care. He sat down again on the sidelines and fixed his gaze on those faraway mountains and thought about his father, whose name even he was forbidden to utter now. His friend Tye approached and saw where he was looking, but said nothing.
@@ -61,18 +61,44 @@ When I was a child this is what the old men told me they had heard when they wer
   Tye scanned the field and saw Mohe now among a group of girls who sat in a circle underneath an oak tree sewing bead necklaces. They looked annoyed at him. Leoti was among them. It was obvious most of his attention was given to her.
   “Mohe has been flirting with Leoti. I have seen it before. What do you think about that?”
   “Let him. I don’t care what that frog eater does.”
-  Tye laughed. Then he dropped his own spear on the ground next to his friend, 
-  “Use mine, Mika. Challege him again, for me. I just want to see the look on his ugly face when you defeat him. Imagine!”
-  The boy looked at him.
+  Tye laughed. Then he dropped his own spear on the ground next to him.
+  “Use mine. Challege him again, for me. I just want to see the look on that ugly face when you beat him. Imagine!”
+  The boy looked at his friend with a curious expression.
   “My spear is good. See for yourself.”
   Tye picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for any imperfection, but found nothing.
   “Your spear is good. No splinters. No warp. How did you lose?”
   The boy once more looked to the mountains. He did not want to say exactly what it was that troubled him.
-  “My head is not right, ever since my father passed.”
-  His friend nodded. He too looked towards the mountains but did not understand their significance to him.
+  “My head is not right ever since my father passed.”
+  His friend nodded. He too looked towards the mountains but did not understand their significance.
   “Time will make it better,” Tye said, “You will see.” His brother had died in a hunting accident two summers ago, so he understood loss and therefore spoke from a place of wisdom. He rose and clasped one hand on the shoulder of his friend and stared him in the eyes.
-  “You are the best of them all, don’t forget! There is nobody who can defeat you in tchungkee. This I know.”
+  “You are the best of them all, and don’t forget it. There is nobody in the village who can defeat you in tchungkee.”
   Tye left to join a game of dice that had just started on the other side of the field, but shouted over his shoulder.
-  “Except for me, that is!”
-  The boy grinned and waved his friend away. A few moments later his eyes went back to those mountains whose peaks reached to such heights that the snows never melted. Then much later he rose and went to find his mother.
+  “Except for me, of course!”
+  The boy grinned and waved his friend away. A few moments later his eyes went back to the mountains. Then much later he rose and went to find his mother.
+  Ama sat outside with a group of young girls, teaching them how to flesh deer hides for the tanning process. When she scraped the broad, flint blade down the hide draped over the wooden incline her shoulder muscles rippled. She moved like a woman twenty years younger than she was. When the girls took their clumsy turns at the hide it merely served to show how adept the old woman was at her work. But she was patient and kind and therefore was a good teacher to them.
+  When she saw her son approach she wiped her hands on a cloth and embraced him. It was obvious from the way he appeared, head down and thoughtful, that something was the matter.
+  “Let us walk,” she said.
+  Ama told the girls to finish the hide they were working on and then take a break.
+  “May we go for a swim?”
+  “You may.”
+  Then Ama and her son walked together along the path that led out of the village gates. The doors were opened this time of year and from here they could hear echoes of the children playing in the arena the boy had just come from.
+  “Why are you not with your friends?”
+  “I was,” the boy began, “but I lost a game of tchungkee to Mohe. The elders no longer bet on the strength of my spear.”
+  “Is that why you are sad?”
+  He said nothing, only looked at her.
+  “Of course it isn’t,” Ama pushed back his hair over his ears, “Now tell me what troubles you.”
+  He wondered if he should confess everything to her, those eyes so full of compassion and understanding. He would not, but did tell her enough so that she could understanding and perhaps help him know what to do.
+  “The night father died, he whispered something in my ear. Do you remember?”
+  “I do.”
+  “He asked something of me, a thing I must do. And ever since then it is always on my mind. Even though things are back to normal and life has continued on, almost as if it never happened, the words are always there. So I tell myself, this thing can wait. The world will not end. There is time enough to do it later. But then I try to enjoy the things I did before and I can no longer enjoy them. Because of those words, you see. Because of the thing that has been asked of me.”
+  The boy stopped on the path and his mother did the same. He glanced to the direction of the mountains, though they were hidden by hills from here. Ama followed his gaze but did not ask why he looked there. She only listened.
+  “I want things to go back how it was before, when life was carefree and fun. I want to play with my friends again, without the words of my father there to distract me. They pull me away. I do not want it.”
+  The boy said no more. He looked more lost than ever. Ama thought for a moment and her face brightened.
+  “Look at me, Mika. Listen.”
+  He did so.
+  “Your heart is divided. Two paths have appeared in front of you. Until you find the way that connects them, to find the balance, you will never have peace in your heart. But cheer up, son. Your friends will always be here for you. You will play games with them again, like it was before. But first you must find the balance.”
+  His eyes filled with tears.
+  “Is that all true? Can it really be that way?”
+  “It is true.”
+  They embraced once more and then returned inside the gates of the village. The late afternoon shone through the spaces between palisades and lit geometric shapes onto the dirt path in front of them. It was suppertime and in the breeze was the aroma of barbecued fish and corn-and-bean bread baking on the fire.
   
