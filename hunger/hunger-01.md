@@ -70,7 +70,7 @@ When I was a child this is what the old men told me they had heard when they wer
   The boy once more looked to the mountains. He did not want to say exactly what it was that troubled him.
   “My head is not right, ever since my father passed.”
   His friend nodded. He too looked towards the mountains but did not understand their significance to him.
-  “Time will make it better,” Tye said, “You will see.” His brother had died in a hunting accident two summers ago, so he understood loss and therefore spoke from a place of wisdom. He rose and claspsed one hand on the shoulder of his friend and stared him in the eyes.
+  “Time will make it better,” Tye said, “You will see.” His brother had died in a hunting accident two summers ago, so he understood loss and therefore spoke from a place of wisdom. He rose and clasped one hand on the shoulder of his friend and stared him in the eyes.
   “You are the best of them all, don’t forget! There is nobody who can defeat you in tchungkee. This I know.”
   Tye left to join a game of dice that had just started on the other side of the field, but shouted over his shoulder.
   “Except for me, that is!”
