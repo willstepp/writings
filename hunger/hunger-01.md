@@ -94,9 +94,9 @@ When I was a child this is what the old men told me they had heard when they wer
   The boy stopped on the path and his mother did the same. He glanced to the direction of the mountains, though they were hidden by hills from here. Ama followed his gaze but did not ask why he looked there. She only listened.
   “I want things to go back how it was before, when life was carefree and fun. I want to play with my friends again, without the words of my father there to distract me. They pull me away. I do not want it.”
   The boy said no more. He looked more lost than ever. Ama thought for a moment and her face brightened.
-  “Look at me, Mika. Listen.”
+  “Look at me, Mika.”
   He did so.
-  “Your heart is divided. The path you walk has diverged and now there are two paths in front of you. But often there is a hidden path that connects the two, somewhere down the way. You must find this connection, or else you will never have peace in your heart. But cheer up, son. Your friends will wait for you. You will play games with them again, like it was before. But first you must find the path that connects.”
+  “Your heart is divided. The path you walk has diverged and now there are two paths in front of you. Yet often there is a hidden path that connects the two, somewhere down the way. Therefore you must find this connection, or else you will never have peace in your heart. But cheer up! Your friends love you and will wait until you have done the thing that was asked of you. You will play games with them again, like it was before. But first you must find the path that connects, to reconcile what has diverged.”
   His eyes filled with tears.
   “Is that all true? Can it really be that way?”
   “It is true.”
