@@ -1,3 +1,15 @@
+how does this scene move the story along?
+mika is unable to resume his normal life, because of the words
+
+what is the conflict?
+he cannot perform in the game like he used to, which represents the larger problem of not being able to do the things he used to enjoy
+
+who/what are the antagonists?
+mohe, an unintelligent but athletic boy, proud of his skills. also, the village elders, who abandon him
+
+how is it resolved?
+he speaks with his mother who tells him to find balance
+
 As he lay under the skies he thought about things. Funny things like why the 
 sky was the sky and the earth was the earth. Why were they separate?
 
