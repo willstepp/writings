@@ -1,3 +1,7 @@
+The paths do not converge, mama. I had hoped that they would.
+So did I.
+They do not and will not ever.
+
 A calm within. Not happiness in some outward display of emotion. Contentment. The 
 purity of placing one foot in front of the other, in meaningful repitition, in 
 movement towards some object. He felt the abstraction of it, the universal thing 
