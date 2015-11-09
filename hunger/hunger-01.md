@@ -90,15 +90,15 @@ When I was a child this is what the old men told me they had heard when they wer
   He wondered if he should confess everything to her, those eyes so full of compassion and understanding. He would not, but did tell her enough so that she could understanding and perhaps help him know what to do.
   “The night father died, he whispered something in my ear. Do you remember?”
   “I do.”
-  “He asked something of me, a thing I must do. And ever since then it is always on my mind. Even though things are back to normal and life has continued on, almost as if it never happened, the words are always there. So I tell myself, this thing can wait. The world will not end. There is time enough to do it later. But then I try to enjoy the things I did before and I can no longer enjoy them. Because of those words, you see. Because of the thing that has been asked of me.”
+  “He asked me to do something. And ever since then it is always on my mind. Even though things are back to normal and life has continued on, as if it never even happened, his words are always there. I tell myself, there is no rush. It can wait. There is time enough to do it later. But then I try to enjoy the things I did before and I cannot. Because of them, you see. What my father said to me.”
   The boy stopped on the path and his mother did the same. He glanced to the direction of the mountains, though they were hidden by hills from here. Ama followed his gaze but did not ask why he looked there. She only listened.
-  “I want things to go back how it was before, when life was carefree and fun. I want to play with my friends again, without the words of my father there to distract me. They pull me away. I do not want it.”
+  “I want things to go back how they were before, when life was carefree and full of joy. I want to play with my friends again, without this voice in my head. Its pulls me away from them.”
   The boy said no more. He looked more lost than ever. Ama thought for a moment and her face brightened.
   “Look at me, Mika.”
   He did so.
-  “Your heart is divided. The path you walk has diverged and now there are two paths in front of you. Yet often there is a hidden path that connects the two, somewhere down the way. Therefore you must find this connection, or else you will never have peace in your heart. But cheer up! Your friends love you and will wait until you have done the thing that was asked of you. You will play games with them again, like it was before. But first you must find the path that connects, to reconcile what has diverged.”
-  His eyes filled with tears.
-  “Is that all true? Can it really be that way?”
-  “It is true.”
+  “Your heart is now like a path that has split in two. This way and that. To find peace you must find the place where the two paths reconcile. Your friends love you and will wait until you have returned from the other way. You will play games with them again, just like it was before. Do you what your heart tells you and you can never step wrong. And cheer up, my son, don’t be afraid of life. This is it!”
+  The boy’s eyes filled with tears.
+  “Is that all true? Can it really be like you say?”
+  “I believe it is.”
   They embraced once more and then returned inside the gates of the village. The late afternoon sun shined through the spaces between the palisade poles and lit geometric shapes onto the path in front of them. It was now suppertime and in the breeze was an aroma of barbecued fish and cornbread baking on the fire.
   

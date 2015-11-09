@@ -1,3 +1,5 @@
+Use 'his voice' instead of words, might make it less annoying
+
 eanger-irving-couse
 evening solitude
 young hunter by a stream
