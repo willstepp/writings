@@ -28,7 +28,7 @@ When I was a child this is what the old men told me they had heard when they wer
   A platform constructed from reeds was being raised in the center of the grounds, near the trunk of the great tree and the high mound upon which rested the council house, where the chief resided. The boy set immediately to work lashing together the platform with strips of buckskin. If any of the others noticed him as the son of the departed they did not say so. They treated him like any other and that was the way he liked it.
   The remainder of the day he helped with the preparations. By now the sun was going down and shined through the treetops. The boy was covered with dirt and his arms and back ached from the labor of the day. He sat and watched the women set up tables near the platform and then dishes of all kinds were brought out and arranged upon them. Roasted deer meat, pork, rabbit and other game were at the center. Then surrounding those steaming dishes were bowls filled with sour mashed hominy, locust-pod soup, honey, fried bean and corn bread, dried peaches, dried apples, and his favorite, kanuchi soup, which is made from hickory nuts.
   Families from the surrounding valley were starting to arrive, dressed in their best, most colorful clothes. He saw his own family arrive from the other side of the village, Ama and her sister Ayita with her husband and two boys. When his mother saw him she looked disapprovingly at his soiled clothes and dirty face and spit on her hand to wipe him clean.
-  “Go prepare yourself!”
+  “Go prepare yourself.”
   By the time he returned it was evening. He walked among the crowds who were eating and drinking. The boy was not hungry himself. He remained out of sight of his family who had a central place on a bench near the base of the tree. He found a hidden spot away from the crowds and sat on the grass to watch from there. His heart was low and he wanted to be left alone. His thoughts turned to the tree whose shadowed branches spiraled towards the muted skies. There it loomed over them all. Ignored but happy to be ignored. Just like him.
   Then suddenly he remembered the last words his father had spoken to him, on his deathbed with the chicken pecking in the dirt. He had not thought of it once since that night. Now it returned and somehow he knew that he would never forget them. Maybe tonight he would share them with the people of the village. Maybe they could tell him of their significance. Or maybe not. Maybe the ghost of his father would visit him in his dreams and tell him what they meant himself, why it was so important that he do what had been asked of him. But such things did not really happen, he knew that. Only in stories did they happen.
   At last the elders emerged from the council house and descended into the ceremonial grounds. There were five of them total and they were dressed in magnificent garb. The most delicate deerskins covered in beads and feathers. Their faces were painted red and white. Kulsathee, the old chief of peace, led them with a solemn frown. When they reached the benches at the foot of the tree they turned to face the people gathered. But their gaze was fixed on the two men who approached the funeral platform with the body of the departed medicine man.
@@ -42,7 +42,7 @@ When I was a child this is what the old men told me they had heard when they wer
   He ate the bread and meat too and then invited her to sit next to him. She did so. He noticed she did not try to console him though he saw the pity in her eyes. The meat was good. The bread too. He had not realized how truly hungry he was. They sat together while the fire burned. He was happy she was here. Now when he looked at the people gathered in the ceremonial grounds he saw them differently than before. He saw the love that had brought them together and that this love was not something to take for granted. He felt it himself and no longer wanted to be alone. He took Leoti by the hand and led them both to the benches where his family sat. Ama’s eyes widened when she saw her son and hugged him warmly.
   As the evening went on the family was greeted by everyone who came. This was the rite of consolation. When it was late and the fire had burned low the people who remained came closer and they each took turns telling stories about the old medicine man. Each story surprised the boy because it was like they were talking about someone other than his father. 
   At last Kulsathee rose from his spot in the circle of elders. He was a large, rotund man with long graying hair. He was the chief of peace and had been the leader of their tribe ever since before the boy was born. There were deep lines in his face and whenever he smiled, which he did often, the lines grew deeper still, like bunched up leather. His eyes were red and cheeks were wet from many tears.
-  “All the old things are gone now and the people are different.  When we were boys Sakima and I roamed these forests and hunted together. Even then he was drawn to the mysteries of nature. He would commune with the spirit of the trees to reveal where the rabbits were hidden. We caught so many! I loved Sakima, whom you all knew, from the time we were both young and had our entire lives in ahead of us. But all the old things are gone now and the people are different. He was my good friend and I will miss him.”
+  “All the old things are gone now and the people are different.  When we were boys Sakima and I roamed these forests and hunted together. Even then he was drawn to the mysteries of nature. He would commune with the spirit of the trees to reveal where the rabbits were hidden. We caught so many. It is true I loved Sakima, whom you all knew, from the time we were both young and had our entire lives in ahead of us. But all the old things are gone now and the people are different. He was my good friend and I will miss him.”
   It was then, in the lull between speakers, that the boy felt compelled to rise and tell them all what his father had said to him on his deathbed. He rose and approached the center of the circle near the remnants of the bonfire whose embers still glowed and gave off heat. Nobody said anything when they saw him approach. Kulsathee walked up to him and held both of his arms in the gesture of great kinship and then returned to his seat with the elders.
   Moments passed. The boy looked into the crowd and saw their hopeful and expectant faces. He knew they wanted to hear something about the beloved Sakima. To inspire them and to assure them that it was no tragedy for a great man to die. He saw their sadness and wanted very much to say something that could heal their hearts. But he said nothing. Only now that the moment had come was it clear that the words spoken to him were not for them to hear. The words could not be simply told. They must be shown. Further, it would be a betrayal to his father to utter them to those whom they had not been given. He was embarrassed by his ignorance. The people stirred and grew impatient with him. Some in the crowd put it down to youthful shyness. Some took it as disrespect. Some pitied him. Some said the boy was not the man his father was.
 
@@ -54,7 +54,7 @@ When I was a child this is what the old men told me they had heard when they wer
   Mika ignored him and ran his hands along the grain of his spear, then walked to the arena. The disc tosser got in position and gave the ready signal with a wave of his hand. Mika and Mohe lined up on the markers at the edge of the arena. From here the boy could see the northern mountains, their snowy ridges hovering faintly blue over the treeline of the forest. This was the only place in the village from which you could see the far mountain range. He was unable to focus on anything else as long as he could see them, as they reminded him of his father and the words that had been spoken to him the night he passed away.
   Being distracted he was slow off the mark and missed the timing of his throw. His spear wobbled in the air and landed at an odd angle, barely sticking into the ground. This was his worst performance yet and he knew it even before they measured the points. It had landed at least a few feet away, embarrasingly far.
   Mohe excitedly ran onto the arena where his spear stuck mere inches from the disc. When the points were counted up he had won by four points, three notches to Mika’s seven. Mohe was thrilled and ran about the whole arena, shouting to the other children that he had defeated the great player by a huge margin. Then he ran to the scorekeeper and made sure they had recorded it properly. The elders cheered him from afar, as they had started placing their bets on anyone who opposed the boy, his performance had been so bad.
-  Truly he did not care. He sat down again on the sidelines and fixed his gaze on those faraway mountains and thought about his father, whose name even he was forbidden to utter now. His friend Tye approached and saw where he was looking, but said nothing.
+  Truly he did not care. He sat down again on the sidelines and fixed his gaze on those faraway mountains and thought about his father, whose name even he was forbidden to utter now. His friend approached and saw where he was looking, but said nothing.
   “The old men say your spear must be bad for you to be throwing like this. They say, Tye give him your spear and he will win again. This we know.”
   “They don’t know anything, old buzzards. Let them smoke their pipes and take cat naps.”
   “They worry about their wampum, that’s all.”
@@ -62,7 +62,7 @@ When I was a child this is what the old men told me they had heard when they wer
   “Mohe has been flirting with Leoti. I have seen it before. What do you think about that?”
   “Let him. I don’t care what that frog eater does.”
   Tye laughed. Then he dropped his own spear on the ground next to him.
-  “Use mine. Challege him again, for me. I just want to see the look on that ugly face when you beat him. Imagine!”
+  “Use mine. Challege him again, for me. I just want to see the look on that ugly face when you beat him. Imagine.”
   The boy looked at his friend with a curious expression.
   “My spear is good. See for yourself.”
   Tye picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for any imperfection, but found nothing.
@@ -73,7 +73,7 @@ When I was a child this is what the old men told me they had heard when they wer
   “Time will make it better,” Tye said, “You will see.” His brother had died in a hunting accident two summers ago, so he understood loss and therefore spoke from a place of wisdom. He rose and clasped one hand on the shoulder of his friend and stared him in the eyes.
   “You are the best of them all, and don’t forget it. There is nobody in the village who can defeat you in tchungkee.”
   Tye left to join a game of dice that had just started on the other side of the field, but shouted over his shoulder.
-  “Except for me, of course!”
+  “Except for me, of course.”
   The boy grinned and waved his friend away. A few moments later his eyes went back to the mountains. Then much later he rose and went to find his mother.
   Ama sat outside with a group of young girls, teaching them how to flesh deer hides for the tanning process. When she scraped the broad, flint blade down the hide draped over the wooden incline her shoulder muscles rippled. She moved like a woman twenty years younger than she was. When the girls took their clumsy turns at the hide it merely served to show how adept the old woman was at her work. But she was patient and kind and therefore was a good teacher to them.
   When she saw her son approach she wiped her hands on a cloth and embraced him. It was obvious from the way he appeared, head down and thoughtful, that something was the matter.
@@ -90,15 +90,47 @@ When I was a child this is what the old men told me they had heard when they wer
   He wondered if he should confess everything to her, those eyes so full of compassion and understanding. He would not, but did tell her enough so that she could understanding and perhaps help him know what to do.
   “The night father died, he whispered something in my ear. Do you remember?”
   “I do.”
-  “He asked me to do something. And ever since then it is always on my mind. Even though things are back to normal and life has continued on, as if it never even happened, his words are always there. I tell myself, there is no rush. It can wait. There is time enough to do it later. But then I try to enjoy the things I did before and I cannot. Because of them, you see. What my father said to me.”
+  “Father asked me to do something, the night he died. He whispered into my ear and therefore it is a secret I am not to tell. Only do. Ever since that night it is always on my mind. Even though things are back to normal and life has continued on, as if it never even happened, his words are always there. Nagging me. I tell myself, there is no rush. It can wait. There is time enough to do it later. But then I try to enjoy the things I did before and cannot. Because of the voice, you see. What he asked me to do.”
   The boy stopped on the path and his mother did the same. He glanced to the direction of the mountains, though they were hidden by hills from here. Ama followed his gaze but did not ask why he looked there. She only listened.
-  “I want things to go back how they were before, when life was carefree and full of joy. I want to play with my friends again, without this voice in my head. Its pulls me away from them.”
+  “I want things to go back how they were before, when life was carefree and full of fun. I want to play with my friends again, without the words and the voice in my mind. Its pulls me away from them.”
   The boy said no more. He looked more lost than ever. Ama thought for a moment and her face brightened.
   “Look at me, Mika.”
   He did so.
-  “Your heart is now like a path that has split in two. This way and that. To find peace you must find the place where the two paths reconcile. Your friends love you and will wait until you have returned from the other way. You will play games with them again, just like it was before. Do you what your heart tells you and you can never step wrong. And cheer up, my son, don’t be afraid of life. This is it!”
+  “Your heart is like a path that has split in two. This way and that. To have peace again you must find the place where the two paths reconcile. Your friends love you and they will wait for your return. Cheer up, Mika, and don’t be afraid of the path.”
   The boy’s eyes filled with tears.
-  “Is that all true? Can it really be like you say?”
-  “I believe it is.”
-  They embraced once more and then returned inside the gates of the village. The late afternoon sun shined through the spaces between the palisade poles and lit geometric shapes onto the path in front of them. It was now suppertime and in the breeze was an aroma of barbecued fish and cornbread baking on the fire.
+  “Is it true? Can it really be like you say?”
+  “I believe so.”
+  They hugged and then returned inside the gates of the village. The late afternoon sun shined through the spaces between the palisades and lit geometric shapes onto the path in front of them. It was supper time and in the air was an aroma of barbecued fish and cornbread baking on the fire.
   
+  The boy woke before dawn. He rose quietly from his bed so not to wake his mother, who was asleep in the next room. In the dim light he found his knife and sheath, and slung the traveling pouch over his shoulder. Inside the pouch was the food his mother had prepared the night before, fried bean-and-corn bread and some fresh slabs of deer pemmican. There was no real need to carry water as he would be following the river and could drink from it whenever thirsty.
+  Outside their homestead was a small shed his father had used for the storage of personal farming equipment and hunting gear. he rattled through the contents of the shed as quietly as he could until his hands landed on the old bucket they used when irrigating their own crops. Because they hadn’t grown their own vegetables in a few seasons the bucket was filled with debris and dirt. He emptied it onto the ground and made sure to grab the lid for it.
+  With these few items the boy stepped onto he path that headed outside the northern gates. He followed the torchlight and looked up at the dark blue of the morning skies beyond the black shapes of the trees. As he approached the gates he saw the morning lookout, a boy his own age named Gawoni, fast asleep underneath the platform built for archers. He went over to the boy and gave him a hard kick.
+  “Let me out of here, you lazy dog.”
+  Gawoni startled out of his sleep with his hands out, ready for a fight. The boy laughed at him.
+  “Why are you laughing?” He stretched both arms above his head and yawned like a mountain lion. “I was awake the whole time. Don’t tell anybody.”
+  “Don’t tell anybody you were awake?”
+  “You know what I mean.”
+  Again the boy asked him to open the gates. Gawoni looked at him puzzled.
+  “Where are you going outside the northern gates this early?”
+  “To do what my father has asked of me, before his death.”
+  “But where?”
+  “To the north. To the mountains in the north.”
+  “But, why?”
+  “That I cannot say.”
+  “Those mountains are far. Too far to travel on foot. How long will you be gone?”
+  “However long it takes.”
+  “Which road will you travel?”
+  “It’s too early for all these questions.”
+  “It’s my job to ask.”
+  “I understand.”
+  “Well?”
+  “Well, what?”
+  “What road will you take to the mountains?”
+  “The river will guide me there. Its source is in the mountains. So have I been told.”
+  “So you intend to follow the river, and not the roads?”
+  “The roads do not go to the mountains.”
+  Gawoni considered this and then said,
+  “You are a strange one, Mika. And stupid.”
+  “How do you mean, stupid?”
+  “Don’t you know where the river to the north will take you, even before you leave the valley? The forbidden gorge?”
+  Then he did remember and went suddenly cold. The river to the north wound straight through the forbidden gorge. It was a dark place cut deep into the mountains, permanently bathed in dusklight, both from the steepness of the hills and the trees which blocked out any natural light that could enter there. But it wasn’t the unnatural darkness that made the place forbidden. The gorge was also home to a Ravenmocker, or so the legend told.

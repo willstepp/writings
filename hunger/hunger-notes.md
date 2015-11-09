@@ -9,6 +9,18 @@ http://www.encore-editions.com/eanger-irving-couse-sacred-water/download
 figure-by-a-stream
 
 how does this scene move the story along?
+mika makes his first attempt to follow the path
+
+what is the conflict?
+mika has to face a superstition of a monster who lives in the gorge heading north out of the village, the ravenmocker
+
+who/what are the antagonists?
+gawoni, who does not want to let him out of the gates, the fear of the ravenmocker
+
+how is it resolved?
+he talks gawoni into opening the gate and learns the ravenmocker is a murder of crows, who nest in a large bush surrounded by mushrooms
+
+how does this scene move the story along?
 mika is unable to resume his normal life, because of the words
 
 what is the conflict?
