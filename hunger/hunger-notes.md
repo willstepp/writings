@@ -1,3 +1,5 @@
+Use converge, diverge to talk about the two paths.
+
 Use 'his voice' instead of words, might make it less annoying
 
 eanger-irving-couse
