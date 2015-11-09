@@ -1,3 +1,16 @@
+A calm within. Not happiness in some outward display of emotion. Contentment. The 
+purity of placing one foot in front of the other, in meaningful repitition, in 
+movement towards some object. He felt the abstraction of it, the universal thing 
+in what he did. If he focused on the mountains he appeared to make no progress at 
+all. But if he focused on his more immediate surroundings it was different. 
+The hill that was so far away that morning was now a barely visible when he looked back, 
+miles behind him now. Even more rapid passed the tall grass at his feet.
+
+On the plains he experiences the nothingness. Turns his back on the mountains. Runs
+out of pemmican. No living things. No animals. No insects. No life at all. Strips his 
+shirt in order to repair up his shoes, fallen apart. Sun on his back blistering skin. 
+No fish.
+
 Use converge, diverge to talk about the two paths.
 
 Use 'his voice' instead of words, might make it less annoying
