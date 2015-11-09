@@ -109,28 +109,28 @@ When I was a child this is what the old men told me they had heard when they wer
   Gawoni startled out of his sleep with his hands out, ready for a fight. The boy laughed at him.
   “Why are you laughing?” He stretched both arms above his head and yawned like a mountain lion. “I was awake the whole time. Don’t tell anybody.”
   “Don’t tell anybody you were awake?”
-  “You know what I mean.”
+  “You're funny.”
   Again the boy asked him to open the gates. Gawoni looked at him puzzled.
   “Where are you going outside the northern gates this early?”
-  “To do what my father has asked of me, before his death.”
+  “To do what my father asked of me, before his death.”
   “But where?”
-  “To the north. To the mountains in the north.”
+  “To the north. To the mountains.”
   “But, why?”
   “That I cannot say.”
   “Those mountains are far. Too far to travel on foot. How long will you be gone?”
   “However long it takes.”
   “Which road will you travel?”
-  “It’s too early for all these questions.”
+  “Come on. It’s too early for this.”
   “It’s my job to ask.”
-  “I understand.”
+  “I see.”
   “Well?”
   “Well, what?”
   “What road will you take to the mountains?”
-  “The river will guide me there. Its source is in the mountains. So have I been told.”
+  “The river will guide me there. Its source is in those mountains. So have I been told.”
   “So you intend to follow the river, and not the roads?”
   “The roads do not go to the mountains.”
   Gawoni considered this and then said,
   “You are a strange one, Mika. And stupid.”
-  “How do you mean, stupid?”
-  “Don’t you know where the river to the north will take you, even before you leave the valley? The forbidden gorge?”
+  “Why stupid?”
+  “Don’t you know where the river to the north will take you, even before you leave the valley?”
   Then he did remember and went suddenly cold. The river to the north wound straight through the forbidden gorge. It was a dark place cut deep into the mountains, permanently bathed in dusklight, both from the steepness of the hills and the trees which blocked out any natural light that could enter there. But it wasn’t the unnatural darkness that made the place forbidden. The gorge was also home to a Ravenmocker, or so the legend told.
