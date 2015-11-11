@@ -43,44 +43,44 @@ When I was a child this is what the old men told me they had heard when they wer
   As the evening went on people came by to pay respects. When it was very late and the fire had burned low the people who remained came closer and they each took turns telling stories about the old medicine man. Each story surprised the boy because it was like they were talking about someone other than his father. 
   At last Kulsathee rose from his spot in the circle of elders. He was a large, rotund man with long graying hair. He was the chief of peace and had been the leader of their tribe ever since before the boy was born. There were deep lines in his face and whenever he smiled, which he did often, the lines grew deeper still, like bunched up leather. His eyes were red and cheeks were wet from many tears.
   “All the old things are gone now and the people are different.  When we were boys Sakima and I roamed these forests and hunted together. Even then he was drawn to the mysteries of nature. He would commune with the spirit of the trees to reveal where the rabbits were hidden. We caught so many! It is true I loved Sakima, whom you all knew, from the time we were both boys and had our whole lives in ahead of us. He was my good friend and I will miss him.”
-  It was then, in the lull between speakers, that the boy felt compelled to speak. He rose and approached the center of the circle near the remnants of the bonfire whose embers still glowed bright orange and radiated heat that bent the air. Nobody said anything when they saw him rise. Kulsathee went to him and took hold of both his arms in the gesture of great kinship and then returned to his seat with the other elders.
-  Moments passed. The boy looked into the crowd and saw their hopeful and expectant faces. He knew they wanted to hear something about the beloved medicine man, his father. Something hopeful. He saw their sadness and felt a longing to ease that suffering he perceived in their hearts. But no words came. After a few minutes the people stirred and grew impatient. Some in the crowd put it down to youthful shyness. Some took it as pride and disrespect. Some pitied him. Some said he was not the man his father was.
+  It was in the lull between speakers that the boy felt compelled himself to speak. He rose and approached the center of the circle, near the remnants of the pyre, whose embers glowed a dull orange and radiated heat like ripples in the air. 
+  Nobody said anything when they saw him rise. The chief went to him and took hold of both his arms in the gesture of great kinship, and then returned to his seat with the other elders.
+  Moments passed. The boy looked into the crowd and saw their hopeful and expectant faces. He knew they wanted to hear something about his father. Something hopeful and fond. He saw their sadness and felt a longing to ease the pain in their hearts. But no words came and he remained silent. After a few minutes the people stirred. They grew impatient. Some in the crowd put it down to mere youthful shyness. Some took it as pride, disrespect. Some pitied him, and some said he was not the man his father had been.
 
   It was the season of abundance in the valley. The forests and meadows had turned green and blossomed with a myriad of wildflowers and berries. The river which ran close to the village, and irrigated their crops, glimmered the mild afternoon sunlight. Women went daily to its banks and pulled fish from traps that had been set just below the small cascades. These fish they roasted that same evening for dinner, there being no need to dry and salt them for storage. Men hunted game in the nearby woods, or did carpentry work that had been put off during the winter. They fixed leaky roofs and built summer shelters for the elders, which allowed the breeze to blow through. The younger children played hide and seek in the village and surrounding wilds. They went shirtless and ate blackberries until their fingers and mouths were stained purple. The older children gathered in the wide open space on the southern edge of the village grounds. Here a field had been cleared of all grass and shrubs so that only the dirt ground remained. The ground had been hardened by many years of footsteps and weather, so that it was nearly polished. Here they played dice and other ball games. Stick ball was popular but the game that required the most skill was tchungkee.
   This was a game for hunters since it required the use of a flat-tipped spear. A small, stone disc the size of a grapefruit was rolled into the center of a demarcated arena. The hunters stood at the edge and threw their spears where they thought the disc would end up, based on its often unpredictable path. Points were distributed by whose spear landed nearest the disc. Tchungkee was so popular that many elders, who were no longer required to farm or hunt during the day, set up ramadas on the edge of the field and smoked tobacco while placing bets on the games.
   For many seasons now the best player in the village was himself. This was well known and there was even a rule put in place by the gamblers so one could not bet on him more than four times in one day. Yet, ever since his the passing of his father, his game had fallen off considerably. He was no longer the sure bet he used to be and both the elders and certain children were beginning to take advantage of it.
   Mohe, an athletic but not particularly bright boy, had challenged him to a game earlier that morning. He had not felt like playing today, but when he saw the expectant faces of the elders at the other end he rose from the sidelines, where he sat with Tye, and took up his spear.
-  “I'll go easy on you today,” Mohe taunted him. He twirled his spear upright and deftly threw it at a practice target a little ways from them.
-  The boy ignored him and ran his hands along the grain of his spear, then walked to the arena. The disc tosser got in position and gave the ready signal with a wave of his hand. Mika and Mohe lined up on the markers at the edge of the arena. From here the boy could see the northern mountains, their snowy ridges hovering faintly blue over the treeline of the forest. This was the only place in the village from which you could see the far mountain range. He was unable to focus on anything else as long as he could see them.
-  Being distracted he was slow off the mark and missed the timing of his throw. His spear wobbled in the air and landed at an odd angle, barely sticking into the ground. This was his worst performance yet and he knew it even before they measured the points. It had landed at least a few feet away, embarrasingly far.
-  Mohe excitedly ran onto the arena where his spear stuck mere inches from the disc. When the points were counted up he had won by four points, three notches to his seven. Mohe was thrilled and ran about the whole arena, shouting to the other children that he had defeated the great player by a huge margin. Then he ran to the scorekeeper and made sure they had recorded it properly. The elders cheered him from afar, as they had started placing their bets on anyone who opposed the boy, his performance had been so bad.
-  Truly he did not care. He sat down again on the sidelines and fixed his gaze on those faraway mountains. His friend approached and saw where he was looking, but saw nothing of significance about them.
+  “I'll go easy on you today,” the other boy taunted him. He twirled his spear upright and deftly threw it at a practice target a little ways from them.
+  He ignored his rival and ran his hands along the grain of his spear, then walked to the arena. The disc tosser got in position and gave the ready signal with a wave of his hand. They lined up on the markers at the edge. From here the boy could see the northern mountains, their snowy ridges hovering faintly blue over the treeline of the forest. This was the only place in the village from which you could see them.
+  The tosser pitched the disc into the arena. Being distracted the boy was slow off the mark and missed the timing of his throw. His spear wavered clumsily in the air and landed at an odd angle, barely sticking into the ground. This was his worst performance yet and he knew it even before they took measurements. It had landed a few feet away. Embarrasingly far.
+  His rival ran onto the arena where his spear stuck mere inches from the disc and gloated over it. When the points were counted up he had won by a total of four points, three notches to the boy’s seven. Mohe was thrilled and ran to and fro, shouting to the other children that he had defeated the champion by a huge margin. The elders cheered Mohe from afar, as they had started placing their bets on anyone who opposed him, and they had won big.
+  Truly the boy did not care. He sat down again on the sidelines and fixed his gaze on those faraway mountains. Tye approached and noticed where he was looking, but saw nothing of significance about them.
   “The old men say your spear must be bad for you to be throwing like this. They say, Tye give him your spear and he will win again. This we know.”
-  “They don’t know anything, old buzzards,” He scoffed, “Let them stick to smoking their pipes and taking cat naps, for all I care”
+  “They don’t know anything, old buzzards,” the boy scoffed, “Let them stick to smoking their pipes and taking cat naps, for all I care”
   “They worry about their wampum. It’s all they have to do.”
   “I know.”
   Tye scanned the field and saw Mohe now among a group of girls who sat in a circle underneath an oak tree sewing bead necklaces. They looked annoyed at him. Leoti was among them. It was obvious most of his attention was given to her.
-  “Mohe has been flirting with Leoti. I have seen it before. What do you think about that?”
+  “Mohe has been flirting with Leoti. I have seen him do it before. What do you think about that?”
   “Let him. I don’t care what that frog eater does.”
-  Tye laughed. Then he dropped his own spear on the ground next to him.
-  “Use mine. Challege him again, for me. I just want to see the look on that ugly face when you beat him. Imagine.”
-  The boy looked at his friend with a curious expression.
-  “My spear is good. See for yourself.”
-  Tye picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for any imperfection, but found nothing.
-  “Your spear is good. No splinters. No warp. How did you lose?”
-  The boy once more looked to the mountains.
-  “Time will make it better,” Tye said, “You’ll see.” His brother had died in a hunting accident two summers ago and spoke from a place of wisdom. Tye rose and clasped one hand on the shoulder of his friend and stared him in the eyes.
-  “You are the best of them all, Mika. And don’t forget it. There is nobody in the village who can defeat you in a game of tchungkee.”
-  His friend left to join a game of dice that had just started on the other side of the field, but shouted over his shoulder.
+  His friend dropped his own spear on the ground next to him.
+  “Use my spear. Challege him again. I just want to see the look on his ugly face when he’s beaten square.”
+  The boy looked up with a curious expression.
+  “My spear is good, Tye. See for yourself.”
+  His friend picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for any imperfection, but found nothing.
+  “Your spear is good. No splinters, no warp. But how did you lose?”
+  The boy once more looked to the mountains. His silence made Tye thoughtful. “Time will make it better,” he said, “You’ll see.” His brother had died in a hunting accident two summers ago and spoke from a place of wisdom. Then he rose and clasped one hand on Mika’s shoulder and stared him in the eyes.
+  “You are the best of them all. And don’t forget it. There is nobody in this village who can defeat you in the game of tchungkee.”
+  His friend departed in order to join a game of dice that had just begun on the other side of the field. As he went he shouted over his shoulder.
   “Except for me, of course.”
-  The boy smiled and waved his friend away. A few moments later his eyes went back to the mountains. Then much later he rose and went to find his mother.
+  The boy smiled faintly and waved his friend away. A few moments later his eyes went back to the mountains. He looked at them for a long time. Much later he rose and went to find his mother.
   Ama sat outside with a group of young girls, teaching them how to flesh deer hides for the tanning process. When she scraped the broad, flint blade down the hide draped over the wooden incline her shoulder muscles rippled. She moved like a woman twenty years younger than she was. When the girls took their clumsy turns at the hide it merely served to show how adept the old woman was at her work. But she was patient and kind and therefore was a good teacher to them.
   When she saw her son approach she wiped her hands on her apron and embraced him. It was obvious from the way he appeared, head down and thoughtful, that something was the matter.
   “Let us walk,” she said.
   Ama told the girls to finish the hide they were working on and then take a break.
   “May we go for a swim?”
   "Yes, you may."
-  The children cheered and clapped. Ama and her son walked together along the path that led outside the village gates. The doors were opened this time of year and from here they could hear echoes of the games in the arena, shouts and laughter.
+  The children cheered and happily resumed the work. Ama and her son walked together along the path that led outside the village gates. The doors were opened this time of year and from here they could hear echoes of the games in the arena, shouts and laughter.
   “Why are you not with your friends?”
   “I was,” the boy began, “but I lost a game of tchungkee to Mohe. The elders no longer bet on the strength of my spear.”
   “Is that why you are sad?”
@@ -88,34 +88,56 @@ When I was a child this is what the old men told me they had heard when they wer
   “Of course it isn’t,” Ama pushed back his hair over his ears, “Now tell me what troubles you.”
   The boy wondered if he should confess everything to her now, unburden his heart to those eyes so full of understanding.
   “Father asked something of me, on the night he died. Ever since then it is always on my mind. Even though things have returned to normal, it’s always there. I tell myself, Mika, there is no rush. It can wait. There is time enough to do it later. But when I try to enjoy the things I did before there is no joy in them.”
-  The boy stopped on the path and his mother did the same. He glanced to the direction of the mountains, though they were hidden by hills from here. Ama followed his gaze but did not ask why he looked there. She only listened.
+  The boy stopped on the path and his mother did the same. He glanced to the direction of the mountains, though they were hidden by hills from here. Ama followed his gaze but did not ask why he looked there. She listened.
   “I want things to go back how they were before when life was happy and free of worry. I want to play with my friends again.”
   The boy looked more lost than ever.
   “Listen to me, Mika.”
   He did so.
-  “The way I see things, your heart is now like a path diverged. One path goes this way and one path goes that way. To have peace again you must walk this new path for a time, and find where the two converge back into one. Only then can life go back to how it was before. But cheer up. If you have to walk another path for awhile, so what? Your friends will await your return. And so will I and all in the village. The reason is you are loved, Mika. Remember that.”
-  The boy dried his eyes, a small smile came over his face.
-  “Is it true?”
+  “The way I see it, your heart is like a path diverged. One goes this way and one goes that way. To have peace again you must walk this new path for a time, and find where the two converge back into one. Only then can life go back to how it was before. But cheer up. If you have to walk another path for awhile, so what? Your friends will await your return. And so will I and all in the village. The reason is you are loved, Mika. Remember that.”
+  The boy dried his eyes. Then he smiled.
+  “Is it true? Really true?”
   “I believe so.”
-  They embraced and then returned inside the gates of the village. The late afternoon sun shined through the spaces between the palisades and lit geometric patterns onto the grass. It was dinner time and in the air was the aroma of barbecued fish and cornbread baking on the fire.
+  They embraced and then returned inside the gates. The late afternoon sun shone through the cracks in the palisades and lit geometric patterns on the grass where they walked. It was dinner time and in the air was an aroma of barbecued fish and cornbread baking on the fire.
   
-  The boy woke before dawn. He rose quietly from his bed so not to wake his mother, who was asleep in the next room. In the dim light he found his knife and sheath, and slung the traveling pouch over his shoulder. Inside the pouch was the food his mother had prepared the night before, many slabs of fresh deer pemmican. There was no real need to carry water as he would be following the river and could drink from it whenever thirsty. He also brought flint for lighting fires and a line for catching fish. Outside their homestead was a small shed his father had used for the storage of personal farming equipment and hunting gear. he rattled through the contents of the shed as quietly as he could until his hands landed on the old bucket they used when irrigating their own crops. Because they had not grown their own vegetables in a few seasons the bucket was filled with debris. He emptied it onto the ground and took it with him.
+  The boy woke before dawn. He rose quietly from his bed so not to wake his mother, who was asleep in the next room. In the dim light he found his knife and sheath, and slung the traveling pouch over his shoulder. Inside the pouch was the food his mother had prepared the night before, many slabs of fresh deer pemmican. There was no real need to carry water as he would be following the river and could drink from it whenever thirsty. He also brought flint for lighting fires. Outside their homestead was a small shed his father had used for the storage of personal farming equipment and hunting gear. he rattled through the contents of the shed as quietly as he could until his hands landed on the old bucket they used when irrigating their own crops. Because they had not grown their own vegetables in a few seasons the bucket was filled with debris. He emptied it onto the ground and took it with him.
   With these few items the boy stepped onto he path that headed outside the northern gates. He followed the torchlight and looked up at the dark blue of the morning skies beyond the black shapes of the trees. As he approached the gates he saw the morning lookout, a boy his own age named Gawoni, fast asleep underneath a platform built for archers. He went over to the boy and gave him a hard kick in the shins.
   “Let me out of here, you lazy dog.”
   Gawoni startled out of his sleep with his fists up, ready for a fight. The boy laughed.
   “What’s so funny?” He stretched both arms above his head and yawned like a mountain lion. “I was awake the whole time. Don’t tell anybody, okay?”
   “Don’t tell anybody you were awake?”
   Again he asked the lookout to open the gates. Gawoni looked at him puzzled.
-  “Where are you going outside the northern gates this early?”
-  “To the north. To the mountains.”
-  “But, why?”
-  “That I cannot say.”
-  “Those mountains are very far. Too far to travel on foot. How long will you be gone?”
-  “However long it takes, I guess.”
-  “Which road will you travel?”
-  “The river will guide me there. Its source is in those mountains. So have I been told.”
-  “So you intend to follow the river and not the road?”
+  “Where are you going this early?”
+  “To fulfill an obligation.”
+  “But, where?”
+  “To the north, to the mountains.”
+  “Why go there?”
+  “I cannot say.”
+  “Those mountains are very far from here. Too far to travel on foot. How long will you be gone?”
+  “However long it takes me.”
+  “What road will you travel?”
+  “The river will guide me there. Its source is in those mountains, so have I been told.”
+  “You intend to follow the river and not the road?”
   “The road does not go to the mountains.”
-  Gawoni considered this. He nodded.
-  “You are a strange one, Mika. Don’t you know where the river will take you, even before you leave the valley?”
-  Then the boy did remember and went suddenly cold. The river to the north cut straight through the forbidden gorge. It was a dark place into the mountains, permanently bathed in dusklight, both from the deep cut of the hillside and the oak trees near the top of the ridge, which blocked out any light that would enter there. Yet it was not the unnatural darkness that made the place forbidden to their people. The gorge was also home to a Raven Mocker, or so the legend told.
+  Gawoni considered this.
+  “You are a strange one. Don’t you know where the river north will take you, even before you leave the valley?”
+  Then the boy did remember and went suddenly cold. The river to cut straight through the forbidden gorge. This was a dangerous place in the hills, permanently bathed in dusklight. The deep cut ravine and dense, ancient oaks on the ridge blocked out any sunlight that might enter there. Yet it was not the unnatural darkness that made the gorge forbidden to their people. It was also home to a Raven Mocker, or so the legend told.
+  A malevolent witch who exists by feeding on the souls of the sick and dying, thereby extending its own life. It has the ability to go unseen or to take on the form of those who souls it has robbed. The only way to know of its presence is from the sound of its scream, like a multitude of ravens, when it is out hunting prey.
+  The old men in the village told stories of hearing the Raven Mocker in the area of the gorge, when they were children. Then there were also stories of dead souls, those whose souls had been sucked out by the witch and thus walked around with nothing inside them. Outward they looked healthy, but inward they were hollow and had no love in them. Thus it was declared forbidden by the chief and elders, and ever since that day no one from their village had dared to go there.
+  Gawoni pushed open the large gate door just enough for the boy to leave. He picked up the bucket and pulled tight the strap of the pouch which hung at his side. Then he walked outside the gates and immediately heard the latch close behind him. From within he heard the lookout call to him.
+  “Return safe to us, Mika.”
+  “I will.”
+  It was just before sunrise and a soft, pastel glow from behind the hills gave him light enough to find the river. When he got near it he heard the calms waters trickling over stones and fallen limbs, lapping up against the grassy banks. He cupped his hands into the water and drank. It was very cold.
+  The boy followed the river. He glanced back at certain intervals to see whether the village was out of sight. For a long time it was still there, smaller each time he looked, but the familiar palisaded gate-poles and smoke rising from breakfast fires were still there. Until at last he looked and it was gone.
+  He walked until noontime and sat upon a crook in an oak tree and ate a little of the pemmican. The sun was now overhead and its light shined through the leaves of the forest. Ahead of him was a bend in the river, and beyond it was the entrance to the gorge. He finished his lunch and set off towards it, feeling a sense of dread in his guts. At the bend he stopped and listened for anything out of the ordinary. He himself had never heard the shrieks of the Raven Mocker but he knew those who said they had. After a few minutes of waiting and hearing nothing but the sounds of the forest he continued on. 
+  Here the slope of the hills became steeper and the light tapered off the further he went. Though he knew the sun was overhead the entire place shadowed like it was during an eclipse. It was an unreal, dreamlike view. Because of the incline the trees leaned over and covered the whole area. The water of the river became darkened and its sound echoed faintly on the inclines. The boy went further. The narrow banks grew narrower. There was not much room for him to walk. On his left the river and on his right the steep hillside rose, much too steep for him to navigate. And then he heard a shrill echo and his heart stopped cold.
+  Bouncing off the slopes of the ravine was a bird-like shriek, to his ears full of rage and ill intent. He stooped behind a fallen stump and shut his eyes. It was true after all. The legend was real and this place had been forbidden for a good cause. The witch was real. The sound came again and it was just like in the stories, the horrific scream a cacaphony of a multitude of birds. The souls it had sucked over the centuries.
+  Now was the time when he had to decide whether to go on, or turn back. To follow the river he must continue. There was no way around the gorge that was known. To navigate around it might take weeks of walking. But to go on. He would have to risk facing it. In his mind the image of the Raven Mocker grew, the wide spread wings beating the winda and trailing behind a tail of flames. The shrieking stopped later, how long he found it hard to tell. He rose from behind the stump and walked beside the banks of the river.
+  At another bend, a mile or so from where he entered the gorge, the bottom widened and spread into a meadow of a kind, filled with rotted trees that had fallen from the high slopes. There were mushrooms growing out of many of them, of all shapes and colors. None he recognized at a distance. The grass was damp and the soil soft. His mocassins sunk in with each step, so he tread lightly. The air was cool, but there was a musty smell from the flora decomposing that made him reluctant to breathe it in. Then he saw it. Somehow he had come upon it in the shadows unaware, until it was right in front of him.
+  An enormous boulder, a fissured section of the ravine sat in the middle of the meadow. Upon its irregular plateaus sat perched a horde of crows, hundreds of them.
+  His heart jumped at the sight of them. He peddled backwards but had no good place to hide. So he stood there. He waited.
+  The birds shrieked once more and at this close distance the sound pierced his eardrums and he covered them with both hands. Again the sound echoed off the high walls of the gorge and repeated in ever-diminishing volume. Blanketing the nooks they sat upon was ages upon ages of droppings. As his eyes overcame the strangeness of what he saw he noticed the individual birds. He saw their sharp, black beaks and the jerky way they moved back and forth. They were birds. And that’s all they were.
+  The boy stood taller and took a wide berth as he continued to walk past them. He tried to walk quietly so as not to scare them, but there were leaves and twigs on the ground and when he was close enough the sounds must have frightented them, because all at once the entire horde of them ruffled their feathers and let out shrieks. He dropped to his knees at the sound and covered his ears. Then he felt the air whip like in a thunderstorm and looked that way and saw the crows had taken to flight. Like a single organism they rose into the air and swirled above the boulder and the river and flew up out of the ravine in graceful synchronicity.
+  He got to his feet and listened but never heard them again. After, he walked until the boulder was safely behind him, keeping close to the river bank as much as possible. Several hours later he reached the edge of the gorge, where it opened into a clearing and he was instantly blinded by the late afternoon sunlight.
+  
+  
+  
