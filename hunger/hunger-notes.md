@@ -1,8 +1,14 @@
+First journey on the plains
+Progress. Silence. Peace. Soreness. Blisters. Sunburn.
+No animals, no vegetation. No way to catch fish.
+Hunger. Weakness. Loneliness. Turn back on mountains. Shame of return.
+
 hordes of them.
 
-The paths do not converge, mama. I had hoped that they would.
+The paths do not converge, do they mama?
+No, they don't.
+I had hoped that they would.
 So did I.
-They do not and will not ever.
 
 A calm within. Not happiness in some outward display of emotion. Contentment. The 
 purity of placing one foot in front of the other, in meaningful repitition, in 
@@ -29,6 +35,23 @@ sacred water
 http://www.encore-editions.com/eanger-irving-couse-sacred-water/download
 figure-by-a-stream
 
+
+
+how does this scene move the story along?
+mika is on the path, approaching the mountain
+
+what is the conflict?
+mika has first encounter with physical and emotional trials of the path
+
+who/what are the antagonists?
+the desolate plains, the sun, lack of life, his unpreparedness, loneliness
+
+how is it resolved?
+he is defeated and turns back as he starves
+
+
+
+
 how does this scene move the story along?
 mika makes his first attempt to follow the path
 
@@ -40,6 +63,9 @@ gawoni, who does not want to let him out of the gates, the fear of the ravenmock
 
 how is it resolved?
 he talks gawoni into opening the gate and learns the ravenmocker is a murder of crows, who nest in a large bush surrounded by mushrooms
+
+
+
 
 how does this scene move the story along?
 mika is unable to resume his normal life, because of the words
