@@ -1,3 +1,20 @@
+The Blight
+They discover, Yaholo performs a rite of purification, no power because no true 
+belief. A young girl dies. Kulsathee and the elders speak.
+
+how does this scene move the story along?
+the blight appears, causing panic in the village
+
+what is the conflict?
+how to handle the blight (religious ritual, practical plan)
+
+who/what are the antagonists?
+the fungus which appears on all their crops, sickening the animals in the wilds
+
+how is it resolved?
+after the girl dies, kulsathee and the elders hold council and come up with a plan
+
+
 First journey on the plains
 Progress. Silence. Peace. Soreness. Blisters. Sunburn.
 No animals, no vegetation. No way to catch fish.

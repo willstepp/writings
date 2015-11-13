@@ -156,3 +156,26 @@ When I was a child this is what the old men told me they had heard when they wer
   “You have returned! How thin you are!”
   She asked her son to come inside. He set the bucket against the house and followed her. After he cleaned himself, he put on fresh clothes and ate a meal she had prepared, roasted chicken, beans, and dried peaches. He scarfed the food into his mouth like an animal. His rations had run out as he entered the valley so it had been days since his last meal. Once he was finished he looked up and saw his mother staring at him. Her eyes were filled with pride. She said nothing about the journey and yet for the rest of the day he caught her beaming whenever she thought he wasn’t looking. 
   Because he was exhausted the boy went to sleep while it was daylight still. He crawled into his bed and pulled the skins over his head to block out the light and to hide his shame.
+
+
+
+
+
+
+
+
+
+They discover blight, Yaholo performs a rite of purification, no power because no true 
+belief. A young girl dies. Kulsathee and the elders speak.
+
+how does this scene move the story along?
+the blight appears, causing panic in the village
+
+what is the conflict?
+how to handle the blight (religious ritual, practical plan)
+
+who/what are the antagonists?
+the fungus which appears on all their crops, sickening the animals in the wilds
+
+how is it resolved?
+after the girl dies, kulsathee and the elders hold council and come up with a plan
