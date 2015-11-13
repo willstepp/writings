@@ -1,3 +1,5 @@
+"How strange, mama. How strange in winter for the fruit to grow."
+
 VICTORY CELEBRATION: He feels an emptiness, as if he was watching himself from the 
 outside. No core to his actions. He could not understand why. Helping the village.
 There was a quiet voice. He realized it was something he had forgotten. Do what I 
