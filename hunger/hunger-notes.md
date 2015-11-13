@@ -1,5 +1,11 @@
 The Blight
-They discover, Yaholo performs a rite of purification, no power because no true 
+They discover the blight
+
+Yaholo performs a rite of purification, the people are without hope and look to 
+the ritual and incantations to give them hope. He saw they were desperate and 
+wanted something to give them peace of mind, but the words of the ritual had no 
+power because there was no true belief in them. This he knew.
+
 belief. A young girl dies. Kulsathee and the elders speak.
 
 how does this scene move the story along?
