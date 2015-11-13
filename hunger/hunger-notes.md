@@ -1,3 +1,17 @@
+VICTORY CELEBRATION: He feels an emptiness, as if he was watching himself from the 
+outside. No core to his actions. He could not understand why. Helping the village.
+There was a quiet voice. He realized it was something he had forgotten. Do what I 
+ask of you.
+
+SECOND DEPARTURE: All are gathered at the southern gates, to wish the hunters well,
+while Mika leaves out of the northern gate, by himself
+
+END: At the end describe the snow underfoot. Describe the people on their knees.
+Describe her son. Holding him. Describe the joyous voices. The girl observes.
+The tree itself. The fruit. The baskets. Kulsathee. The children laughing.
+
+FINAL LAKE: At his final trip to the lake. Wonders whether he should stay on the mountain.
+
 The Blight
 They discover the blight
 
