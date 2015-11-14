@@ -1,7 +1,7 @@
-"Beautiful world." When overlooking the icy landscape, dead trees, frozen rivers, 
-darkened skies, before the final journey home.
+LEOTI-MOHE: *You were not here. He was.* her thoughts to him
 
-"How strange, mama. How strange in winter for the fruit to grow."
+FINAL JOURNEY: "Beautiful world." When overlooking the icy landscape, dead trees, frozen rivers, 
+darkened skies.
 
 VICTORY CELEBRATION: He feels an emptiness, as if he was watching himself from the 
 outside. No core to his actions. He could not understand why. Helping the village.
@@ -13,7 +13,9 @@ while Mika leaves out of the northern gate, by himself
 
 END: At the end describe the snow underfoot. Describe the people on their knees.
 Describe her son. Holding him. Describe the joyous voices. The girl observes.
-The tree itself. The fruit. The baskets. Kulsathee. The children laughing.
+The tree itself. The fruit. The baskets. Kulsathee. The children laughing. "How 
+strange, mama. How strange in winter for the fruit to grow." as the way to reveal 
+the tree.
 
 FINAL LAKE: At his final trip to the lake. Wonders whether he should stay on the mountain.
 
