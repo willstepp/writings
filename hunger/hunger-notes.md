@@ -1,4 +1,7 @@
-LEOTI-MOHE: *You were not here. He was.* her thoughts to him
+LEOTI-MOHE: *He was here and you were not* her thoughts to him
+
+FIRST TIME ON MOUNTAIN LAKE: laughs for no reason, imagines walking on the clouds
+and looking up at the ground. It could be.
 
 FINAL JOURNEY: "Beautiful world." When overlooking the icy landscape, dead trees, frozen rivers, 
 darkened skies.
