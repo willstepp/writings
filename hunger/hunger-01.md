@@ -33,7 +33,7 @@ When I was a child this is what the old men told me they had heard when they wer
   At last the elders emerged from the council house and descended into the ceremonial grounds. There were five of them total and they were dressed in magnificent garb. The most delicate deerskins covered in beads and feathers. Their faces were painted red and white. Kulsathee, the old chief of peace, led them with a solemn frown. When they reached the benches at the foot of the tree they turned to face the people gathered. But their gaze was fixed on the two men who approached the funeral platform with the body of the departed medicine man.
   When the boy saw the body of Sakima, who had been anointed with oils and covered in dark paint, then dressed in a ritual gown, nothing like what he normally wore, he wept. The bearers reached the platform and lifted the body onto it. Then a group of them together lifted the platform onto the tall legs, where it fit into slots. They brought all of his belongings out and laid them at the base of the platform. Wood was brought and arranged for the burning. Another young man carried the tinder close to the pyramid of kindling and fuel wood and used a block of flint to start the fire. It caught quickly and within minutes the entire platform was engulfed in flames, an bright orange glow cast onto the faces of the people who had loved him most.
   So bright it burned that even the boy was no longer completely hidden in the shadows. He watched the flames consume his father. Plumes of dark smoke and flecks of embered ash rolled into the air above them. He turned to the crowd and there among them he saw a pair of eyes staring back at him. His friend Tye, who was a hunter like himself, and therefore trained to see things that wanted to remain out of sight. Tye was savvy. He would respect his wishes and not approach his friend in mourning. Instead he made a gesture by interlocking his two forefingers like a chain, this was a secret  symbol of their friendship. The boy returned the gesture from his spot in the darkness. His true friend.
-  Yet someone else had discovered him there in the flickering light of the funeral pyre, approaching him from the side so as not to be detected. She emerged carrying food. The light from the funeral fire was reflected in her eyes and her long, braided hair shimmered, smooth and flowing like a dark river. Leoti was beautiful indeed. She placed a bowl of kanuchi on the ground in front of him and demurred in respectful silence. He gazed upon her and then at the bowl, steam rising from it in the cool air.
+  Yet someone else had discovered him there in the flickering light of the funeral pyre, approaching him from the side so not to be detected. She emerged carrying food. The light from the funeral fire was reflected in her eyes and her long, braided hair shimmered, smooth and flowing like a dark river. Leoti was beautiful indeed. She placed a bowl of kanuchi on the ground in front of him and demurred in respectful silence. He gazed upon her and then at the bowl, steam rising from it in the cool air.
   “Eat, Mika.”
   “I’m not hungry.”
   But he knew it was not a request, and that she would not leave him be until he ate something, so he picked up the bowl and drank the soup down with only a few gulps. It was good, rich and sweet. Leoti then placed a wrapped cloth full of bread and roasted deer meat next to the bowl. It was still warm and the grease seeped through the wrappings.
@@ -98,13 +98,12 @@ When I was a child this is what the old men told me they had heard when they wer
   They embraced and then returned inside the gates. The late afternoon sun shone through the cracks in the palisades and lit geometric patterns on the grass where they walked. It was dinner time and in the air was an aroma of barbecued fish and cornbread baking on the fire.
   
   The boy woke before dawn. He rose quietly from his bed so not to wake his mother, who was asleep in the next room. In the dim light he found his knife and sheath, and slung the traveling pouch over his shoulder. Inside the pouch was the food his mother had prepared the night before, many slabs of fresh deer pemmican. There was no real need to carry water as he would be following the river and could drink from it whenever thirsty. He also brought flint for lighting fires. Outside their homestead was a small shed his father had used for the storage of personal farming equipment and hunting gear. he rattled through the contents of the shed as quietly as he could until his hands landed on the old bucket they used when irrigating their own crops. Because they had not grown their own vegetables in a few seasons the bucket was filled with debris. He emptied it onto the ground and took it with him.
-  With these few items the boy stepped onto he path that headed outside the northern gates. He followed the torchlight and looked up at the dark blue of the morning skies beyond the black shapes of the trees. As he approached the gates he saw the morning lookout, a boy his own age named Gawoni, fast asleep underneath a platform built for archers. He went over to the boy and gave him a hard kick in the shins.
-  “Let me out of here, you lazy dog.”
-  Gawoni startled out of his sleep with his fists up, ready for a fight. The boy grinned.
-  “What’s so funny?” He stretched both arms above his head and yawned like a mountain lion, “I was awake the whole time. Don’t tell anybody, okay?”
-  “Don’t tell anybody you were awake?”
+  With these few items the boy stepped onto he path that headed outside the northern gates. He followed the torchlight and looked up at the dark blue of the morning skies beyond the black shapes of the trees. As he approached the gates he saw the morning lookout, a boy his own age named Gawoni, fast asleep underneath a platform built for archers. He went over to the boy and gave him a gentle kick in the shins.
+  “Let me out of here.”
+  Gawoni startled out of his sleep with his fists up, ready for a fight. He stretched both arms above his head and yawned like a mountain lion.
+	“I was awake the whole time.”
   Again the boy demanded the lookout open the gates for him. Gawoni looked at him puzzled.
-  “Where are you going this early?”
+  “Where are you going this early in the morning?”
   “To fulfill an obligation.”
   “But, where?”
   “To the north. To the mountains.”
@@ -157,16 +156,26 @@ When I was a child this is what the old men told me they had heard when they wer
   She asked her son to come inside. He set the bucket against the house and followed her. After he cleaned himself, he put on fresh clothes and ate a meal she had prepared, roasted chicken with frybread, beans, and a bowl of macerated strawberries for dessert. He scarfed the food like an animal. His rations had run out as he entered the valley so it had been days since his last meal. Once he was finished he looked up and saw his mother staring at him. Her eyes were filled with pride. She said nothing about the journey and yet for the rest of the day he caught her beaming whenever she thought he wasn’t looking. 
   Because he was exhausted the boy went to sleep while it was daylight still. He crawled into his bed and pulled the skins over his head to block out the light and to hide his shame.
 
-
-
-
-
+  He and Leoti walked together near a large pond. It was early morning and a mist rose over the waters. They came to the sitting log and rested there. A water strider darted out of the grass across the surface of the pond and left a trail of ripples. Not many in the village were yet awake. That was part of the reason they liked to meet at this hour. It made it feel like somehow everything belonged to them. They watched the sun come up over the hillside, holding hands.
+  After, Leoti went to wake her brothers and to prepare breakfast for the family. The boy headed back to their homestead and started his chores. He scooped some feed into a bucket and went around back where there was a tiny shed with an open front. Inside was a bed of straw. This is where the chickens slept.
+  One of the chickens lay on its side. The boy poked it and saw that it had died. Its eyes were covered over by a milky film. Then he looked into the shed and saw that all of them were dead. There was no blood or any sign a fox had entered. On the hay he saw some kernals of corn. They were partially covered in a black fur, some kind of fungus. He had never seen anything like it before. He ran his hand through the feed in the bucket and saw some kernals covered in the same fur. He wiped his hand on the ground and looked towards the center of the village. There was some activity there. He headed there with the bucket of contaminated feed.
+  At the central storehouse a group of villagers had gathered. Each one brought with them buckets full of contaminated seed and some of them had even brought dead livestock, like chickens or piglets, which they held up by the legs, at a safe distance.
+  Yonaguska was the keeper of the storehouse and he was woken and brought to them. He wandered up, rubbing the sleep from his eyes, and asked them, “What is so important to wake me this early?”
+  When he saw the dead livestock and the contaminated grains his expression became grave. He handed the cane he walked with to his son, who had come along with him and climbed up the small ladder to a platform where the entrance to the storehouse was. At the top he scraped his fingers along the edge of the hatch in order to break the clay sealing, and then set it against the wall. He lit the torch he carried in his belt and leaned forward to see inside. But he was unable to see very far. His son climbed up onto the platform and held the torch for him while he crawled through the tiny entrance. He was as small and wiry as a mouse, one of the reasons he had been given the responsibility, and disappared inside. His son held the torch at the door and there was stirring inside while everyone below awaited his discovery.
+  When he emerged he climbed down and faced the crowd, which had doubled in number. He shook his head solemnly.
+  “Most everything has been contaminated with the fungus. Corn, beans. The potatoes look good. I don’t know how this happened. The seals are in place. It’s as dry as a desert inside.”
+  “What do we do now? My pigs are all dead.”
+  “And my chickens.”
+  “My rabbits too.”
+  “That I cannot say,” Yonaguska said, “We need to inform the elders so they can hold council.” He turned to his son.
+  “Run fetch Kulsathee. Fetch them all. Be quick!”
+  His son ran off towards the townhouse.
 
 
 
 
 They discover blight, Yaholo performs a rite of purification, no power because no true 
-belief. A young girl dies. Kulsathee and the elders speak.
+belief. A young boy dies. Kulsathee and the elders speak.
 
 how does this scene move the story along?
 the blight appears, causing panic in the village

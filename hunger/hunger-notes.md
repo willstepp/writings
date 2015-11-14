@@ -1,3 +1,6 @@
+"Beautiful world." When overlooking the frozen vista, before the final journey
+home.
+
 "How strange, mama. How strange in winter for the fruit to grow."
 
 VICTORY CELEBRATION: He feels an emptiness, as if he was watching himself from the 
