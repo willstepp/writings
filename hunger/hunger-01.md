@@ -191,17 +191,37 @@ When I was a child this is what the old men told me they had heard when they wer
   The chanting of the ritual repeated seven times in total. On the final recitation his helpers joined in. The drums were beaten ferociously. Yaholo shook his arms and legs between the beat of the drums. Then in the silence immediately after he pulled four snake skins from his medicine bag which had been bound together. Then he removed a bag of herbs and sprinkled them onto the skins and tossed it into the flames.
   The boy watched the ritual with fascination. Yet he knew the words Yaholo spoke had no powers to heal their food supply, because no one truly believed in them. Not Yaholo, nor his helpers, nor the elders, nor the villagers, nor himself. None believed. Yet they all pretended to, including the boy, because they had nothing else to give them hope.
 
-
-A young boy dies. Kulsathee and the elders speak.
-
-how does this scene move the story along?
-the blight appears, causing panic in the village
-
-what is the conflict?
-how to handle the blight (religious ritual, practical plan)
-
-who/what are the antagonists?
-the fungus which appears on all their crops, sickening the animals in the wilds
-
-how is it resolved?
-after the girl dies, kulsathee and the elders hold council and come up with a plan
+  After the burning of the crops and all contaminated foodstores life went on. Villagers horded potatoes for their own families. Fights broke out when it came to distributing what remained of them from the town storage house, and some were left with little eat. Since nobody knew what would happen they rationed whatever potatoes they had.
+  There was a family of six who lived outside the gates in the hills and they had no potatoes left. The father went from house to house in the village asking for help. But none wanted to give up their only foodsource, especially in this uncertain time, though some did give begrudgingly.
+  “Tell me, why should I help you when did not even help yourself? Pure laziness, that’s all it is.”
+  “You should have been prepared, like we are! You have a family. Look at you now, begging like a dog. I am ashamed for you.”
+  This is what his neighbors said.
+  The man, who was called Salal, came to the door of their homestead one afternoon, when the boy was repairing a hole in the roof. He climbed down and greeted the man who would not look him in the eyes. He stared at the ground and held a small, empty sack at his side.
+  “Do you have any potatoes to spare?”
+  The boy went inside. Ama came out a few minutes later, a small pile of potatoes in her apron. The boy came out behind her and stared at the man. When she gave him the pile he sobbed into his hands. His eyes were red and swollen.
+  “Thank you, Ama. This means the world to my family. Thank you very much.”
+  Salal collected the potatoes in a skin sack he dragged behind him and went to the next house.
+  The boy looked at his mother.
+  “Mama, why did you give him so many?” he asked. “We don’t have enough ourselves.”
+  Ama did not answer. She went back inside and after a few moments the boy climbed back onto the roof and resumed his work. Later he came in exhausted and his mother had prepared a single roasted potato for them to eat. She broke it in half and set it in his bowl.
+  One night a scream came from the house of Ninovan. The boy rose from his bed and went outside to see what was the matter. Others had also come out and they all looked in the direction of the house. Not long after a woman came running down the path, carrying a young boy, her son. His skin was blue and there was no life in his opened eyes. She ran to the townhouse and cried at the door. Kulsathee exited and called for Yaholo.
+  The medicine man said a few words of purification, but there was nothing to be done for the boy. Yaholo looked up with helpless eyes and turned to the mother. She fell to her knees and held the body of her son. Then she cried out, “Please. No. Don’t take him away from me!”
+  It was told how the boy had eaten a couple of potatoes earlier that evening with his mother and father. The elders asked to see their supply and they were brought in a basket. Upon examination they found traces of the black fungus on their potatoes.
+  The village panicked.
+  “What will we eat now?”
+  “How am I going to feed my children?”
+  “Why have the elders not come up with a plan?”
+  Nobody slept that night from the fear that they or their loved ones might suffer the same fate as the house of Ninovan. 
+  In the morning all were called to the ceremonial grounds. The elders had held council all through the night and would pass on their decision at this time.
+  Under the tree the village gathered. Kulsathee led the elders out of the townhouse and down the steps into the grounds. They went to the log bench and sat down. The chief of peace alone rose and surveyed the faces of the people. His expression was solemn and when he began to speak the sound of his voice was like a large drum, definitive and booming.
+  “You must know that a blight has come over our valley. It has affected our crops, our stores, and our livestock. It has contaminated plans in the wilds and therefore has also sickened or killed the game that roam our forests. We had thought that potatoes were safe, but only last night, as you all know by this point, a boy died from eating potatoes contaminated with the black fungus. His name was Kanuna and his loss is a devastation, an inconsolable loss. Such a bright boy, Kanuna. I remember him playing,”
+  The old man’s voice broke and tears fell from his eyes. He paused for a few moments and continued, his voice not as resolute as before.
+  “We do not know the source of this blight. We do know that it acts like a mold and will spread on contact. It seems to spread through all varieties of plants, grains, vegetables, and fruits. Although the fungus doe not seem to spread via animals or people, it can still make you sick, as we have learned. The most at risk our the very old or the very young.”
+  “But what can we do?” A young father shouted, “How can we feed our families now, when the potatoes are contaminated? You said they were safe to eat!”
+  Some in the crowd scolded the man for showing disrespect, but Kulsathee calmed them with a wave of his hand.
+  “Do not blame this man for his outburst. This good father has asked what all of you want to know. I understand this well. Do not forget that I am also a father, and a grandfather, and soon to be a great grandfather!”
+  He gestured to his large family sat nearby. His granddaugther rubbed her belly and smiled bashfully. Kulsathee regarded them with compassionate eyes.
+  “Do not be afraid. Myself and the elders have held council all through the night. Since this came to pass we have also held council with the farmers and hunters among you, in order to see what can be done. And this is what we will do.”
+  “Every man who is able to hunt will tomorrow set off on a journey to the next valley. We have sent a scout there and he has reported back the blight has not yet spread that far. It is a five day journey. We will enter the next valley to hunt deer, rabbit, and other game. Accompanying the men will be a small group of women, to gather nuts, and wild fruits and vegetables that can be dried. They will also stay at the base camp to dress the kills and to salt them for the journey back to the village.”
+  “Because the best place for the hunters will be in the next valley, they will remain there and we will set up a system of checkpoints to deliver the food supply. Then, after a couple of weeks, the hunters will return to rest and to see their families. Then we start over again. By doing this we will be able to store enough food to last throughout the winter, and safely into the following year. Remember, the days are now long and warm, but we cannot forget they will not always be so. We must not forget that the Earth is bountiful but she is also unforgiving and harsh. Our people are strong and by working together we will overcome this blight. We will not starve!”
+  
