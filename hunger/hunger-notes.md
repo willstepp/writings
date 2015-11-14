@@ -1,5 +1,5 @@
-"Beautiful world." When overlooking the frozen vista, before the final journey
-home.
+"Beautiful world." When overlooking the icy landscape, dead trees, frozen rivers, 
+darkened skies, before the final journey home.
 
 "How strange, mama. How strange in winter for the fruit to grow."
 
