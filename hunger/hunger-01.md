@@ -181,8 +181,8 @@ When I was a child this is what the old men told me they had heard when they wer
   A distinctive cedar smell filled the air. The helpers themselves had drums and started to beat on them. Yaholo joined them. The beat was at first slow but increased in rhythm. At certain times the medicine man would begin a recitation.
 
   Out, evil medicine! Leave our crops immediately!
-  Out, evil medicine! Leave our crops immediately!
-	Out, evil medicine! Leave our crops immediately!
+  Out, evil medicine! Leave our stores immediately!
+	Out, evil medicine! Leave our village immediately!
   
   Go back into the Earth. Go back into the Heart of the World!
   Go back into the Earth. Go back into the Heart of the World!
