@@ -184,9 +184,9 @@ When I was a child this is what the old men told me they had heard when they wer
   Out, evil medicine! Leave our stores immediately!
   Out, evil medicine! Leave our village immediately!
   
-  Go back into the Earth. Go back into the Heart of the World!
-  Go back into the Earth. Go back into the Heart of the World!
-  Go back into the Earth. Go back into the Heart of the World!
+  Go back into the Darkness. Go back into the Heart of the World!
+  Go back into the Darkness. Go back into the Heart of the World!
+  Go back into the Darkness. Go back into the Heart of the World!
 
   The chanting of the ritual repeated seven times in total. On the final recitation his helpers joined in. The drums were beaten ferociously. Yaholo shook his arms and legs between the beat of the drums. Then in the silence immediately after he pulled four snake skins from his medicine bag which had been bound together. Then he removed a bag of herbs and sprinkled them onto the skins and tossed it into the flames.
   The boy watched the ritual with fascination. Yet he knew the words Yaholo spoke had no power to heal their food supply, because no one truly believed in them. Not Yaholo, nor his helpers, nor the elders, nor the villagers, nor himself. None believed. Yet they all pretended to, including the boy, because they had nothing else to give them hope.
