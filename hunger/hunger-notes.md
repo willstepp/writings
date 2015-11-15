@@ -1,3 +1,6 @@
+AMA PATH: She compares his path with the path around the village, which diverges
+and then converges, creating a circle.
+
 LEOTI-MOHE: *He was here and you were not* her thoughts to him
 
 FIRST TIME ON MOUNTAIN LAKE: laughs for no reason, imagines walking upon the clouds
