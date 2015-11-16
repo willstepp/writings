@@ -1,23 +1,28 @@
+Every mention of 'what has been asked of him' needs to be whittled down to the 
+merest of suggestion. Anything more than that comes off preachy. Just bad. You 
+have to listen with the ears of an unbeliever. It must speak to them too, maybe 
+most of all.
+
 NIGHT ALONE: 
 
-Everything was so important, so serious. And yet -
+Everything was so important, so serious. And yet,
 Everything had been decided. It was this because of this and we must do this.
 And yet, 
 
 Dumped out the bucket, filled with debris.
 
 And the voice, diminished, faint, like the flame of a torch that has nearly 
-burned out, and the light nearly extinguished, nearly subsumed by the surrounding 
-dark. But not yet.
+burned out, the small flame almost subsumed by the darkness for all time. But 
+not yet,
 
-    Do what I ask of you
+Do what I ask of you
 
 
 
 AMA PATH: She compares his path with the path around the village, which diverges
 and then converges, creating a circle.
 
-LEOTI-MOHE: *He was here and you were not* her thoughts to him
+LEOTI-MOHE: *He was here and not you* her thoughts to him
 
 FIRST TIME ON MOUNTAIN LAKE: laughs for no reason, imagines walking upon the clouds
 and gazing up at the earth and the trees growing down. It could be so. It could be.
