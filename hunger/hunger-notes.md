@@ -1,3 +1,19 @@
+NIGHT ALONE: 
+
+Everything was so important, so serious. And yet -
+Everything had been decided. It was this because of this and we must do this.
+And yet, 
+
+Dumped out the bucket, filled with debris.
+
+And the voice, diminished, faint, like the flame of a torch that has nearly 
+burned out, and the light nearly extinguished, nearly subsumed by the surrounding 
+dark. But not yet.
+
+    Do what I ask of you
+
+
+
 AMA PATH: She compares his path with the path around the village, which diverges
 and then converges, creating a circle.
 
