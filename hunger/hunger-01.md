@@ -251,3 +251,43 @@ When I was a child this is what the old men told me they had heard when they wer
   They beamed and nodded to his friend.
   “Well then, you have both made us proud, and one day you will be warriors. This we know.”
   They stood the hunters and took them around the arms and shook them in the gesture of great respect. Then they addressed the group and told everyone to get plenty of rest. Since they had met quota for the week, the following morning they would be returning to the village for a few days of rest. The hunters cheered and that night they slept well from exhaustion and dreamt not the of the hunt but of home and being reunited with their loved ones.
+
+  The children ran out to meet the caravan. In their hands they carried wooden knives and tiny bows. When they saw the line of weary, yet proud, hunters they all shouted in unison, 
+  “They have returned! Everyone come and see!” 
+  Most of all they wanted to see Mika, the youngest and best of all the hunters. He was the one the children most looked up to (and secretly wanted to be). When they saw him and Tye heading up the back of the caravan line they scrambled in that direction and immediately asked questions.
+  “How many did you kill this time?”
+  “I bet they killed fifty!”
+  “No way! That’s too many.”
+  “Not for Mika. He’s the boy with the bow.”
+  “Mika, the boy with the bow!”
+  The children were caught up in the excitement of the moment and shouted over each other. Tye and he exchanged amused glances over their little heads and answered their questions they best they could.
+  At the gates the families were gathered in a large crowd. The gates were opened and had been decorated with beautiful streams of woven flowers. The smell of flame-roasted game was in the air and lifted the noses of the weary hunters and their caravan. They embraced their loved ones and told them all that had happened since the last time they were together.
+  Ama and her sister Ayita stood near the back. Her eyes were moist and she smiled when she saw her son surrounded by all the children. He hugged her and Ayita. Then Ama stood back and regarded him.
+  “My famous son, the filthy hunter. Look at him!”
+  “I swear he has grown two inches,” Ayita said.
+  Ama turned to her sister, amused.
+  “The children come up to me everyday. They say, when will the boy with the bow return? Do you know when he he will come back? I have to tell them I know as much as they do, and that I also await the return of the boy with the bow.”
+  Ama and her sister laughed. They walked inside the village gates together and returned to the homestead to prepare for the feast that evening.
+  Torches lit up the faces of all who had gathered there under the stars in the ceremonial grounds. There was food, so much food, though not of the variety they had in the days before the blight. The boy stuffed himself until he could barely move. He sat on the grass and patted his stomach. After the eating was the dancing. Drums were brought out and set in a large circle. Girl dressed in decorated skin dresses came out wearing turtle-shell rattles on their legs and forearms. They danced to the drums while others chanted popular songs about home and love.
+  Leoti was there. He saw her from across the bonfire, with other girls. She looked around her for something. Or someone. He rose and crept around behind the tree, his eyes never leaving the dark-haired girl who was always in his thoughts. From there he crouched and wound through the groups of dancers and others who sat upon the grass. Then at last he was right behind her. She was talking to her friend, but then said in a loud voice.
+  “Am I a deer?”
+  The boy said nothing. Suddenly his face was wet all over. Leoti turned and faced him directly, empty cup in hand. Her face was serious.
+  “Do you think you can stalk me like a deer?”
+  “Hi, Leoti.”
+  He wiped his face and himself grew serious, worried he had offended her.
+  “Hi, Mika.” Leoti said. She kissed her hand and touched his cheek gently. Then she broke into a smile. The group of girls around her started to giggle.
+  They walked on the grounds together, hand in hand. He had never seen such a beautiful creature in all his life. Her dark, smooth hair framing the round and delicate features of her face. Those eyes so full of something he found hard to put into words. *Promise* was close.
+  “You have grown strong, Mika.”
+  “Everyone keeps saying that.”
+  “It is true. Or maybe it is just your reputation that makes you seem so large and mighty. Kulsathee and the elders beam when they speak your name. Just like the children do.”
+  “I only do what is asked of me.”
+  Leoti rolled her eyes.
+  “And so humble!”
+  They sat on the dark side of the tree together, out of sight of the others, and did not speak. But it was good. And when he did at last turn to her he could see the thing they had shared so often before, something like a belonging. She was his and he was hers and the world was something for them to share.
+  That night he dreamt of Leoti and of her youthful beauty and the tenderness between them. In the dream they sat under tree as earlier in the night and he kissed her as he had not done then. When they kissed it was as if they became a single organism, melting one into the other, full of an all-consuming feeling of compassion towards all things. And then he woke.
+  He threw off the skins and looked out the window, at the stars and the black shadows of the treetops moving in the breeze. In the next room he heard his mother sleeping. He put on a robe and walked outside and looked up. There was something he needed just now. He needed quiet. It was quiet. Everyone in the village was in their homes. The only sounds were the crickets in the forest and the breeze and the sound of his footsteps on the path. But he did not need quiet at all, really. He needed silence. Because something was not right. Something had not been right for a long time. His thoughts were not clear but he felt like he was close to something important. And there was too much noise here. He walked the path which went around the edge of the village, just inside the palisade walls. Too much noise to hear.
+  As a hunter he did a good thing for their tribe. He hunted the deer which fed their people. Before the blight it had been different. They grew crops also. But now it was necessary that every able male join the hunt in order to provide the only food source that could sustain them throughout the winter. It was about survival. He went back to the moment when the blight had been discovered and remembered every detail and asked himself if the choice that had been made was the right one. And every time the answer was yes. And no other choice was right. In every way he could conceive, it was right and good and true, this work he did. And yet,
+  How wonderful the looks on the faces of the children today. How they looked up to him. They put feathers in their hair as he did. How he loved them. Those beautiful faces. And his family, so proud of him. Their hearts swollen with pride. How he loved them. And Leoti. The feeling of their togetherness was still with him. To provide for them, to use his strength and skills to hunt for the food, to provide his loved ones with food to survive the winter. It was a good thing. In every way he could conceive, it was good and true and right, this work he did. And yet,
+  He had walked entirely around the village and now returned to their homestead. It was still quiet, but now his racing thoughts had calmed. He went to the shed and found the old bucket, full of debris. He emptied it and ran his fingers along the handle, which was still wrapped in strands of grass from the prairie. He sat with it under the stars and at last found the silence he had wanted. Because it was only in the silence that he could hear it. Faintly, because so much time had passed and because it had nearly been forgotten.
+
+*Do what I ask of you*
