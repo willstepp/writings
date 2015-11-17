@@ -1,3 +1,7 @@
+MOTHER ARGUMENT: Do you think whatever is out there is more important than the 
+people who love and depend on you? Did you even consider others? I cannot support 
+this.
+
 Every mention of 'what has been asked of him' needs to be whittled down to the 
 merest of suggestion. Anything more than that comes off preachy. Just bad. You 
 have to listen with the ears of an unbeliever. It must speak to them too, maybe 
