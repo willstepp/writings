@@ -1622,7 +1622,7 @@ As the sun rose he watched the man, the body of the man, hurt and alone. He dove
 
 There he was, collapsed onto the park grounds, a bleeding wound on his leg, robbed of all his Earthly possessions. Why return to this sad state of existence? The man, suffering, slept a sleep with no rest. He thought about Constanza and the memory of their togetherness and how good that was, for however long it lasted. Their love, call it what it was. Why are we afraid of the word love. Why not break the bonds of this flesh and live according to our hearts. The man who suffers, there in the park in San Bernardo. The sun rising, light coming over the mountains and shining onto his bleeding wounds.
 
-"Heal his wounds," a voice spoke to him from beyond the trees, where it was still dark, where the briars, limbs, and weeds obscured the path through.
+"Heal his wounds," a feminine voice spoke to him from beyond the trees, where it was still dark, where the briars, limbs, and weeds obscured the path through.
 
 
 Ten
