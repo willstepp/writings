@@ -44,9 +44,10 @@ while Mika leaves out of the northern gate, by himself
 
 END: At the end describe the snow underfoot. Describe the people on their knees.
 Describe her son. Holding him. Describe the joyous voices. The girl observes.
-The tree itself. The fruit. The baskets. Kulsathee. The children laughing. "How 
-strange, mama. How strange in winter for the fruit to grow." as the way to reveal 
-the tree.
+The tree itself. The fruit. The baskets. Kulsathee. The children laughing. 
+
+"It's strange, mama," the young girl said, tugging at her mother's dress and pointing, 
+"It's strange in winter for the fruit to grow."
 
 FINAL LAKE: At his final trip to the lake. Wonders whether he should stay on the mountain.
 
