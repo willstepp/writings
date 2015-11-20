@@ -2,6 +2,9 @@ MOTHER ARGUMENT: Do you think whatever is out there is more important than the
 people who love and depend on you? Did you even consider others? I cannot support 
 this.
 
+Where are you going?
+He did not answer her. She saw his eyes and remembered that look from before.
+
 Every mention of 'what has been asked of him' needs to be whittled down to the 
 merest of suggestion. Anything more than that comes off preachy. Just bad. You 
 have to listen with the ears of an unbeliever. It must speak to them too, maybe 
