@@ -1,3 +1,8 @@
+THE LAKE: Remove the meadow, ruins are enough, fish are necessary
+
+THE VISION: Contrast visions of war with visions of exploration beyond earth
+
+
 MOTHER ARGUMENT: Do you think whatever is out there is more important than the 
 people who love and depend on you? Did you even consider others? I cannot support 
 this.
