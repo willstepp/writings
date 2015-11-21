@@ -122,7 +122,10 @@ When I was a child this is what the old men told me they had heard when they wer
   The boy woke before dawn. He rose quietly from his bed so not to wake his mother, who was asleep in the next room. In the dim light he found his knife and sheath, and slung the traveling satchel over his shoulder. Inside the pouch was the food his mother had prepared the night before, many slabs of fresh deer pemmican. There was no real need to carry water as he would be following the river and could drink from it whenever thirsty. He also brought flint for lighting fires. Outside their homestead was a small shed his father had used for the storage of personal farming equipment and hunting gear. he rattled through the contents of the shed as quietly as he could until his hands landed on the old bucket they used when irrigating their own crops. Because they had not grown their own vegetables in a few seasons the bucket was filled with debris. He emptied it onto the ground and took it with him.
   With these few items the boy stepped onto he path that headed outside the northern gates. He followed the torchlight and looked up at the dark blue of the morning skies beyond the black shapes of the trees. As he approached the gates he saw the morning lookout, a boy his own age named Gawoni, fast asleep underneath a platform built for archers. He went over to the boy and gave him a gentle kick in the shins.
   “Let me out.”
-  Gawoni startled out of his sleep with his fists up, ready for a fight. The lookout stretched both arms above his head and yawned like a mountain lion. Again he demanded him to open the gates. Gawoni looked at him.
+  Gawoni startled out of his sleep with his fists up, ready for a fight. The lookout stretched both arms above his head and yawned like a mountain lion. 
+	“I was awake the whole time, really. Don’t tell anybody, okay?”
+  “Don’t tell anybody you were awake?”
+	The lookout shrugged. Again the boy demanded him to open the gates.
   “Where are you going this early?”
   “To fulfill an obligation.”
   “But, where?”
@@ -209,7 +212,7 @@ When I was a child this is what the old men told me they had heard when they wer
   Go back into the Darkness. Go back into the Heart of the World!
 
   The chanting of the ritual repeated seven times in total. On the final recitation his helpers joined in. The drums were beaten ferociously. Yaholo shook his arms and legs between the beat of the drums. Then in the silence immediately after he pulled four snake skins from his medicine bag which had been bound together. Then he removed a bag of herbs and sprinkled them onto the skins and tossed it into the flames.
-  The boy watched the ritual with fascination. He knew the words Yaholo spoke had no real power to heal their food supply, because no one truly believed in them. Not Yaholo, nor his helpers, nor the elders, nor the villagers, nor even himself. None believed. Yet they all pretended to because it made them feel less alone, because they had nothing else to give them hope.
+  The boy watched the ritual with fascination. He knew the words Yaholo spoke had no real power to heal their food supply, because no one truly believed in them. Not Yaholo, nor his helpers, nor the elders, nor the villagers, nor even himself. None believed. Yet they all pretended to because it brought them together. Because they had nothing else to give them hope.
 
   After the burning of the blighted crops life went on. Dead animals discovered in the wilds were also burned. The villagers horded potatoes for their own families. Fights broke out when it came to distributing what remained of them from the town storage house, as some were left with little to eat. Since nobody knew what would happen next they rationed whatever potatoes they had. One family of six who lived outside the gates in the hills had no potatoes left at all, so the father went from house to house in the village asking for help. But none wanted to give up their only foodsource, especially in this uncertain time, though some did give begrudgingly.
   “Why should I help you when you do not even help yourself? And now you expect us to pay for your laziness? You should be ashamed.”
@@ -308,6 +311,7 @@ When I was a child this is what the old men told me they had heard when they wer
   He threw off the skins and looked out the window, at the stars and the black shadows of the treetops moving in the breeze. In the next room he heard his mother sleeping. He put on a robe and walked outside and looked up. There was something he needed just now. He needed quiet. It was quiet. Everyone in the village was in their homes. The only sounds were the crickets in the forest and the breeze and the sound of his footsteps on the path. But he did not need quiet at all, really. He needed silence. Because something was not right. Something had not been right for a long time. His thoughts were not clear but he felt like he was close to something important. And there was too much noise here. He walked the path which went around the edge of the village, just inside the palisade walls. Too much noise to hear it.
   As a hunter he did a good thing for their tribe. He hunted the deer which fed their people. Before the blight it had been different. They grew crops also. But now it was necessary that every able male join the hunt in order to provide the only food source that could sustain them throughout the winter. It was about survival. He went back to the moment when the blight had been discovered and remembered every detail and asked himself if the choice that had been made was the right one. And every time the answer was yes. And no other choice was right. In every way he could conceive, it was right and good and true, this work he did. And yet,
   How wonderful the looks on the faces of the children today. How they looked up to him. They put feathers in their hair as he did. How he loved them. Those beautiful faces. And his family, so proud of him. Their hearts swollen with pride. How he loved them. And Leoti. The feeling of their togetherness was still with him. To provide for them, to use his strength and skills to hunt for the food, to provide his loved ones with food to survive the winter. It was a good thing. In every way he could conceive, it was good and true and right, this work he did. And yet,
+  [outside himself]
   He had walked entirely around the village and now returned to their homestead. It was still quiet, but now his racing thoughts had calmed. He went to the shed and found the old bucket in a corner, full of debris. He emptied it and ran his fingers along the handle, which was still wrapped in strands of grass from the prairie. He sat with it under the stars and at last found the silence he had needed. Because it was only in the silence that he could hear it. Faint, because so much time had passed, because it had nearly been forgotten.
 
   *Do what I ask of you*
@@ -392,14 +396,14 @@ When I was a child this is what the old men told me they had heard when they wer
   “He does not look the same. He looks sick.”
   “I can count his ribs from here.”
   The gates swung open and the boy picked up the bucket and his satchel and went inside. He nodded to the lookouts but they were stonefaced. He walked the path through the village center and looked around in amazement. Everything was exactly the same and yet looked completely different to his eyes. His eyes welled with tears as he saw familiar faces emerge from their homes.
-  “A miracle, I thought he was dead for sure.”
+  “A miracle. I thought he was dead for sure.”
   “Yet here he is.”
   “But where is the rest of him?”
   The villagers laughed.
-  “Mika, the boy with the bow! He has come back to us.”
-  “Doubt he can draw a bow anymore. Look at those arms.”
-  “I don’t know, he carries that bucket well.”
-  “Mika, the boy with the bucket!”
+  “The boy with the bow has come back to us.”
+  “Doubt he’ll be drawing bowstrings anytime soon. Look at those arms.”
+  “I don’t know. He carries that bucket well.”
+  “Now he’s the boy with the bucket.”
   There were laughs at that. Some shouted at their friends or family to come and see. More joined the crowd.
   “What’s in the bucket?”
   “I don’t know.”
@@ -407,3 +411,45 @@ When I was a child this is what the old men told me they had heard when they wer
   Others heard the commotion and by the time the boy had reached the ceremonial grounds the entire population of the village had come to see him who had been gone for so long. He saw his mother in the crowd. She dried her eyes and looked upon him with pitying eyes. He saw the elders, even Kulsathee. He saw Leoti but she turned away when they met eyes. When he came to the ceremonial grounds they did not follow him. Instead the stopped at the low gates and gossiped to one another in hushed whispers. 
   He walked up to the tree and stared up at its branches. Then he lifted off the makeshift lid from the bucket and gently poured its contents into the ground around the trunk. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited.
  
+  It was an overcast day in early autumn. The pack of hunters stopped to rest on a high ridge, overlooking a meadow. This was the spot Turkeyfoot, a scout, had discovered a herd of doe the previous morning.
+  “Twenty strong, no lie.”
+  A shallow creek wound through the area, its current swift and water clear. Mist-sodden leaves from the surrounding trees patchworked the ground in shades of red, yellow, and brown. One of the elder hunters pointed to the creek.
+  “No doubt the water brings them here.”
+  The others nodded in agreement.
+  Turkeyfoot pointed out the exact spot he saw the herd emerge from the forest line. He had been long in these woods tracking the movements of another tribe while hunting deeper inside the neighboring valley.
+  The elder huntsment surveyed the clearing and the best strategy would be a deer drive, a method of hunting which uses carefully arranged hunters to push a herd into an area where they have no escape and are therefore easily picked off with bow and arrow, typically from a high vantage point.
+  It started to drizzle and the men draped their coats over their heads and ducked underneath some outcroppings on the ridge. Drizzled turned to rain and pattered on the rocks and onto the treetops. Cold pemmican was rationed to the men and they sat together and ate. Because of the long trek they were famished and most of them finished off their portion quickly and asked for another, which they were granted with a reluctant grunt. As they ate they debated strategies for the drive.
+  In a deer drive the hunters are divided into three groups: drivers, standers, and snipers. Depending on the location there are many possible ways to arrange the groups, and how many of each should be used. For this drive there was not much argument where the snipers should be. The ridge had a perfect view of the meadow and the shear cliff would be a good barrier against which to drive the herd.
+  Mika ate his ration in silence. He did not talk much since his return and nobody much talked to him. He was very underweight and though his strength had come back, his skills were nothing like they were before, and everyone knew it. He listened to the other hunters argue about where the driving line should be placed, which was important to them.
+  “That isn’t right. We should be as close as possible to the cliff edge, but adjacent to it. Like so.”
+  The hunter held up his arms in a cross shape to indicate what he meant to the others. They nodded, thoughtfully.
+  “No. You want the first line waiting by the southern edge of the woods, assuming the herd approaches from the east. Isn’t that where Turkeyfoot spotted them?”
+  “Don’t remember.”
+  Another hunter shouted to the scout, who was off by himself, eating a plug of deer jerky.
+  “What side did they come from again?”
+  “The west.”
+  “Oh, I had it wrong. In that case, the first line needs to be there, and down fifty feet or so.”
+  “That is way too far.”
+  The boy listened to them but did not join in. At one time he might have been interested in that sort of thing. Not anymore. He no longer cared about the hunt. Not since he returned from the mountains. He did his duty. But he did not care. He did feel a pang of guilt about his apathy. It seemed to him like he ought to care. It was important after all, to feed their tribe. And everyone else seemed to care so much. He watched them become impassioned and turn red with anger when there was a disagreement.
+  “It doesn’t matter what you think! It is not your decision at the end of the day. The elders will decide where to post every hunter, that includes drivers, standers, and even snipers.”
+  “That is true,” a few echoed.
+  “All I know is I better be posted as a sniper. I’m tired of being looked over.”
+  “But you are a stander if I ever saw one. You stand well.”
+  The others laughed. The one who wanted to be a sniper rose and made and obscene gesture at the rest of them. That only made them laugh harder.
+  “You all are a bunch of frog eaters! I am a sniper. I’m going to talk with the elders. They know my aim is true. The elders know.”
+  He stomped off and the other hunters watched him go, the boy included. He sat among them and laughed when they did, became serious when they became serious. He did everything he was supposed to do as a hunter.
+  Yet ever since his return, all his waking thoughts were on the mountains and the lake he had found on its summit. Just as his father said he would. He thought about how he had watered the tree and how nothing had come of it after all. How the villagers mocked him because of that. Nothing at all.
+  Soon the rain cleared and blue skies appeared. Ther ewas a cool wind that blew in and rustled the leaves on the trees and shook loose ones from their limbs so that they fell in lazy arcs to the ground. The elders gathered everyone and instructed them where they would post during the drive. 
+  The snipers included Tye and all the best with a bow, those whose aim was true and could be relied upon. The hunter who insisted he was a sniper was not among them, but he was made a driver which placated him. The drivers were the largest group by far. They had to be strong and nimble on their feet. The last group was the standers. Nobody wanted to be posted as a stander during a drive. Yet the stander was also important. They were placed at certain locations and were responsible to hold ground and act like a human wall. The boy was selected for this role and joined the others in his group.
+  Both drivers and standers were told to descend the ridge and get into their positions. They set off together with an elder to guide them to the correct spots. They had to double their pace as it was already late afternoon and had to be in position by dusk, when the herd was most likely to return.
+  In the meadow the boy was told to stand at the northern edge of the clearing. This was an important spot because it was the widest gap between standers. The main driver line would be approaching from the opposite side so there was a good chance the herd would flee in this direction. The elder walked up and addressed him when he had crouched behind a treestump.
+  “Are you prepared, hunter?”
+  “I am.”
+  From this spot the boy had a view of the entire meadow. He sat and watched as the blue afternoon skies turned to pale orange and pink. The trees were bathed in an amber glow from the descending sun, their bark darkened and still wet. He smelled the soil, sodden from the rain. All was quiet except for the creek trickling. He took in his surroundings and was taken back to a particular evening when he was alone on the high plains, when the skies had looked much the same. It had been a peaceful day. Good day for walking. He had made progress and was exhausted in both body and mind. He had netted a fish and could still smell it roasting on a skewer over the flames. He lay on the ground and counted as the stars appeared one by one,
+  “Hunter! Stand your ground!”
+  The boy glanced up and saw a deer barreling towards him, along with a dozen others in flight. He leapt to his feet and made the wide, stomping motions they had trained for. But he had missed the timing of it and the deer shot by, unafraid of him. One of them grazed his arm and knocked him into the ground, his face buried in the soft dirt. In danger of being trampled he curled into a ball and waited. After, he rose and wiped the mud from his eyes.
+  He looked around and saw the other hunters emerge from their spots. Their heads hung in disbelief and none looked at him. The  elder posted on the ground cupped his hands and shouted to the ridge, where one of the other elders was standing, hands on knees.
+  “Head to camp. We missed our only chance. The herd will not come again.”
+  The elder on the ridge frowed. He whistled for his men to pack  up and then turned back. He surveyed the medow and remarked on what had been lost.
+  “It is a shame.”
+  
