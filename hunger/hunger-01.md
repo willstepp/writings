@@ -450,6 +450,6 @@ When I was a child this is what the old men told me they had heard when they wer
   The boy glanced up and saw a deer barreling towards him, along with a dozen others in flight. He leapt to his feet and made the wide, stomping motions they had trained for. But he had missed the timing of it and the deer shot by, unafraid of him. One of them grazed his arm and knocked him into the ground, his face buried in the soft dirt. In danger of being trampled he curled into a ball and waited. After, he rose and wiped the mud from his eyes.
   He looked around and saw the other hunters emerge from their spots. Their heads hung in disbelief and none looked at him. The  elder posted on the ground cupped his hands and shouted to the ridge, where one of the other elders was standing, hands on knees.
   “Head to camp. We missed our only chance. The herd will not come again.”
-  The elder on the ridge frowed. He whistled for his men to pack  up and then turned back. He surveyed the medow and remarked on what had been lost.
+  The elder on the ridge frowed. He whistled for his men to pack  up and then turned back. He surveyed the medow and remarked on the bounty that had been lost.
   “It is a shame.”
   
