@@ -408,7 +408,7 @@ When I was a child this is what the old men told me they had heard when they wer
   “What’s in the bucket?”
   “I don’t know.”
   “Where is he going?”
-  Others heard the commotion and by the time the boy had reached the ceremonial grounds the entire population of the village had come to see him who had been gone for so long. He saw his mother in the crowd. She dried her eyes and looked upon him with pitying eyes. He saw the elders, even Kulsathee. He saw Leoti but she turned away when they met eyes. When he came to the ceremonial grounds they did not follow him. Instead the stopped at the low gates and gossiped to one another in hushed whispers. 
+  Others heard the commotion and by the time the boy had reached the ceremonial grounds the entire population of the village had come to see him who had been gone for so long. He saw his mother in the crowd. She dried her eyes and looked upon him with pitying eyes. He saw the elders, even Kulsathee. He saw Leoti but she turned away when they met eyes. Mohe was there. When he came to the ceremonial grounds they did not follow him. Instead the stopped at the low gates and gossiped to one another in hushed whispers. 
   He walked up to the tree and stared up at its branches. Then he lifted off the makeshift lid from the bucket and gently poured its contents into the ground around the trunk. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited.
  
   It was an overcast day in early autumn. The pack of hunters stopped to rest on a high ridge, overlooking a meadow. This was the spot Turkeyfoot, a scout, had discovered a herd of doe the previous morning.
