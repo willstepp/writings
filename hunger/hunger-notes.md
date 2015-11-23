@@ -1,3 +1,5 @@
+s
+
 THE LAKE: Remove the meadow, ruins are enough, fish are necessary
 
 THE VISION: Contrast visions of war with visions of exploration beyond earth
