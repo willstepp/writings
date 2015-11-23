@@ -1,3 +1,6 @@
+Replace 'high plains' with 'foothills' since that's what you really have in mind:
+https://en.wikipedia.org/wiki/Foothills
+
 There is a real problem with your setting descriptions. They are simplistic and
 non-evocative. They create no mental picture of the place, which is all they have 
 to do at the end of the day. Plan a rewrite to use actual places from your memory 
