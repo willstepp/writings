@@ -118,11 +118,10 @@ When I was a child this is what the old men told me they had heard when they wer
   
   The boy woke before dawn. He rose quietly from his bed so not to wake his mother, who was asleep in the next room. In the dim light he found his knife and sheath, and slung the traveling satchel over his shoulder. Inside the pouch was the food his mother had prepared the night before, many slabs of fresh deer pemmican. There was no real need to carry water as he would be following the river and could drink from it whenever thirsty. He also brought flint for lighting fires. Outside their homestead was a small shed his father had used for the storage of personal farming equipment and hunting gear. he rattled through the contents of the shed as quietly as he could until his hands landed on the old bucket they used when irrigating their own crops. Because they had not grown their own vegetables in a few seasons the bucket was filled with debris. He emptied it onto the ground and took it with him.
   With these few items the boy stepped onto he path that headed outside the northern gates. He followed the torchlight and looked up at the dark blue of the morning skies beyond the black shapes of the trees. As he approached the gates he saw the morning lookout, a boy his own age named Gawoni, fast asleep underneath a platform built for archers. He went over to the boy and gave him a gentle kick in the shins.
-  “Let me out.”
-  Gawoni startled out of his sleep with his fists up, ready for a fight. The lookout stretched both arms above his head and yawned like a mountain lion. 
-	“I was awake the whole time, really. Don’t tell anybody, okay?”
-  “Don’t tell anybody you were awake?”
-	Gawoni shrugged. Again the boy demanded him to open the gates.
+  Gawoni startled out of his sleep, fists up. When he saw Mika he stretched both arms overhead and yawned like a mountain lion. 
+	“I was awake the whole time. Don’t tell, okay?”
+  “Don’t tell you were awake?”
+	Gawoni shrugged. Again he demanded the lookout to open the gates.
   “Where are you going this early?”
   “To fulfill an obligation.”
   “But, where?”
@@ -454,7 +453,7 @@ When I was a child this is what the old men told me they had heard when they wer
   Ayita spit at his feet and stormed off into the house. From the porch his mother had heard the entire thing and her head was bowed, sobbing into her hand. Mika stood there for a few minutes, unsure what to say, and then left.
   He walked through the village center. There were children playing on the path. As he went by they mocked him behind his back and threw little rocks at his heels, causing him to stumble. He ignored them and went outside the gates. He walked the path among the pines and oaks. 
    Mika came to the small pond where he and Leoti sometimes watched the sunrise together. She was there. Next to her was Mohe. They sat on the log holding hands and smiling about something. It was too late for him to change course so he continued walking by. As he approached they both looked up. Caught unaware, they blushed. On their faces was a dazed expression. As if they had just been awoken from a lovely dream. They exchanged knowing glances and turned to Mika.
-  His neck grew hot. He started to tremble and did not know what to say to either of them. He smiled and nodded. They returned his smile. Then he waved and continued walking along the path. A little ways down he looked back and saw Leoti was watching him over her shoulder. In her eyes was a confession that broke his heart. *He was here and you were not.*
+  His neck grew hot. He started to tremble and did not know what to say to either of them. He smiled and nodded. They returned his smile. Then he waved and continued walking along the path. A little ways down he looked back and saw Leoti was watching him over her shoulder. In her sad gaze a confession that broke his heart. *He was here and not you.*
   Just as the sun went down he arrived back at the homestead. He went inside and prepared dinner. He ate deer jerky in the empty house, the twilight darkening into night. He lit a candle and focused his eyes on it. Somehow the thought of being alone at home was unbearable in the night. In the day it was not so bad. But now a feeling of loneliness came over him, a feeling of panic. The stillness in the room was like a tomb. He began to cry. He cried like he had not since the seven days of mourning.
   “Father,” he whispered, “tell me what to do, for I am truly lost.”
   It did him good to speak like that. A part of him wanted the spirit of his father to visit him. Like in a story. He would ask him what to do. There seemed no good path. Every path led to unhappiness, loneliness. He imagined the spirit  of his father like a mist in the same room, illuminated from within. He would ask him why he must water the tree. If only he would appear. But then, he knew such things did not happen in real life. Only in stories did they happen.
