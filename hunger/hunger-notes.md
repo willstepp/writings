@@ -1,4 +1,8 @@
-s
+There is a real problem with your setting descriptions. They are simplistic and
+non-evocative. They create no mental picture of the place, which is all they have 
+to do at the end of the day. Plan a rewrite to use actual places from your memory 
+or find images/video. Clearly just imagining doesn't work for you when it comes to 
+description. It is beyond terrible. Amateur stuff.
 
 THE LAKE: Remove the meadow, ruins are enough, fish are necessary
 

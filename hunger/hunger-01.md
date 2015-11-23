@@ -460,3 +460,19 @@ When I was a child this is what the old men told me they had heard when they wer
   He went to bed and wrapped himself in fur blankets. He tried to put the image of Leoti and Mohe out of his mind. He tried to forget Ayita cursing him, his mother crying. He saw the herd of deer in flight, barreling towards him. The despondant look on the faces of the elders. He saw the back of his friend Tye on the journey home. Then he saw other things. He saw a tribe with more people than he had ever seen before. Like ants they were. Like ants they moved through a labryinth of stone pathways, through mechanisms of vast complexity. Their buildings were carved to perfection from stone and unnatural materials, polished to gleam in the sun. They built machines with their hands and their minds. They built machines to build machines. It was beautiful to see, and horrible. He wondered what thoughts were on their minds and what feelings were in their hearts. The villages where they lived had few trees and ponds. There was no grass or seasons anymore. They harnessed the strength of the elements to do their work. They harnessed the water and the fire and the wind. With machines they grew enough food to feed the world entire. Some grew fat and others had none. With machines they healed their sick and dying. With machines they slaughtered other tribes and also their own. With machines they scorched the land and dried up all the rivers and lakes. With machines they launched their bodies into the heavens, among the stars which have no end.
 
   He was on the path.
+
+
+
+[camping in storms (raw fish), archway blocked by avalanche, trek east over rocks, no river no fish, hungry and wet, narrow canyon, terraced plateaus for farming, passage through stone building with hole into the mountain, two snakes entwined, other side of lake, ruins for shelter, stuffs himself on fish, water is warm, swims, daydreams impossible thoughts]
+
+how does this scene move the story along?
+mika must find another way to the summit, other is closed off
+
+what is the conflict?
+fighting the elements and hunger, how to reach summit
+
+who/what are the antagonists?
+rain, thunderstorms, sharp rocks, hunger, snakes entwined
+
+how is it resolved?
+he discovers a canyon and gets through only because he is so thin. reaches the summit and has daydreams
