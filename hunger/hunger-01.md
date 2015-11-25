@@ -418,7 +418,7 @@ When I was a child this is what the old men told me they had heard when they wer
   The hunter held up his arms in a cross shape to indicate what he meant to the others. They nodded, thoughtfully.
   “No. You want the first line waiting by the southern edge of the woods, assuming the herd approaches from the east. Isn’t that where Turkeyfoot spotted them?”
   “Don’t remember.”
-  Another hunter shouted to the scout, who was off by himself, eating a plug of deer jerky.
+  Another hunter shouted to the scout, who was off by himself, observing distant plumes of campfire smoke.
   “What side did they come from again?”
   “The west.”
   “Oh, I had it wrong. In that case, the first line needs to be there, and down fifty feet or so.”
