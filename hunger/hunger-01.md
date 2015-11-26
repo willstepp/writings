@@ -504,21 +504,21 @@ When I was a child this is what the old men told me they had heard when they wer
   “One week later our scout Turkeyfoot was out exploring and found the same travois with no gifts but instead the head of Salal.”
   Tye drifted away for a moment, but then refocused and continued.
   “This we would not tolerate. All of us became enraged and wanted blood for this act of violence against one of our own. Salal had gone to them in peace. He did not deserve to die.”
-  “Kulsathee and the elders were informed of the news. The chief of peace was not prepared for this turn. He told us to return to the hunt and to avoid the other tribe. Perhaps they would ignore us if we do not try to initiate any further contact. Though most of us disagreed with this strategy we honored our chief and did as he said.”
-
-
-
-[tye tells of the ambush, mika refuses to join, he is exiled]
-
-  
-how does this scene move the story along?
-mika learns the village is under martial law because of an attack yet refuses to join the fight, causing him to be exhiled
-
-what is the conflict?
-tye asks him to join the fight but he will not do it
-
-who/what are the antagonists?
-tye, guards, feelings of duty towards the tribe
-
-how is it resolved?
-mika is exiled from the village with no food, he sets up a camp outside in the wilds
+  “Kulsathee and the elders were informed of the news. The chief of peace was not prepared for this turn. He told us to return to the hunt and to avoid the other tribe. Perhaps they would ignore us if we do not try to initiate any further contact. Though we disagreed with this strategy we honored our chief and did as he said.”
+  “We returned to the hunt. Our quota was increased because we had missed so many days. This late in the year we had no time to lose. Ever kill matters.”
+  “There was a night. It was not long ago and yet it feels as an eternity has passed since the terror of that night. Our camp bedded down one evening. It had been a good day. It was a clear night and the moon was full. That is to say it was not utterly dark. Even so, warriors from the other tribe crept past our lookouts. A dozen of them ambushed the camp while we all slept. They were savvy. They went after the elder hunstment first of all by bashing their heads in with stones. As the noises woke us there was screaming and confused shouting.”
+  “After the elders they came after the young hunters and yet by that time we had been able to gather weapons to defend ourselves. We fought and killed several of them. I myself killed two. But we lost many of our own. Thankfully our women remained unharmed, though certainly they would have also been slaughtered.”
+  “When the invaders realized they were outnumbered and had lost their advantage they fled back into the forest. Our scouts tracked them but they know that land better than we, so we lost them.”
+  “That same night we prepared the dead and journeyed back to the village, with heavy hearts. When the people saw what happened to their loved ones they wailed. Then there was panic. The people demanded to Kulsathee and the elders that we retaliate for this atrocity. Otherwise, they argued, we could not hunt in safety and therefore would not be able to store food enough to survive the winter.”
+  “The chief of peace was not prepared to make that kind of decision. The elders held a council and decided that it was better in such a time to appoint a chief of war. Kulsathee agreed. Since we had lost so many elder hunters and since I had shown great bravery in the ambush I was chosen. The other hunters were made warriors. There was a ceremony. Yaholo performed the rites.”
+  “After we held council and made the decision to keep the village gates closes at all times and for guards to be posted at every entrance, along with the lookouts. We set a curfew for everyone. Not to leave their homes after sunset. We set up a ration program to better control the distribution of our food supply. We must be cautious.”
+  Here Tye stopped. His eyes were fixed on the flames. Mika said nothing but looked at the chief of war with compassion. Then Tye looked intently at Mika.
+  “Help us. Help your people in this time of trouble. I know you walk another path, but now I command you to join us and fight. Abandon your selfish quest and help your people to survive the winter.”
+  Mika looked at him but did not answer. Tye watched him.
+  “Quickly the others have forgotten who you are. They call you the boy with the bucket and mock you. And truly you are weak and not the same as you were before. But I remember your ability in the hunt. I do not forget so quickly as the others. None was better with the bow among our people. None. So regain your strength and sharpen your skills. Then fight with us. We can defeat them together. Side by side. Just like we used to hunt deer in the valley. Soon we will return there to take our revenge and to claim our stake. Help us, Mika. This I command as your chief.”
+  They both stood and stared at one another for a long time, but Mika did not speak. Then the chief of war nodded to the guard posted at the door. He went outside.
+  “Yaholo told me this would be your answer but I did not want to believe it. I thought you would understand. Nothing will come of your path. You will regret your the choice you made to turn your back on your tribe. Understand you are no longer welcome in our village. Understand you must leave through the gates and not return again. Understand it was you who abandoned us.”
+  Three guards from outside entered the townhouse and took Mika by the arms. They led him out while he fixed his gaze on Tye. The face of the chief of war was stonelike and impassive but before they were out the door he addressed him.
+  “Once you were my good friend.”
+  The guards escorted Mika to the southern gates. The lookouts opened them and they carried him well outside and shoved him to the ground. The empty bucket fell from his hand and rolled on its side. Then the guards returned inside the gates and they were closed. He was alone.
+  He went to the wilds and set camp in a clearing. He lay down and faced the palisaded walls of his village, far in the distance, the gates lit by torches and the lookouts staring straight ahead. The night was clear and the moon was out. He was weak and hungry. He had not eaten since his return to the valley. He had no food. It hurt him to look at the village so he closed his eyes and imagined he was at the lake in the mountain again. There he swam in those warm waters among a multitude of fish.
