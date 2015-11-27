@@ -523,17 +523,28 @@ When I was a child this is what the old men told me they had heard when they wer
   The guards escorted Mika to the southern gates. The lookouts opened them and they carried him well outside and shoved him to the ground. The empty bucket fell from his hand and rolled on its side. Then the guards returned inside the gates and they were closed. He was alone.
   He went to the wilds and set camp in a clearing. He lay down and faced the palisaded walls of his village, far in the distance, the gates lit by torches and the lookouts staring straight ahead. The night was clear and the moon was out. He was weak and hungry. He had not eaten since his return to the valley. He had no food. It hurt him to look at the village so he shut his eyes and dreamed he was at the lake in the mountain, swimming in its waters among a multitude of fish.
 
-[fire in the frost, food from mother, physical contact, remembering good times, lament, encouragment, denial, encouragement, sets out]
 
-
-how does this scene move the story along?
-mika is visited by his mother who gives him support which gives him strength to carry on
-
-what is the conflict?
-overcoming his low spirit
-
-who/what are the antagonists?
-his low spirit, his exile
-
-how is it resolved?
-with support from his mother mika is able to find the strength to go on the path again
+  In the morning there was a frost on the ground. It covered the blanket he had pulled over his head to keep out the bitter cold in the night. Frost covered the grass in the clearing. It covered the limbs of the trees in the forest. He awoke shivering. His breaths came out in rising plumes. Braving the sting of the frigid air he collected kindling and fuel wood and with trembling hands built a fire. When it was going he sat as near to it as he could, letting the heat thaw his bones. He looked at towards the village, obscured in a light fog. He could not stay in the wilds. There was nothing for him here. There was no food. He felt his stomach and traced the lines of his rib cage with his fingers. But he had no strength to walk the path again. He was hungry and weak. He was very weak.
+  Out of the fog a dark figure emerged, covered in robes, and walked towards the clearing. A hand emerged from the fur sleeve and set a bowl of meat in front of him. He took up the bowl and greedily ate the contents. When he was finished he licked the grease from his fingers.
+  “There is more I can bring you.”
+  “No, mama.”
+  She removed the hood and regarded her son. Her eyes welled with tears as she saw how frail he had become. His eyes bulged from deep sockets and his cheekbones protruded from his thinness. Dirt and grime from miles of walking the path covered his face and body. His hair, once smooth and shiny, was now matted and torn, with bare patches in places where clumps of it had fallen out, a toll of the hunger.
+  Ama looked around the clearing, the rising sun melting away the frost. She began to cry. Mika reached out to comfort her. At his touch she pulled him close and held him against her. She ran her fingers through his hair and said things to soothe his heart, words of tenderness. It had been so long since any kindness had been spoken to him that the gentle sound of her voice alone broke his heart.
+  “I miss you, mama. I miss my friends. I miss how life was before. Those days will never come again, that is for sure. Tell me the truth, mama, will they come again?”
+  “Yes,” she told him, “Those days will come again. Do not lose hope in that. Do not fall into despair.”
+  There was a time they did not speak and only held one another. Both were remembering times from long ago. The smell of her brought back memories he had kept since he was a child. There was a day in spring when he and his mother and father went to the ceremonial grounds and lay together on a blanket under the shade of the tree all day long, for no reason at all, except to be together and to enjoy the gift of the day.
+  “Mama?”
+  “Yes, Mika.”
+  “The two paths do not make a circle.”
+  “No.”
+  “I had hoped that they would.”
+  “So had I.”
+  The fire had burned down and he rose and gathered more wood from the forest. When it had kindled again they both sat close, embracing and staring into the flames. Tears came in his eyes and he made a confession to his mother.
+  “They were right to exile me. I do not blame them for that. I have been selfish to abandon the tribe during the blight. And for what? To honor the memory of my father who is no longer even alive. I have chosen to honor the dead and not the living, and what good has come of that? Nothing at all. I am worse than all of them, mama, for they know who they are and what they live for, and I do not.”
+  “Do not say such things. You have been strong. You have been brave. Your heart is pure.”
+  “Please do not use those words to describe me. It hurts me because I know they are not true. How hungry I am, mama. Every night I dream of game roasting on the fire. I dream of kanuchi soup and bean and corn bread and bowls of dried peaches. But even more than hungry I am lonely. I am so lonely. For companionship of any kind. Do you now see why I am worse than them? They know who they are. But I no longer even care about the path I walk. I no longer care about my father or honoring his memory. I do not care about the mountain or the lake or the tree. Yet look at me. Look at my arms and legs. Look how weak I have become. I am no hunter. I am no warrior. This is all I am good for anymore. What else can I do? In the wilds is where I truly belong. This is my home now. I am worse than all of them. Look at what they have.”
+  He pointed to the village, where there were many plumes of chimney smoke rising from the outer walls.”
+  “They have homes and families and neighbors. They have firepits and stores of food. They lift their neighbor’s spirits with kindness and tell jokes to make them laugh. When the nights are freezing they have each other to hold to keep them warm. Do you want to know a secret? I crave those things too. My heart is not pure. I am not brave or strong. How I envy what they have and how pathetic I have become out here. They are right to mock me and to ridicule me as *the boy with the bucket*. How pathetic. They were right to exile me. In the wilds is where I truly belong.”
+  When he had finished he grew silent and they sat together and did not speak again for a long time. His mother comforted him until it was late. Then she rose to return to the village. The thing that had been asked of him had not been asked of her and therefore he knew she could not stay with him out here. Nor did he want her to. He felt a strong desire for her to be happy, to comfort her and to ease her suffering as she had eased done for him. At last he understood it was a blessing to be able to do for others. Not a burden as so many thought. As a child he had not known this, but he was no longer a child and he knew.
+  Ama visited her son in the wilds each day. She brought him food and sat with him and listened to him unburden his heart. Then in the evenings she went inside the village walls. She promised him no matter what, whether he was here or gone out there, she would visit each day. Thus he gathered strength and one morning late in fall, he rose with the sun and packed up his things. He put on his furs and slung the satchel over his shoulder. He sheathed his knife. Then he set off on the path again, the empty bucket swinging at his side.
+  
