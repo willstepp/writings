@@ -522,3 +522,18 @@ When I was a child this is what the old men told me they had heard when they wer
   “Once you were my good friend.”
   The guards escorted Mika to the southern gates. The lookouts opened them and they carried him well outside and shoved him to the ground. The empty bucket fell from his hand and rolled on its side. Then the guards returned inside the gates and they were closed. He was alone.
   He went to the wilds and set camp in a clearing. He lay down and faced the palisaded walls of his village, far in the distance, the gates lit by torches and the lookouts staring straight ahead. The night was clear and the moon was out. He was weak and hungry. He had not eaten since his return to the valley. He had no food. It hurt him to look at the village so he shut his eyes and dreamed he was at the lake in the mountain, swimming in its waters among a multitude of fish.
+
+[fire in the frost, food from mother, physical contact, remembering good times, lament, encouragment, denial, encouragement, sets out]
+
+
+how does this scene move the story along?
+mika is visited by his mother who gives him support which gives him strength to carry on
+
+what is the conflict?
+overcoming his low spirit
+
+who/what are the antagonists?
+his low spirit, his exile
+
+how is it resolved?
+with support from his mother mika is able to find the strength to go on the path again
