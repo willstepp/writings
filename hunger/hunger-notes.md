@@ -1,3 +1,6 @@
+Always he had known this was the true way of things.
+
+
 Replace 'high plains' with 'foothills' since that's what you really have in mind:
 https://en.wikipedia.org/wiki/Foothills
 

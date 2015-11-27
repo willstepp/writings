@@ -513,7 +513,7 @@ When I was a child this is what the old men told me they had heard when they wer
   “The chief of peace was not prepared to make that kind of decision. The elders held a council and decided that it was better in such a time to appoint a chief of war. Kulsathee agreed. Since we had lost so many elder hunters and since I had shown great bravery in the ambush I was chosen. The other hunters were made warriors. There was a ceremony. Yaholo performed the rites.”
   “After we held council and made the decision to keep the village gates closes at all times and for guards to be posted at every entrance, along with the lookouts. We set a curfew for everyone. Not to leave their homes after sunset. We set up a ration program to better control the distribution of our food supply. We must be cautious.”
   Here Tye stopped. His eyes were fixed on the flames. Mika said nothing but looked at the chief of war with compassion. Then Tye looked intently at Mika.
-  “Help us. Help your people in this time of trouble. I know you walk another path, but now I command you to join us and fight. Abandon your selfish quest and help your people to survive the winter.”
+  “Help us. Help your people. I know you have gone another way, but leave that and join us. Nothing will come of that. I command you to fight for your tribe. Abandon your quest and help the people who need you most.”
   Mika looked at him but did not answer. Tye watched him.
   “Quickly the others have forgotten who you are. They call you the boy with the bucket and mock you. And truly you are weak and not the same as you were before. But I remember your ability in the hunt. I do not forget so quickly as the others. None was better with the bow among our people. None. So regain your strength and sharpen your skills. Then fight with us. We can defeat them together. Side by side. Just like we used to hunt deer in the valley. Soon we will return there to take our revenge and to claim our stake. Help us, Mika. This I command as your chief.”
   They both stood and stared at one another for a long time, but Mika did not speak. Then the chief of war nodded to the guard posted at the door. He went outside.
@@ -549,3 +549,17 @@ When I was a child this is what the old men told me they had heard when they wer
   His mother comforted him until it was late. Then she rose to return to the village. The thing that had been asked of him had not been asked of her and therefore he knew she could not stay with him out here. Nor did he want her to. He felt a strong desire for her to be happy, to comfort her and to ease her suffering. At last he understood it was a blessing to be able to do for others. Not a burden as so many thought. As a child he had not known this, but he was no longer a child and he knew.
   Ama visited her son in the wilds each day. She brought him food and sat with him and listened to him unburden his heart. Then in the evenings she went inside the village walls. She promised him no matter what, whether he was here or gone out there, she would visit each day. One morning late in fall, he rose with the sun and packed up his things. He put on his furs and slung the satchel over his shoulder. He sheathed his knife and bound his shoes for travel. Then he set off to the river. The bucket was empty and therefore light to carry.
   
+
+[bucket heavy, first signs of winter, the village destroyed, ayita begs for food, mass burnings, hopeless mother, eyes of the chicken, tye missing an eye, mika suggests to leave, tree destroyed, the true way of things, the voice in the darkness, watering the tree]
+
+how does this scene move the story along?
+mika learns the village has been destroyed and the people are slowly starving to death, the tree is burned and torn asunder
+
+what is the conflict?
+how to keep hope when all is lost
+
+who/what are the antagonists?
+the death, the starvation, the cold, the hopelessness
+
+how is it resolved?
+mika is at his most hopeless when out of the endless dark he hears the words, *Do what I ask of you*, and he waters the tree
