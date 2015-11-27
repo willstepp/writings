@@ -533,18 +533,19 @@ When I was a child this is what the old men told me they had heard when they wer
   “I miss you, mama. I miss my friends. I miss how life was before. Those days will never come again, that is for sure. Tell me the truth, mama, will they come again?”
   “Yes,” she told him, “Those days will come again. Do not lose hope in that. Do not fall into despair.”
   There was a time they did not speak and only held one another. Both were remembering times from long ago. The smell of her brought back memories he had kept since he was a child. There was a day in spring when he and his mother and father went to the ceremonial grounds and lay together on a blanket under the shade of the tree all day long, for no reason at all, except to be together and to enjoy the gift of the day.
-  “Mama?”
-  “Yes, Mika.”
-  “The two paths do not make a circle.”
-  “No.”
-  “I had hoped that they would.”
-  “So had I.”
-  The fire had burned down and he rose and gathered more wood from the forest. When it had kindled again they both sat close, embracing and staring into the flames. Tears came in his eyes and he made a confession to his mother.
+  Soon the fire had burned down and he rose and gathered more kindling from the forest. When it had going again they both sat together, embraced and staring into the flames. Tears welled in his eyes and he made a confession.
   “They are right to exile me. I do not blame them for that. I have been selfish to abandon the tribe during the blight. And for what? To honor the memory of my father who is no longer even alive. I have chosen to honor the dead and not the living, and what good has come of that? Nothing at all. I am worse than all of them.”
   “Do not say such things. You have been strong. You have been brave. Your heart is pure.”
   “Please do not use those words to describe me. It hurts me because I know they are not true. How hungry I am. Every night I dream of game roasting on the fire. I dream of kanuchi soup and bean and corn bread and bowls of dried peaches. But even more than hungry I am lonely. I am so lonely. For companionship of any kind. Do you now see why I am worse? They know who they are and what they live for, while I no longer even care. I no longer care about honoring the memory of my father. I do not care about the mountain or the lake or the tree. Yet look at what I have become. Look at my arms and legs. Look how weak in body and mind. I am no hunter. I am no warrior. This path is all I am good for. What else can I do? In the wilds is where I truly belong. This is my home now. I am worse than all of them.”
   He pointed to the village, where there were many plumes of chimney smoke rising from the outer walls.”
   “Look at what they have. Homes and families and neighbors. They have firepits and stores of food. They lift their spirits with kindness and make each other laugh with jokes. When the nights are cold they hold each other close to keep warm. Do you want to know a secret? I crave those things too. My heart is not pure. I am not brave or strong. I envy what they have. They are right to ridicule me. The boy with the bucket, how pathetic. They are right to exile me. In the wilds is where I truly belong.”
-  When he had finished he grew silent and they sat together and did not speak again for a long time. His mother comforted him until it was late. Then she rose to return to the village. The thing that had been asked of him had not been asked of her and therefore he knew she could not stay with him out here. Nor did he want her to. He felt a strong desire for her to be happy, to comfort her and to ease her suffering. At last he understood it was a blessing to be able to do for others. Not a burden as so many thought. As a child he had not known this, but he was no longer a child and he knew.
+  When he had finished he grew silent and they sat together and did not speak again for a long time. 
+  “Mama?”
+  “Yes, Mika.”
+  “The two paths do not make a circle.”
+  “No,” she admitted.
+  “I had hoped that they would.”
+  “So had I.”
+  His mother comforted him until it was late. Then she rose to return to the village. The thing that had been asked of him had not been asked of her and therefore he knew she could not stay with him out here. Nor did he want her to. He felt a strong desire for her to be happy, to comfort her and to ease her suffering. At last he understood it was a blessing to be able to do for others. Not a burden as so many thought. As a child he had not known this, but he was no longer a child and he knew.
   Ama visited her son in the wilds each day. She brought him food and sat with him and listened to him unburden his heart. Then in the evenings she went inside the village walls. She promised him no matter what, whether he was here or gone out there, she would visit each day. One morning late in fall, he rose with the sun and packed up his things. He put on his furs and slung the satchel over his shoulder. He sheathed his knife and bound his shoes for travel. Then he set off to the river. The bucket was empty and therefore light to carry.
   
