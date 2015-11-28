@@ -541,11 +541,9 @@ When I was a child this is what the old men told me they had heard when they wer
   “Look at what they have. Homes and families and neighbors. They have firepits and stores of food. They lift their spirits with kindness and make each other laugh with jokes. When the nights are cold they hold each other close to keep warm. Do you want to know a secret? I crave those things too. My heart is not pure. I am not brave or strong. I envy what they have. They are right to ridicule me. The boy with the bucket, how pathetic. They are right to exile me.”
   When he had finished he grew silent and they sat together and did not speak again for a long time. 
   “Mama?”
-  “Yes.”
+  “Yes?”
   “The paths do not make a circle.”
   “No,” she admitted.
-  “I had hoped that they would.”
-  “So had I.”
   His mother comforted him until it was late. Then she rose to return to the village. The thing that had been asked of him had not been asked of her and therefore he knew she could not stay with him out here. Nor did he want her to. He felt a strong desire for her to be happy, to comfort her and to ease her suffering. At last he understood it was a blessing to be able to do for others. Not a burden as so many thought. As a child he had not known this, but he was no longer a child and he knew.
   Ama visited her son in the wilds each day. She brought him food and sat with him and listened to him unburden his heart. Then in the evenings she went inside the village walls. She promised him no matter what, whether he was here or gone out there, she would visit each day. One morning late in fall, he rose with the sun and packed up his things. He put on his furs and slung the satchel over his shoulder. He sheathed his knife and bound his shoes for travel. Then he followed the river. In his hand the bucket was empty and therefore light to carry.
   
@@ -568,25 +566,31 @@ When I was a child this is what the old men told me they had heard when they wer
   “Mama.”
   “I prayed that you would stay out there. I prayed that you would not come back. I prayed for that.”
   He did not see any light in her eyes. There was only a mechanical will to survive. No hope. He looked at the others and saw the same lightlessness in their eyes as they went about their work. Then he remembered where he had seen those eyes before. Then he hated them without knowing why. Those stupid black eyes, watching all. Pecking in the dirt for survival and for survival only. And nothing more.
-  He took his mother by the arms and held her body close to him. As the heat passed between them she looked up and there was the light. It had returned at least temporarily. Her eyes welled with tears and she kissed her son.
-  “We have no food left. They came. They killed whoever stood in their path. They took it all. Now we have to bury them. They cannot remain exposed. There are others on the eastern side of the village. Do not go there, Mika, whatever you do. They are those who have truly lost hope. They take the bodies of the dead. They take them and,”
+  He took his mother by the arms and held her close to him. As the heat passed between them she looked up and there was the light. It had returned at least for now. She regarded him with tears and kissed him.
+  “We have no food. They came. They killed whoever stood in their path. They took it all. Now we have to bury them. They cannot remain exposed. There are others on the eastern side of the village. Do not go there, Mika, whatever you do. They are those who have truly lost hope. They take the bodies of the dead. They take them and,”
   His mother broke off and wept into her hands.
   “Life has become horrible, Mika. You should not have come back. You were right to go. You should have stayed out there.”
   She left him and continued her work of wrapping the bodies, anointing them, and carrying them off to the bonfire. He walked among the dead, remembering the life that used to be in them, now silent and still. A few rows away he saw Leoti kneeling over the body of Mohe, her beloved. Her face was one of utter loss and bewilderment. She clapsed her hands together in prayer. Her eyes were reddened with tears.
+  In the sky there was a glow beyond the overcast, the rays of the sun not able to shine through the gloom. A wind blew through the pathways and whipped up leaves and ashes into tiny whirlwinds. He looked at everything and then continued into the village center.
+  The townhouse stood. Its roof had caved in and two walls were collapsed into rubble. The porch overhang was gone. Everything was charred or singed. From this distance he could through the broken walls to the inside. There was smoke rising from a fire. He walked up the mound and stepped through the doorway. No guards were posted. No medicine man. But the chief of war was there. His face was no longer painted. The entire left side of his face was scarred with blisters and there was a sunken pit where the left eye used to be. He sat near the fire and stared into the flames.
+  When Mika entered he glanced up but did not acknowledge him and then returned to the fire. He sat on the other side. A long time passed before Tye spoke to him.
+  “All our plans, all our preparations, meant nothing in the end. We gathered our warriors. We gathered our bows, spears, and tomahawks. Then we entered the valley to prove to them we would not cower from their aggression. We would not run in fear. We tracked their movements and made our ambush in the night, fierce and quick. We took many scalps on that day, and lost few. Pleased with our success we established a new basecamp and resumed the hunt.”
+  “We heard nothing from them after and therefore assumed the best, that we had frightened them away and had claimed our stake to hunt in this valley. We returned to the village with the spoils of that victorious campaign and celebrated with family and friends long into the night. But it was in those early morning hours, after the fires had burned down, after we were stuffed with food and drink, that they made their attack.”
+  “They tracked us, you see. All without our knowledge. We naive and proud of ourselves. They followed us here and crouched hidden in the forests. There were dozens of them, prepared not for ambush, but for annihilation. Out of the darkness they came, heaving bombs of oil and fire. They burned down the gates. They burned everything. Without mercy they slaughtered our families, our children. None were spared. By the time we had collected and prepared to fight back they had flooded the entire village. The burning homes illuminated the faces of our attackers. We saw them enraged, their faces painted black all over.”
+  “We fought back but it was no good. There were too many of them and we were not prepared. We retreated into the center of the village and defended what remained of our buildings and who remained of our families. The violence lasted until sunrise. Only then did we realize it was not their plan to kill us all. They had taken our supplies and our stores of meat. Now we know  they too had encountered the blight. For their survival they carried off everything we had and cruelly left us to starve.”
+  “Once it was discovered the food stores were gone, those who survived lost hope. The elders lost hope. I lost hope. What else can we do? Our tribe will starve. We will not survive the winter. All our plans meant nothing in the end.”
+  Mika looked at his old friend but he would not face him, only into the flames.
+  “Where are the elders now? Where is Kulsathee?”
+  “With their families. Where do you want to be at the end?”
+  “We can leave here. We can survive. I know a place.”
+  Tye smiled without joy. There was no light in his eyes. No hint of hope in his voice.
+  “You should not have come back, Mika. You should have stayed out there.”
+  He returned to the flames and would speak no more.
+  Mika left the townhouse and walked into the center square. To the east he saw where his mother had told him to stay away. There were houses in ruin. People crawled over the debris. Their clothes were burned and torn. Their hair was matted with ash and dirt. He watched them scurry among the desolation, hunting for food or for anything of value to be traded for the scraps that remained. There were bloodstains on their hands and around their mouths. They were those who had truly lost all hope. They saw him looking and turned away, ashamed of what they had become.
+  He entered the ceremonial grounds and whatever hope remained in his heart went out of him. He dropped the bucket to the ground and fell to his knees under the tree. It was destroyed. Its bark charred and burned. Its branches broken. Its trunk torn asunder, exposing the pale wood inside. Around the tree the skies vanished and the earth crumbled away and revealed to him the infinite dark. 
+  Always he had known this was the true way of things. His whole life had been a vain attempt to keep this knowledge out of mind and he had prayed in the deepest, most secret part of him that he would never have to face it. But now it was here and even if he shut his eyes and reopened them, it was still here. He curled into himself and wept into the void. The burden of his struggle went out of him, any love he still held in his heart went out of him and into that endless dark, until all was darkness and all that remained was the silence of the darkness. And yet,
+  Somewhere a voice cried out to him. Somewhere it cried out to him and he listened and he heard the words that had been spoken.
 
+*Do what I ask of you*
 
-
-
-[those who have truly lost hope, tye missing an eye, mika suggests to leave, tree destroyed, the true way of things, the voice in the darkness, watering the tree]
-
-how does this scene move the story along?
-mika learns the village has been destroyed and the people are slowly starving to death, the tree is burned and torn asunder
-
-what is the conflict?
-how to keep hope when all is lost
-
-who/what are the antagonists?
-the death, the starvation, the cold, the hopelessness
-
-how is it resolved?
-mika is at his most hopeless when out of the endless dark he hears the words, *Do what I ask of you*, and he waters the tree
+  He rose to his feet and approached the remains of the tree. Then he lifted off the cover from the bucket and gently poured its contents into the ground at the trunk. The dry earth and ashes soaked up the water and was gone again. Then he set the bucket on the ground and stood by and he waited.
