@@ -569,9 +569,9 @@ When I was a child this is what the old men told me they had heard when they wer
   “I prayed that you would stay out there. I prayed that you would not come back. I prayed for that.”
   He did not see any light in her eyes. There was only a mechanical will to survive. No hope. He looked at the others and saw the same lightlessness in their eyes as they went about their work. Then he remembered where he had seen those eyes before. Then he hated them without knowing why. Those stupid black eyes, watching all. Pecking in the dirt for survival and for survival only. And nothing more.
   He took his mother by the arms and held her body close to him. As the heat passed between them she looked up and there was the light. It had returned at least temporarily. Her eyes welled with tears and she kissed her son.
-  “We have no food left. They came. They killed whoever stood in their path. They took it all. Now we have to bury them. They cannot remain exposed. There are some on the other side of the village. Do not go there, Mika, whatever you do. They are those who have truly lost hope. They take the bodies of the dead. They take them and they,”
+  “We have no food left. They came. They killed whoever stood in their path. They took it all. Now we have to bury them. They cannot remain exposed. There are others on the eastern side of the village. Do not go there, Mika, whatever you do. They are those who have truly lost hope. They take the bodies of the dead. They take them and,”
   His mother broke off and wept into her hands.
-  “Life has become horrible, my son. You should not have come back. You were right to go. You should have stayed out there.”
+  “Life has become horrible, Mika. You should not have come back. You were right to go. You should have stayed out there.”
   She left him and continued her work of wrapping the bodies, anointing them, and carrying them off to the bonfire. He walked among the dead, remembering the life that used to be in them, now silent and still. A few rows away he saw Leoti kneeling over the body of Mohe, her beloved. Her face was one of utter loss and bewilderment. She clapsed her hands together in prayer. Her eyes were reddened with tears.
 
 
