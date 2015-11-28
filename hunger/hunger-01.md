@@ -571,13 +571,13 @@ When I was a child this is what the old men told me they had heard when they wer
   He took his mother by the arms and held her body close to him. As the heat passed between them she looked up and there was the light. It had returned at least temporarily. Her eyes welled with tears and she kissed her son.
   “We have no food left. They came. They killed whoever stood in their path. They took it all. Now we have to bury them. They cannot remain exposed. There are some on the other side of the village. Do not go there, Mika, whatever you do. They are those who have truly lost hope. They take the bodies of the dead. They take them and they,”
   His mother broke off and wept into her hands.
-  “Life has become horrible, my son. You should not have come back. You should have stayed out there. You were right to go.”
-  She left him there and continued her work of wrapping the dead, anointing them, and carrying them to the bonfire. He walked among the bodies, remembering the life that used to be in them, now silent and still. A few rows down he saw Leoti, kneeling over the body of Mohe, her beloved. Her face was one of utter loss and bewilderment. She clapsed her hands together in prayer. Her eyes were reddened with tears.
+  “Life has become horrible, my son. You should not have come back. You were right to go. You should have stayed out there.”
+  She left him and continued her work of wrapping the bodies, anointing them, and carrying them off to the bonfire. He walked among the dead, remembering the life that used to be in them, now silent and still. A few rows away he saw Leoti kneeling over the body of Mohe, her beloved. Her face was one of utter loss and bewilderment. She clapsed her hands together in prayer. Her eyes were reddened with tears.
 
 
 
 
-[the village destroyed, ayita begs for food, mass burnings, hopeless mother, eyes of the chicken, tye missing an eye, mika suggests to leave, tree destroyed, the true way of things, the voice in the darkness, watering the tree]
+[those who have truly lost hope, tye missing an eye, mika suggests to leave, tree destroyed, the true way of things, the voice in the darkness, watering the tree]
 
 how does this scene move the story along?
 mika learns the village has been destroyed and the people are slowly starving to death, the tree is burned and torn asunder
