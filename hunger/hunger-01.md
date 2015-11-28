@@ -593,4 +593,19 @@ When I was a child this is what the old men told me they had heard when they wer
 
 *Do what I ask of you*
 
-  He rose to his feet and approached the remains of the tree. Then he lifted off the cover from the bucket and gently poured its contents into the ground at the trunk. The dry earth and ashes soaked up the water and was gone again. Then he set the bucket on the ground and stood by and he waited.
+
+
+
+[blizzard (no sight, frozen river), deep snow (navigate by landmarks), ice stairs (what used to be easy, now hard), beautiful world vista, the warm lake, fish to eat, a good life, weariness, hunger, rests often, delirium, ever walking]
+
+how does this scene move the story along?
+though the path seems hopeless, he still makes it to the lake, using his experience and faith, and then decides to return
+
+what is the conflict?
+battling the elements on the path, the temptation to stay on the mountain
+
+who/what are the antagonists?
+the blizzard, the deep snow, the ice, the warm waters, the fish
+
+how is it resolved?
+mika reaches the lake and returns as hungry and weary as he has ever been
