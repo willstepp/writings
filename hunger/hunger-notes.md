@@ -1,3 +1,7 @@
+There seemed no good path (expand on not knowing which way was right, he had 
+never experienced that feeling, of not knowing right from wrong and it paralyzed
+him inside)
+
 Always he had known this was the true way of things.
 
 
