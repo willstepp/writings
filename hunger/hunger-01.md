@@ -2,13 +2,12 @@ HUNGER
 
 When I was a child this is what the old men told me they had heard when they were children
 
-  Mika followed the caregiver down a path lit by torches. The boy had yet to shake off his dreams and, yawning wide, he tucked both hands under his armpits for warmth. Fog rolled in from the surrouding hills and obscured the houses on both sides of the pathway. Ahead he saw a gray void and the faint silhouette of his guide. His eyes were drawn to the back of her graying head of hair, where double-braided ends twisted up like two snakes entwined. Over her shoulders she wore a heavy, bearskin shawl.
-  They came to a small house at the end of a hamlet of buildings that made up the healing area of the village. The house on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. She parted the drape over the low, narrow doorway and then stood aside in silence, her head bowed. The boy entered alone.
+  Mika followed the elderly caregiver down a path lit by torches. The boy had yet to shake off his dreams and, yawning wide, he tucked both hands under his armpits for warmth. Fog rolled in from the surrouding hills and obscured the houses on both sides of the pathway. Ahead of him was a gray void and the faint silhouette of his guide. His eyes were drawn to the back of her head, where double-braided ends twisted up like two snakes entwined. Over her shoulders she wore a heavy, bearskin shawl. They came to a small house at the end of a hamlet of buildings that made up the healing area of the village. The house on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. She parted the deerskin covering the narrow doorway and then stood aside, her head bowed. He entered alone.
   Yaholo, an apprentice of the medicine man, stood over a firepit in the center of the house. Smoke from the fire curled up through a hole in the roof and its flames flickered shadows across the clay-hardened ceiling and walls. In one hand the apprentice carried an eagle claw wrapped around a buckskin pouch of herbs. He shook the herbs into the fire, which sparked and hissed, as he chanted the words of the death ritual.
   His mother, a woman named Ama, stood in the corner furthest from the ceremony with both hands clasped against her chest, her eyes fearful and red with tears. When she saw her son her frown turned into a compassionate smile and her eyes went to the bed at the other end of the room. There his father lay. 
   The revered medicine man of their village lay upon a meager bed, wrapped in skins. His eyes were fixed on a faraway place that no one else could see. He lay utterly still except for the gasps for air that came after long and irregular intervals. At times his eyes rolled back in his head. His name was Sakima.
   No one had instructed the boy what to do or how he should act in this moment. He glanced at his mother for guidance but her eyes were fixed on him who he had been brought to see. He went to the bed and took his hand into his own.
-  “Father,” the boy said, kneeling beside him. Tears welled in his eyes but he held them back, so to appear strong.
+  “Father,” the boy said, kneeling beside him. Tears welled in his eyes, but he held them back to appear strong.
   The boy said nothing else, holding his hand, inwardly recoiling at the unnatural coldness of his touch. Such coldness in a room with embers burning hot. Feeling helpless, the boy went to a table near the wall and poured a cup of water from a jar. He brought the cup to his mouth and gently fed it to him, and when the first drops wet his lips he came around again. Sakima’s eyes opened. And then he recognized his son standing there. A tear rolled down the side of his cheek and he took the smaller hand of his son into his own, and squeezed weakly.
   “Beautiful boy,” the old man said, “come and see.”
   The boy placed his head against his father’s chest and smelled a bitter salve. He felt the heartbeat within, rapid and then slow, strong and then weak. The boy stayed that way for a long time. They did not speak. He knew his father only wanted to be close to him for a little while.
@@ -122,12 +121,12 @@ When I was a child this is what the old men told me they had heard when they wer
 	“I was awake the whole time. Don’t tell, okay?”
   “Don’t tell you were awake?”
 	Gawoni shrugged. Again he demanded the lookout to open the gates.
-  “Where are you going this early?”
+  “Where are you going this early in the morning?”
   “To fulfill an obligation.”
-  “But, where?”
-  “To those mountains, north of here.”
+  “But where?”
+  “North, to the mountains.”
   “Why go there?”
-  “That I cannot say.”
+  Mika did not answer.
   “The mountains are very far from here. Too far to travel on foot. How long will you be gone?”
   “However long it takes.”
   “What road will you travel?”
@@ -615,3 +614,24 @@ When I was a child this is what the old men told me they had heard when they wer
   On the prairie the cold began to penetrate through the material of his traveling mocassins. They had worn so thin from the miles the cold began to freeze his toes. Then they were numb and he could no longer feel them. One night at camp he opened the bucket and was surprised to find the water unfrozen, and still warm. He removed his shoes and soaked them in the water. The ends of his toes were brusied and blackened and the water soothed them. He rested for a few days when he found a cottonwood tree with plenty of wood to harvest. He built a fire and soaked his feet and rested his muscles and joints. He was so weary that he slept for almost an entire day. He was very tired.
   From the hunger his mind became delirious. He knew it would be that way and repeated the words to remind himself to keep focus, “I am on the path.” But his mind drifted and he thought about food and of home, things he had promised himself he would not think about, because they only distracted him from the simple act of placing one foot in front of the other. His thoughts drifted to his first days out here, so long ago, a thousand years ago. The grass of the prairie stretched before him and the peacefulness of the landscape entered into him. That was how it was then and it was that way now as he looked across the snowy plains. To place one foot in front of the other. To carry the bucket. To walk towards it. That was all that mattered and all that had ever mattered. His mind drifted and he caught himself and repeated the phrase and continued. Then sun went down and he camped and rose again and set off on the path. The hunger grew and his weariness grew and his mind was not able to stay focused on his footsteps and the landmarks on the horizon. His mind grew delirious and drifted and he tried to keep focused on the path. But sometimes he could not help it and his mind would drift and he would imagine himself walking from above, like a bird in the skies. From a great height he could see himself walking, a boy with a bucket across the vast plains walking. Ever walking.
   
+  
+  
+
+
+
+
+[drums and calling, walk to the grounds, the crowd around the boy, ama runs to him, daughter of ayita pulls on her skirt, pointing, joyful tears in the crowd, looking, the tree renewed, fruit falling, always would be remembered but she wanted to see the look of light in his eyes, kulsathee rises, the children]
+
+
+
+how does this scene move the story along?
+mika is found dead under the tree, but the tree is growing fruit
+
+what is the conflict?
+none
+
+who/what are the antagonists?
+none
+
+how is it resolved?
+they eat of the fruit
