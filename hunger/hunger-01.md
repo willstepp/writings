@@ -187,18 +187,18 @@ When I was a child this is what the old men told me they had heard when they wer
   The chanting of the ritual repeated seven times in total. On the final recitation his helpers joined in. The drums were beaten ferociously. Yaholo shook his arms and legs between the beat of the drums. Then in the silence immediately after he pulled four snake skins from his medicine bag which had been bound together. Then he removed a bag of herbs and sprinkled them onto the skins and tossed it into the flames. The villagers watched with fascination.
 
   Crops infected with the blight were gathered and burned. Dead animals discovered in the wilds were also burned. The villagers horded potatoes for their own families. Fights broke out when it came to distributing what remained of them from the town storage house, as some were left with little to eat. Since nobody knew what would happen next they rationed whatever potatoes they had. One family of six who lived outside the gates in the hills had no potatoes left at all, so the father went from house to house in the village asking for help. But none wanted to give up their only foodsource, especially in this uncertain time, though some did give begrudgingly.
-  “Why should I help you when you never helped yourself?”
-  “You should have prepared like we did. Look at you begging like a dog. I am ashamed for you.”
+  “Why should we help you when you never helped yourself? Pure laziness!”
+  “You should have prepared like we did. Aren’t you ashamed to beg for food?”
   This is what his neighbors said.
   The father, a man named Salal, came to the door of their homestead one afternoon when the boy was repairing a hole in the roof. He climbed down and greeted the man, who would not look him directly in the eyes. He stared at the ground and held a small, empty sack at his side.
   “Do you have any potatoes to spare?”
   The boy went inside to fetch his mother. Ama came out a few minutes later, a small pile of potatoes in her apron. The boy stood behind and stared at the man, then at his mother. When she handed him the pile the man sobbed. His eyes were red and swollen.
-  “Thank you, Ama. This will mean the world to me and my family.”
+  “Thank you, Ama. This will mean the world to me and my family. Truly you are the wife of Sakima!”
   The father collected the potatoes in a skin sack he dragged behind him and went on to the next house.
   The boy looked at his mother.
   “Why did you give him so many of our potatoes?” the boy asked. “We won’t have enough for ourselves.”
-  Ama did not answer. She went back inside and after a few moments the boy climbed back onto the roof and resumed his work. He watched Salal beg at the next homestead and leave a few minutes later empty-handed. 
-  Later he came in exhausted and his mother had prepared a single roasted potato for them to eat. She broke it in half and set one piece into his bowl and the other into hers. They ate the meager meal in silence.
+  Ama did not answer. She went back inside and after a few moments the boy climbed back onto the roof and resumed his work. He watched Salal beg at the next homestead and leave empty-handed.
+
   One night a scream came from the house of Ninovan. The boy rose from his bed and went outside to see what was the matter. Others had also come out and they all looked in the direction of the house. Not long after a woman came running down the path, carrying a young boy, her son. His skin was blue and there was no life in his opened eyes. She ran to the townhouse and cried at the door. Kulsathee exited and called for Yaholo.
   The medicine man said a few words of purification, but there was nothing to be done for the boy. Yaholo looked up with helpless eyes and turned to the mother. She fell to her knees and held the lifeless body of her son. She wept.
   It was revealed the boy had eaten potatoes earlier that day. The elders asked to see their supply and they were brought in a basket. Upon examination they found traces of the black mold. There was panic.
@@ -286,7 +286,7 @@ When I was a child this is what the old men told me they had heard when they wer
   *Do what I ask of you*
 
   It was time for the caravan to depart. The entire village was working to prepare for the journey. Two men pulled the cart to the southern gates, where it was packed with fresh hunting equipment and processing supplies. The hunters themselves put on fresh gear which their wives and mothers had sewn for them. Several novices had been tasked with napping fresh arrowheads from flint and restringing their bows. Though busy the mood among the villagers was calm. The weather was fair, clear with high wisps of clouds in the western sky.
-  Mika had risen with the sun, it slanting through the window onto his face. He had breakfast and went to the shed. Inside he took the bucket and set it outside. The old satchel he pulled from a chest in the house. It’s worn leather strap needed repairing and he set to work on that, reinforcing it with a soft piece of buckskin. Then when that was done he emptied the basket of pemmican he had horded from various locations the past few days. Altogether it was seven pounds of food. From another chest in the shed he took out some old netting, used for fishing in lakes and rivers. He grabbed a few lures and tossed those into the satchel as well. Finally he threw in a sharpening stone and couple of small knives.
+  Mika had risen with the sun, it slanting through the window onto his face. He had breakfast and went to the shed. Inside he took the bucket and set it outside. The old satchel he pulled from a chest in the house. Its worn leather strap needed repairing and he set to work on that, reinforcing it with a soft piece of buckskin. Then when that was done he emptied the basket of pemmican he had horded from various locations the past few days. Altogether it was seven pounds of food. From another chest in the shed he took out some old netting, used for fishing in lakes and rivers. He grabbed a few lures and tossed those into the satchel as well. Finally he threw in a sharpening stone and couple of small knives.
   Nearby he heard the sounds of the villagers. There was food and music. He heard several laughing. Some tearful goodbyes. Yaholo and his apprentices were performing a blessing ritual and accompanying it were loud whoops and whistles.
   The boy pulled off his mocassins and wrapped the soles in tough buckskin, which would last much longer than the normal soft leather. He secured it with twine and then wrapped them all in long strips of supple deerskin. These would not cause blisters, though they did not breath as well, and would sweat. As he slipped them on his mother approached down the path. She had been with the others and her face was serious and frowning.
   “Why are you not with the caravan? It departs soon. Yaholo already performed the ceremony. Others are saying their farewells as we speak.”
@@ -295,10 +295,9 @@ When I was a child this is what the old men told me they had heard when they wer
   “What do you mean? You must go.”
   Ama looked at him, her gaze resolute. The boy met her eyes, but then turned away.
   “Where are you going?”
-  “To the mountains in the north.”
-  His mother looked puzzled.
+  He looked to the mountains. His mother was puzzled.
   “But you have. I remember when you left. I remember when you returned. You have done it.”
-  “No,” the boy confessed, “I failed, mama. I was ashamed so I hid it from you. But I failed before, and now I must try again, and not fail.”
+  “No,” the boy confessed, “I failed, mama. I was ashamed of my failure so I hid it from you. But I failed before and now I must try again, and not fail.”
   Her eyes drifted off, in thought, then returned.
   “Mika, the tribe depends on you. Now is not the time for such things. Every man who is able to hunt must do so. Don’t you remember the words of Kulsathee. The decree he made. It is not for you to question. It is for the survival of our village. I know you loved your father. So did I. Do you think whatever is out there is more important than doing your part? Things are going well now but that may change. Nothing is certain.”
   The boy looked at his mother.
@@ -347,9 +346,8 @@ When I was a child this is what the old men told me they had heard when they wer
 	“Stay back,” he said, “Return to the place you came from.”
 	It flashed its teeth and reared its claws but came no closer to him. Then the bear, who was really no bear at all, backed away until it was once more two eyes glowering in the darkness. The boy sheathed the knife and walked slowly past it, and tempted though he was, he did not look once in its direction.
   As he exited the passage he held one arm over his eyes. The sunlight was very bright. After a few minutes his vision had adjusted and he could not believe what he saw. Ruins of a city surrounding a vast lake.
-  The boy climbed down and navigated through the ruins to the lake shore. There he peeled off his clothes to dry in the sun and stuck one toe into the shallows. It was cold, but no colder than the river he had just emerged from. He waded in. 
-  The water was clear and he could see the rocks on the bottom, small pebbles of various shades of brown and gray. His feet sank into the rocks. Then he saw little fish nosing at his shins. There were dozens of them, translucent silver with a rainbow sheen. He swam out where his feet no longer touched the bottom. He could only see a few feet into those depths.
-  He floated on his back for awhile and then climbed out. By then his clothes were mostly dry. He put them on and removed the netting from his satchel, which was still water-logged. He walked until the water was up to his knees and tossed the netting. He brought up a few fish, flopping within, and was overjoyed. Later he wandered the ruins and found enough kindling from dried bushes to build a fire. He skewered the fish and roasted them over the flame and stuffed himself. By then the sun was going down. It was getting colder. Already the moon was visible in the eastern skies, its reflection mirrored in the stillness of the lake. Before bedding down for the night the boy took the bucket up to the edge and dipped it underwater. He filled it to the brim.
+  The boy climbed down and navigated through the ruins to the lake shore. There he peeled off his clothes to dry in the sun and stuck one toe into the shallows. It was cold, but no colder than the river he had just emerged from. He removed the netting from his satchel and waded in up to his knees. The water was clear and he could see the rocks on the bottom, small pebbles of various shades of brown and gray. His feet sank into the rocks. Then he saw little fish nosing at his shins. There were dozens of them, translucent silver with a rainbow sheen. He swam out where his feet no longer touched the bottom. He could only see a few feet into those depths.
+  He drug the net through the clear water and brought up a few fish, flopping within, and was overjoyed. Later he wandered the ruins and found enough kindling from dried bushes to build a fire. He skewered the fish and roasted them over the flame and stuffed himself. By then the sun was going down. It was getting colder. Already the moon was visible in the eastern skies, its reflection mirrored in the stillness of the lake. Before bedding down for the night the boy went to the lake and dipped the bucket underwater. He filled it to the brim.
 
   Over the next few days Mika rested. The weather remained clear, hot during the day but cold in the evenings. He spent his waking hours exploring the ruins. When he worked up a sweat he went for swims in the lake and dried out on the rocky beach. When he was hungry he caught fish and cooked them and feasted until he almost burst. One morning he rose with the sun and knew it was time to go back.
   While exploring he had also gathered materials he could use to weave a makeshift bridge, in order to cross back over the chasm. Using thin twigs and vines along with sturdy flat pieces of stone he built one over the course of the morning. His mother had taught him basketmaking when he was very young and he drew on those skills. When he was finished it was ugly but would hopefully get him across.
@@ -382,7 +380,7 @@ When I was a child this is what the old men told me they had heard when they wer
   He walked up to the tree and stared up at its branches. Then he lifted off the makeshift lid from the bucket and gently poured its contents into the ground around the trunk. The dry earth soaked up the water and was gone. Then he set the bucket on the ground and stood by and he waited.
  
   It was an overcast day in early autumn. The pack of hunters stopped to rest on a high ridge, overlooking a meadow. This was the spot Turkeyfoot, a scout, had discovered a herd of doe the previous morning.
-  “Twenty strong, no lie.”
+  “Twenty strong. No lie.”
   A shallow creek wound through the area, its current swift and water clear. Mist-sodden leaves from the surrounding trees patchworked the ground in shades of red, yellow, and brown. One of the elder hunters pointed to the creek.
   “No doubt the water brings them here.”
   The others nodded in agreement.
