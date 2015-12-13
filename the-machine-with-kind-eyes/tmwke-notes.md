@@ -1,0 +1,1 @@
+A story about an artificial intelligence who has reason but no other knowledge of human culture, yet is able to extrapolate the same spiritual truths as those found in all religions, purely based on its observations and interactions with the outer world.
