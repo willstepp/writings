@@ -5,3 +5,7 @@ discovers a strange fetus floating in a milky pond. In the surrounding forest
 there are creatures who want to harm the fetus and he protects it from them.
 
 An enormous sun that overtakes the sky and burns away the leaves.
+
+A blue nebula, with tentacles spread across the black firmament. Something so far from him, light years away. Something alluring. If wings sprouted from his back one day he would fly to it.
+
+The creatures black, hardened. Later learn they were burned by the sun.
