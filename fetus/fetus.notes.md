@@ -17,3 +17,8 @@ tendril from some depths.
 
 Or, he can grow bitter and angry and resent the fetus for leaving him, burned further, and 
 join in with others who attack other fetuses, and those who want to protect them.
+
+If you join the creatures you learn they hide (in some weird way) during the sunrise, this 
+implies that at one time they too protected fetuses, being exposed, and somehow turned.
+
+In the milk he joins with another being, a scene of making love, becomes the fetus.
