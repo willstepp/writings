@@ -1,13 +1,8 @@
 FETUS
 Daniel Stepp
 
-The man walked through the woods, or a place that gave him the impression of woods, though there were no trees, no grass, nor even any dry leaves on the ground. There were shapes and structures (organic?) that arranged themselves into things familiar from the corner of his eye but whenever he focused on them they scurried immediately out of his periphery. The man could not remember how he had begun the journey that had brought him here. He could not remember the place he left from. He could not remember his name. Yet there were clues that connected him back to his former self and he set his mind to not forget them too. For example he knew there was such a thing as woods and that this place was not one, though it seemed to want him to think it was. He also knew it was a bit insane to think a landscape as having intentions, good or bad. Yet this was the place he found himself.
+You are used to the darkness by now, finding your way in the darkness, without the use of your eyes. You walk through the woods, or a place that gives you the impression of woods, though there are no trees here, no grass, nor any leaves on the ground. There are shapes and structures (organic?) which arrange themselves into things familiar from the corner of your eye but whenever you focus on them they vanish out of your periphery. You cannot remember how you begn the journey that brought you here. You cannot remember the place you left from. You cannot even remember your own name. Yet there are clues that connect you back to your former self and you set your mind to not forget them too. For example you know there is such a thing as woods and that this place is not one, though it seems to want you to think it is. You also know it was a bit off to think of a landscape as having intentions, good or bad, towards you. Yet this is the place you find yourself.
 
-Ahead he saw a hill. Maybe from up there he could get his bearings and figure out where to go from here.
+Ahead you see a hill. Maybe from up there you can get your bearings and figure out where to go from here.
 
-Behind him was more woods, vanishing into the dark of the night. What if he turned back?
-
-
-Look closer
-Look closer
-Look closer
+Behind you are the woods, vanishing into the darkness of the night. What if you turned back?
