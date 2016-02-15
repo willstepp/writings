@@ -5,4 +5,4 @@ You are used to the darkness by now, finding your way in the darkness, without t
 
 Ahead is a hillside. From up there you may be able to get your bearings and figure out where to go next.
 
-Behind you is the shapeless forest, vanishing into an abyss of darkness. Maybe you should go back.
+Behind you is the shapeless forest, vanishing into an impenetrable darkness. Maybe you should go back.
