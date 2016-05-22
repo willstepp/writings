@@ -1,3 +1,11 @@
+Get rid of non-immersive phrases like 'It was a warm day in summer.' Instead, set 
+the scene, 'A warm day in summer.' Make the reader feel like they are there.
+
+Eschew the fairy tale narration. Embrace immersion.
+
+
+eating of its sweet and mysterious fruit.
+
 There seemed no good path (expand on not knowing which way was right, he had 
 never experienced that feeling, of not knowing right from wrong and it paralyzed
 him inside)
