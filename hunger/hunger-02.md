@@ -57,21 +57,20 @@ When I was a child this is what the old men told me they had heard when they wer
   “The old men say your spear must be bad for you to be throwing like this. They say, Tye give him your spear and he will win again. This we know.”
   “They don’t know anything, old buzzards,” the boy scoffed, “Let them stick to smoking their pipes and taking cat naps, for all I care”
   “It is all they have.”
-  “I know.”
   Tye scanned the field and saw Mohe now among a group of girls who sat in a circle underneath an oak tree sewing bead necklaces. They looked annoyed at him. Leoti was among them. It was obvious most of his attention was given to her.
   “Mohe has been flirting with Leoti. I have seen him do it before. What do you think about that?”
   “Let him. I don’t care what that frogeater does.”
   His friend dropped his own spear on the ground next to him.
   “Use my spear. Challege him again. I just want to see the look on his ugly face when he’s beaten square.”
   The boy looked up, puzzled.
-  “My spear is good, Tye. See for yourself.”
+  “My spear is good. See for yourself.”
   His friend picked up the spear and examined it. He felt the leather straps and ran his hand along the spine, looking for any imperfection, but found nothing.
-  “Your spear is good. No splinters, no warp. But how did you lose?”
+  “No splinters, no warp. But how did you lose?”
   The boy once more looked to the mountains. His silence made Tye thoughtful. “Time will make things better,” he said, “You’ll see.” His brother had died in a hunting accident two summers ago and spoke from a place of wisdom. Then he rose and clasped one hand on Mika’s shoulder and stared him in the eyes.
-  “You are the best of them all. There is nobody in this village who can beat you in the game of tchungkee.”
-  His friend departed in order to join a game of dice that had just begun on the other side of the field. As he went he shouted over his shoulder.
-  “Except for me!”
-  The boy waved his friend away. A few moments later his eyes went back to the mountains. He looked at them for a long time. Much later he rose and went to find his mother.
+  “You are the best of them, my friend. Do not forget it.”
+  His friend departed in order to join a game of dice that had just begun on the other side of the field. As he went he brandished his own spear overhead and shouted back over his shoulder.
+  “Or maybe second best!”
+  Mika laughed and waved his friend away. A few moments later his eyes went back to the mountains. He looked at them for a long time. Much later he rose and went to find his mother.
   Ama sat outside with a group of young girls, teaching them how to flesh deer hides for the tanning process. When she scraped the broad, flint blade down the hide draped over the wooden incline her shoulder muscles rippled. She moved like a woman twenty years younger than she was. When the girls took their clumsy turns at the hide it merely served to show how adept the old woman was at her work. But she was patient and kind and therefore was a good teacher to them.
   When she saw her son approach she wiped her hands on her apron and embraced him. It was obvious from the way he appeared, head down and thoughtful, that something was the matter.
   “Let us walk,” she said.
@@ -218,7 +217,7 @@ When I was a child this is what the old men told me they had heard when they wer
   He gestured to his large family sat nearby. His granddaugther rubbed her belly and smiled bashfully. Kulsathee regarded them with compassionate eyes.
   “Do not be afraid. Myself and the elders have held council all through the night. Since this came to pass we have also held council with the farmers and hunters among you, in order to see what can be done.”
   “Every man who is able to hunt will tomorrow set off on a journey to the next valley. We have sent a scout there and he has reported back the blight has not yet spread that far. It is a five day journey. We will enter the next valley to hunt deer, rabbit, and other game. Accompanying the men will be a small group of women, to gather nuts, and wild fruits and vegetables that can be dried. They will also stay at the base camp to dress the kills and to salt them for the journey back to the village.”
-  “Because the best place for the hunters will be in the next valley, they will remain there and we will set up a system of checkpoints to deliver the food supply. Then, after a couple of weeks, the hunters will return to rest and to see their families. Then we start over again. By doing this we will be able to store enough food to last throughout the winter, and safely into the following year. Remember, the days are now long and warm, but we cannot forget they will not always be so. We must not forget that the Earth is bountiful but she is also harsh. Our people are strong and by working together we will overcome this blight. We will not starve.”
+  “Because the best place for the hunters will be in the next valley, they will remain there and we will set up a system of checkpoints to deliver the food supply. Then, after a couple of weeks, the hunters will return to rest and to see their families. Then we start over again. By doing this we will be able to store enough food to last throughout the winter, and safely into the following year. Remember, the days are now long and warm, but we cannot forget they will not always be so. We must not forget that the Earth is bountiful but she is also harsh. Our people are strong and by working together we will overcome the blight. We will not starve!”
   
   It was a warm day in summer. The hunters crouched in the grass nearby a creek where the deer came to drink. A soft breeze blew across the clearing and rustled the leaves on the trees. Tye lashed the decoy to his right and crawled flat on his stomach to the edge of the water. He lifted the mock deer head just above the grass line and bobbed it up and down in a realistic manner. Then Mika placed his hands over his mouth and whistled like a bird, their agreed upon signal to one another while tracking prey in the neighboring valley. Tye knew from the whistle the deer head was visible from afar and he should keep it at that height.
   Being the decoy fell on Tye because the boy had the truer aim. The elder hunters had decided upon this themselves during target practice. Tye did not resent that it was not his part to slay the deer when hunting with his friend. He knew someday his chance would come.
