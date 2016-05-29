@@ -1,6 +1,6 @@
 HUNGER
 
-When I was a boy this is what the old men told me they had been told when they were boys
+When I was a boy this is what the old men told me they had heard when they were boys
 
   Mika followed an elderly caregiver down a pathway lit by torches. He had yet to shake off his dreams and yawning wide he tucked both hands under his armpits for warmth. A mist from the surrouding hillside rolled through the village and obscured the houses on either side of the path where they walked. Ahead was a gray void and only the faintest silhouette of the old woman. His eyes were drawn to the back of her head where double-braided ends twisted up like two snakes entwined. Over her shoulders she wore a heavy, bearskin shawl.
   They came to a small house at the end of a hamlet of buildings that made up the healing area of the village. The house on the end was where they took those with fatal hunting injuries or for sicknesses that had no cure. She parted the deerskin covering the narrow doorway and then stood aside, her head bowed. He entered alone.
