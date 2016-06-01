@@ -1,5 +1,12 @@
+Best thing you could do would be to round out the scenes, add sensual observations 
+of nature, drawn from memories. It feels too much like a story as it is now. Envelop 
+the plot in the life of the people and in the setting. 
+
+Your next revision should feel like the story took a deep breath in and slowly out, 
+calming itself.
+
 Get rid of non-immersive phrases like 'It was a warm day in summer.' Instead, set 
-the scene, 'A warm day in summer.' Make the reader feel like they are there.
+the scene, 'A warm day in summer.' In other words, focus on impressions.
 
 Eschew the fairy tale narration. Embrace immersion.
 
