@@ -22,3 +22,9 @@ If you join the creatures you learn they hide (in some weird way) during the sun
 implies that at one time they too protected fetuses, being exposed, and somehow turned.
 
 In the milk he joins with another being, a scene of making love, becomes the fetus.
+
+You call the things you see all around you trees, and rocks, and grass, and leaves, but not 
+because they are really those things, but because that is how your mind is able to make sense of them. 
+Your memory of those things creates the association, since they have the nearest relationship through 
+both form and behavior. But then sometimes the thing you call a tree will bend down consciously 
+and sniff around and the illusion is broken. But you can't help yourself. It's how the mind works.
