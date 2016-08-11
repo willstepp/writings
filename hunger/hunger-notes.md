@@ -1,3 +1,5 @@
+Don't die out in me. When losing track of the mountain. In a fog, a haze.
+
 Best thing you could do would be to round out the scenes, add sensual observations 
 of nature, drawn from memories. It feels too much like a story as it is now. Envelop 
 the plot in the life of the people and in the setting. 
