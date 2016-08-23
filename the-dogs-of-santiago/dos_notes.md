@@ -1,4 +1,9 @@
-Why concern is he of yours? 
+The conversation about what do I know with my own two eyes...take that to its 
+conclusion. Does God exist? What is good? What is right? I don't know. Then, the 
+doctor should tell him to "Figure it out." This should reflect the end of the book, 
+his observation of the boy and the dog.
+
+What concern is he of yours? 
 Never mind that, how do you get to San Bernardo from here?
 This is not my business.
 
