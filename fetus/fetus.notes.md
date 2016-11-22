@@ -1,3 +1,6 @@
+The creatures appear transclucent though this is because his eyes can see through their flesh, like x-rays, rather 
+than because their skin had that characteristic.
+
 A parable about a man who finds himself lost in a forest where the trees 
 are barren and the ground is covered in leaves. The man is unable to remember his 
 name or where he's from. He can't event remember long he has been walking. He 
