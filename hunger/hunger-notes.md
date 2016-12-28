@@ -1,4 +1,9 @@
-Don't die out in me. When losing track of the mountain. In a fog, a haze.
+Will and deed are one in Heaven.
+
+At the end in his 'ever walking' narration, be sure to mention the will of his 
+father, and the contentment in his heart that it was done, and always would be.
+
+Abandon me not. Do not die out in me. When losing track of the mountain. In a fog, a haze.
 
 Best thing you could do would be to round out the scenes, add sensual observations 
 of nature, drawn from memories. It feels too much like a story as it is now. Envelop 
