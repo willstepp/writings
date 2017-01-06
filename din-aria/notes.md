@@ -1,0 +1,3 @@
+A story about a man who buys a laptop off craigslist. A scientist has committed suicide, working on a prototype that was meant to change the world, his house robbed and lab burned to the ground. The man discovers its the laptop of the man who committed suicide.
+
+He didn’t commit suicide. It was murder. He’s not really dead, destroyed the technology, the world isn’t ready for it. The man inadvertently releases into the world, where it falls into the wrong hands, despite the scientists best wishes.
