@@ -17,7 +17,7 @@ The technology works with media, images, video, sound, physical specimen
 Neanderthals who discovered fire did not understand the physics or the chemistry behind 
 combustion, but that didn't prevent them from using it for the benefit of everyone.
 
-The Aria Stream
+The Aura Stream
 
 President Trump
 
@@ -26,3 +26,6 @@ Down on his luck, used to work the extruder at the carpet mill until it shut dow
 I used to think about what else I could do, but I don't feel any heart anymore, any excitement.
 
 The scientist has gone mad? Holy fool. Absolute empathy.
+
+The man in the dark.
+Dim the lights. Dim them.

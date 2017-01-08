@@ -8,4 +8,4 @@
 * Sanctuary Park [notes]
 * Wisteria Bar at the Corner of 23rd St and Highland Ave [notes]
 * The Machine with Kind Eyes [notes]
-* Din Aria [notes]
+* Aura, Dim [notes]
