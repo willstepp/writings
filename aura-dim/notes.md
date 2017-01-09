@@ -27,5 +27,22 @@ I used to think about what else I could do, but I don't feel any heart anymore, 
 
 The scientist has gone mad? Holy fool. Absolute empathy.
 
-The man in the dark.
-Dim the lights. Dim them.
+The woman in the dark.
+Make it dim. Make it dim.
+
+The story ends with the main character emerging from somewhere, the government 
+people are there, shadowy people, call out to him.
+
+"Here I am."
+
+Part One leads up to unlocking the encrypted drive to better understand the device. Turn, device is not just for mind reading, but for telepathy.
+
+Part Two is story of the creation of the Aura algorithm and what led up to the fire. Turn, she is not really dead. Rant on money, feeling alone when friends abandon dreams.
+
+Part Three, search for her, evade government agents, and company men. Turn, she is mad.
+
+He needs to progress through three stages, maybe ending with empathy.
+
+Drug buyers were hired to rough her up, steal equipment, government? corp?
+
+Ends in vision of empathy
