@@ -46,3 +46,8 @@ He needs to progress through three stages, maybe ending with empathy.
 Drug buyers were hired to rough her up, steal equipment, government? corp?
 
 Ends in vision of empathy
+
+The man is bad in his heart. The woman is good in her heart. The discovery brings out 
+what is in them. He becomes worse. She becomes better. We never know who the authority 
+figures are, whether they represent the corporation or the government. At the end, 
+he joins them, or rather it is left as an unknown, "Here I am."
