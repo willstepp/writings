@@ -51,3 +51,34 @@ The man is bad in his heart. The woman is good in her heart. The discovery bring
 what is in them. He becomes worse. She becomes better. We never know who the authority 
 figures are, whether they represent the corporation or the government. At the end, 
 he joins them, or rather it is left as an unknown, "Here I am."
+
+
+
+Man: Fell on hard times -> Corrupt
+Woman: Cold, analytic -> Empathetic
+
+
+This is not science, this is pseudoscience at best. Snake Oil.
+But it works.
+
+
+Still got that lappy for sale?
+Yeah I got it.
+Take five hundred?
+Its worth more than that.
+How much you take?
+Eight hundred, like it says in the ad.
+Oh, alright then.
+
+After returning from the deal with the laptop he looks out the window because 
+the mexican who works the night shift at the office is beating on the door of the 
+family across the way, the pimp next door is yelling at his girl, the pool with 
+the brown tarp peeled back over dark green water, reminds him of a Florida vacation he 
+took with his dad and brother and sister when they were just kids. They wore orange 
+floatation bands on their arms in the blue and the sky was very blue against the 
+white clouds. It was funny how clearly he could still recall it and even smell it and 
+he then felt a deep sadness at how far he was now from those days of happiness and 
+how fun it all was and how life would never again be so fun and that was the last 
+thing he thought before sleep took him.
+
+I can't help you.
