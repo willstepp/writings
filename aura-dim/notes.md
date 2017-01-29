@@ -75,10 +75,11 @@ the mexican who works the night shift at the office is beating on the door of th
 family across the way, the pimp next door is yelling at his girl, the pool with 
 the brown tarp peeled back over dark green water, reminds him of a Florida vacation he 
 took with his dad and brother and sister when they were just kids. They wore orange 
-floatation bands on their arms in the blue and the sky was very blue against the 
+floatation balloons on their arms in the blue water of the pool and the sky was very blue against the 
 white clouds. It was funny how clearly he could still recall it and even smell it and 
-he then felt a deep sadness at how far he was now from those days of happiness and 
-how fun it all was and how life would never again be so fun and that was the last 
-thing he thought before sleep took him.
+he then felt a deep sadness at how far he was now from those days and 
+how fun it all was and how life would never again be so fun. He thought about that. 
+Then he thought of his own son and what he was doing right now and if he would ever think about 
+him as he remembered his own father and that was the last thing he thought before sleep took him.
 
 I can't help you.
