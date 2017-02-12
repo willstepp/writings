@@ -83,3 +83,6 @@ Then he thought of his own son and what he was doing right now and if he would e
 him as he remembered his own father and that was the last thing he thought before sleep took him.
 
 I can't help you.
+
+
+"After returning from the deal with the laptop he looks out the window because the mexican who works the night shift at the office is beating on the door of the family across the way, the pimp next door is yelling at his girl, the pool with the brown tarp peeled back over dark green water, reminds him of a Florida vacation he took with his dad and brother and sister when they were just kids. They wore orange floatation balloons on their arms in the blue water of the pool and the sky was very blue against the white clouds. How clearly he could still recall it and even smell it and hear it and then he felt an emptiness within him at how far he was from those happy days and how fun that had all been and how his life would never again be so much fun. Then he thought of his own son whom he had not seen since last October and what he was doing right now and if he would ever think back on him as he thought back his own father and that was the last thing he thought before sleep took him."
