@@ -86,3 +86,24 @@ I can't help you.
 
 
 "After returning from the deal with the laptop he looks out the window because the mexican who works the night shift at the office is beating on the door of the family across the way, the pimp next door is yelling at his girl, the pool with the brown tarp peeled back over dark green water, reminds him of a Florida vacation he took with his dad and brother and sister when they were just kids. They wore orange floatation balloons on their arms in the blue water of the pool and the sky was very blue against the white clouds. How clearly he could still recall it and even smell it and hear it and then he felt an emptiness within him at how far he was from those happy days and how fun that had all been and how his life would never again be so much fun. Then he thought of his own son whom he had not seen since last October and what he was doing right now and if he would ever think back on him as he thought back his own father and that was the last thing he thought before sleep took him."
+
+
+  
+  Sees the news
+  Gets into the computer, discovers p.aura, follows instructions, tries it out on some neighbors, keyword M-O-N-E-Y.
+  Goes to find Grady and Jenn, cops swarming their place. Drives out to Lake Weiss to a camper. They are dead, apparent overdose, but its a setup. He wonder if they'll track him down.
+  Back at the hotel his stuff has been ransacked. He waits until that night and decides to rob the guy with ten grand when he goes out. When he breaks in, using a hidden key, he finds it trashed out, a young Mexican girl is handcuffed in the small bathtub. She is naked, won't look at him. "Help." He doesn't help her.
+In a Car Crash, man injured, bleeding out, dying. He could help; but doesn't. He leaves the scene.
+Shouts down a lady in line.
+
+Unfortunately it doesn't work that way, James. You are not in a position to ask questions of us. You are not in control here. This will be hard for you to accept but it is the truth, and you will understand that truth in time. Further, you are not in control of your own life. You never have been. You never will be. Do you know the most influential force in the world? Inertia. People do not want freedom. They want comfort. To be taken care of. A life of ease and entertainment, of rich food and parties. To be soothed and pampered from the time they are born until their bodies are lowered into the ground.
+
+That ain't true. I love. I have loved. My boy. I love him more than my own life. I know that.
+
+Dogs love their own James. Do you think of yourself angelic because of that? It is instinct. He loves you because you provide for him, give him that comfort we are speaking about. And you love him because of chemicals in your nervous system, millions of years of genetic programming to keep our species propagating. That's all.
+That's not true.
+We are afraid so.
+
+As you judged others we judged you. We forgive you.
+
+Yells at someone for no reason except agitation.
