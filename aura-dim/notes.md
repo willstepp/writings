@@ -112,3 +112,5 @@ Yells at someone for no reason except agitation.
 science fiction
 southern fiction
 noir mystery
+
+In light of recent events I feel like I need to address something. There has been an unspoken presumption among us that I need to address at this time, especially now. The presumption is this - that only work which can make us money or has potential to make money in the future is worthy our time and attention. I reject that presumption. From the core of my being I reject it. And though I have no evidence for it, a part of me knows in fact the opposite is really the truth.
