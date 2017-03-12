@@ -154,3 +154,19 @@ He wakes up from a dream reunited with carol and walker, in his loneliness he fi
 She routinely has affairs, trying to recapture that feeling of a perfect love.
 They have sex, each thinking of others they want to be with.
 Truth is losing. Losing out to fantasy and delusional belief systems.
+
+
+
+You used to be someone who didn't care about money. Remember those conversations we had, late in the lab, of doing great work, helping others, Jonas Salk, you know?
+The world isn't as black and white as we thought when we were undergrads.
+We help people. You can't say we don't help others doing what we do. And I make enough money 
+now to help my parents now. How is that not a good thing? Its only a good thing.
+Something is different. Something slipped in along with all those good intentions. Something cynical and ugly.
+I feel like everyone who used to be on my side has abandoned me, one by one, and I'm alone.
+It's called growing up.
+The world is much bigger than we knew back then. We were just kids.
+I feel alone.
+Elementary school, one boy started and whoever he tagged had to hold his hand so they 
+formed a human chain, and the chain reached out and tagged others and slowly the chain grew, link by link, and 
+before long it was this long swaying thing, undulating with the kids faces laughing, and soon only she was left. 
+But it was coming for her too. And it did.
