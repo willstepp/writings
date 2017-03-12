@@ -113,4 +113,44 @@ science fiction
 southern fiction
 noir mystery
 
+
 In light of recent events I feel like I need to address something. There has been an unspoken presumption among us that I need to address at this time, especially now. The presumption is this - that only work which can make us money or has potential to make money in the future is worthy our time and attention. I reject that presumption. From the core of my being I reject it. And though I have no evidence for it, a part of me knows in fact the opposite is really the truth.
+
+Ends in vision of empathy
+neuroimaging electrophysiological data
+I can't help you
+
+Drug buyers were hired to rough her up, steal equipment, government? corp?
+Part One leads up to unlocking the encrypted drive to better understand the device. Turn, device is not just for mind reading, but for telepathy.
+
+Part Two is story of the creation of the Aura algorithm and what led up to the fire. Turn, she is not really dead. Rant on money, feeling alone when friends abandon dreams.
+
+Part Three, search for her, evade government agents, and company men. Turn, she is mad.
+
+He needs to progress through three stages, maybe ending with empathy.
+Sees a car wreck, keeps driving
+http://libguides.usc.edu/writingguide/researchglossary
+https://www.reddit.com/r/printSF/comments/18dc62/what_is_your_favorite_book_featuring_telepathy/
+http://openbci.com
+p.aura
+People want to sleepwalk through life, people want to get fat. Once you had access to the device what did you do? You might have done anything, you looted a pimp, a restaurant owner, a lawyer. Think about that won't you.
+
+Leaves gifts for son. Is confronted by mother, calls him a piece of shit, gives the gifts back.
+
+He learns the device is not for reading minds, it's for communication. Zoey opens a stream and they join. This is where he learns her story, the dream of Donald Trump, and where she is in hiding.
+
+He leads her to them. They had been monitoring him all along.
+We judged you as you judged others. Why didn't you help the girl in the hotel room? Why didn't you stop to help the people in the car accident?
+You were supposed to kill our man. You were supposed to discover the keycard. As we suspected you felt nothing.
+Talks through intercom.
+She did this to herself. No clothes, no food or water.
+Talks in the voice of his son, forgiveness. Return to me, father return. Forgive others as I have forgiven you. This is my prayer.
+There's no such thing as a search for power. Only a search for security, for comfort. We provide that. That is our purpose. We are justified by your actions. It is a good for the service of mankind.
+
+DT in the back of a Maybach, listening to the original version of China Girl. Awash with feelings of feminine ecstacy, vulnerable, yielding.
+teener, ball, geeked up
+Needs a scene where he exploits a woman's fantasy for his own pleasure.
+He wakes up from a dream reunited with carol and walker, in his loneliness he finds an unhappy woman who has fantasies of an unrequited love, he uses those fantasies to seduce her - a scene at Christmas, floating on a moving sea of wrapping paper, she loses him momentarily.
+She routinely has affairs, trying to recapture that feeling of a perfect love.
+They have sex, each thinking of others they want to be with.
+Truth is losing. Losing out to fantasy and delusional belief systems.
