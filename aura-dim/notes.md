@@ -170,3 +170,5 @@ Elementary school, one boy started and whoever he tagged had to hold his hand so
 formed a human chain, and the chain reached out and tagged others and slowly the chain grew, link by link, and 
 before long it was this long swaying thing, undulating with the kids faces laughing, and soon only she was left. 
 But it was coming for her too. And it did.
+
+Impatience, agitation with others. Blaming others for his problems.
