@@ -148,6 +148,9 @@ Talks in the voice of his son, forgiveness. Return to me, father return. Forgive
 There's no such thing as a search for power. Only a search for security, for comfort. We provide that. That is our purpose. We are justified by your actions. It is a good for the service of mankind.
 
 DT in the back of a Maybach, listening to the original version of China Girl. Awash with feelings of feminine ecstacy, vulnerable, yielding.
+
+DT slithering on his stomach like an obese serpant, his red tie scraping on the dirt, his head upturned, his beady eyes looking.
+
 teener, ball, geeked up
 Needs a scene where he exploits a woman's fantasy for his own pleasure.
 He wakes up from a dream reunited with carol and walker, in his loneliness he finds an unhappy woman who has fantasies of an unrequited love, he uses those fantasies to seduce her - a scene at Christmas, floating on a moving sea of wrapping paper, she loses him momentarily.
