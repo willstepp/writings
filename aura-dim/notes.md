@@ -175,3 +175,6 @@ before long it was this long swaying thing, undulating with the kids faces laugh
 But it was coming for her too. And it did.
 
 Impatience, agitation with others. Blaming others for his problems.
+
+They encourage you with their words but their eyes are uninterested. But as soon as you talk of money, of the prospect 
+of making a profit, their eyes light up, their voices jump an octave. Then you see what moves them, truly. You see then what stirs their souls.
