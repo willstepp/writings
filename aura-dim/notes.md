@@ -178,3 +178,5 @@ Impatience, agitation with others. Blaming others for his problems.
 
 They encourage you with their words but their eyes are uninterested. But as soon as you talk of money, of the prospect 
 of making a profit, their eyes light up, their voices jump an octave. Then you see what moves them, truly. You see then what stirs their souls.
+
+Sick boy pulling a barrel full of trash. He is sick so having a hard time. He has a snake growing out of his forehead, it curls around his head and neck, very slowly it slithers out, as it comes it covers more and more of his face.
