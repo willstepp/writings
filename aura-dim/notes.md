@@ -187,3 +187,50 @@ Welcome to Avalon, we're having a wonderful day, let us know how we can bring so
 
 Fuck you.
 
+
+
+Email Notes:
+Part One leads up to unlocking the encrypted drive to better understand the device. Turn, device is not just for mind reading, but for telepathy.
+Part Two is story of the creation of the Aura algorithm and what led up to the fire. Turn, she is not really dead. Rant on money, feeling alone when friends abandon dreams.
+Part Three, search for her, evade government agents, and company men. Turn, she is mad.
+He needs to progress through three stages, maybe ending with empathy.
+Drug buyers were hired to rough her up, steal equipment, government? corp?
+Ends in vision of empathy
+neuroimaging electrophysiological data
+I can't help you
+Sees a car wreck, keeps driving
+http://libguides.usc.edu/writingguide/researchglossary
+https://www.reddit.com/r/printSF/comments/18dc62/what_is_your_favorite_book_featuring_telepathy/
+http://openbci.com
+p.aura
+People want to sleepwalk through life, people want to get fat. Once you had access to the device what did you do? You might have done anything, you looted a pimp, a restaurant owner, a lawyer. Think about that won't you.
+Leaves gifts for son. Is confronted by mother, calls him a piece of shit, gives the gifts back.
+He learns the device is not for reading minds, it's for communication. Zoey opens a stream and they join. This is where he learns her story, the dream of Donald Trump, and where she is in hiding.
+He leads her to them. They had been monitoring him all along.
+We judged you as you judged others. Why didn't you help the girl in the hotel room? Why didn't you stop to help the people in the car accident?
+You were supposed to kill our man. You were supposed to discover the keycard. As we suspected you felt nothing.
+Talks through intercom.
+She did this to herself. No clothes, no food or water.
+Talks in the voice of his son, forgiveness. Return to me, father return. Forgive others as I have forgiven you. This is my prayer.
+There's no such thing as a search for power. Only a search for security, for comfort. We provide that. That is our purpose. We are justified by your actions. It is a good for the service of mankind.
+DT in the back of a Maybach, listening to the original version of China Girl. Awash with feelings of feminine ecstacy, vulnerable, yielding.
+teener, ball, geeked up
+Needs a scene where he exploits a woman's fantasy for his own pleasure.
+He wakes up from a dream reunited with carol and walker, in his loneliness he finds an unhappy woman who has fantasies of an unrequited love, he uses those fantasies to seduce her - a scene at Christmas, floating on a moving sea of wrapping paper, she loses him momentarily.
+They have sex, each thinking of others they want to be with. She routinely has affairs, trying to recapture that feeling of a perfect love.
+Truth is losing. Losing out to fantasy and delusional belief systems.
+Revenge on Carols new boyfriend. Works at a shop, compels him to do something that gets him fired, or worse? This ties into the man he murders later on, feels compelled to do it...
+Smoked a foil
+Man he kills is step father
+After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. *But that was a lie.*
+He eats the man, like a drug-induced psychotic episode
+woman sex - I hate my life
+A chapter describing the beautiful day at Berry flying a kite in the tall grass, boy crawling in the grass like a puppy, a picnic of burgers and fries and fried strawberry pies
+The photography of Gregory Crewdson
+mother is with them while flying the kite
+snake trump -> gay trump -> compassionate trump
+he brings gifts and leaves them at the door. he receives a note? talks to ex? you don't get to do that anymore. you don't have the right. receives them, burned.
+they were controlling him the whole time, manipulating him to locate her
+he grows more paranoid, more agitated, less hungry, as time goes by
+^^^ as a meth addict
+bites nails, covers pot belly with arm
