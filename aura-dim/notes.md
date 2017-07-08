@@ -187,7 +187,14 @@ Welcome to Avalon, we're having a wonderful day, let us know how we can bring so
 
 Fuck you.
 
+Film Noir
+http://www.indiewire.com/2015/03/top-15-classic-noir-films-188273/
+https://www.theguardian.com/film/filmblog/2013/nov/29/top-10-film-noir
+http://www.listchallenges.com/100-greatest-film-noirs
 
+Actual Telepathy Technology
+http://www.cnbc.com/2017/07/07/this-inventor-is-developing-technology-that-could-enable-telepathy.html
+http://www.openwater.xyz/
 
 Email Notes:
 Part One leads up to unlocking the encrypted drive to better understand the device. Turn, device is not just for mind reading, but for telepathy.
