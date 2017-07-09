@@ -241,3 +241,12 @@ they were controlling him the whole time, manipulating him to locate her
 he grows more paranoid, more agitated, less hungry, as time goes by
 ^^^ as a meth addict
 bites nails, covers pot belly with arm
+
+
+Whoever finds this note, I need your help. Find me.
+
+When he joins her aura stream he sees a memory from here childhood, the dilapidated house (Quail Hollow), walks around in the aura until he finds something to help locate her. When he goes there the place is empty, though there are clues she was there. Here is where he is attacked and devours the man.
+
+She built the prototype into a knitted pink beanie with cat ears, to keep the men in the lab away from it.
+
+The woman he has sex with he sees walking through Avalon.
