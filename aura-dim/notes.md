@@ -1,3 +1,46 @@
+Old Dude: You didn't show.
+Old Dude: Is it done?
+You: She got away
+Old Dude: What about the notebook?
+You: Naw
+Old Dude: Anything of value?
+You: Nothing like you said, no device
+You: What now?
+Old Dude: Destroy the phone
+You: Yo, what r we gonna do? Were on local news.
+Old Dude: Afraid that's your problem
+You: Fuck U
+Old Dude: Destroy the phone
+
+Sees the pink knitted cat hat on all the videos, even in summer
+The house is the background of the computer, old photo, with family
+
+'The neanderthals who discovered fire did not understand the chemistry behind 
+combustion, but importantly that didn't prevent them from harnessing it for the 
+benefit of humanity.'
+
+- quote from something
+
+He sees this before knowing what is going on, what the device is
+
+The device can only go one-way. She has figured out how to make it work two-ways. Breakthrough.
+
+https://drugs-forum.com/threads/tweaker-speak-what-is-your-meth-lingo.200112/page-2
+http://tywkiwdbi.blogspot.com/2011/03/this-is-your-face-on-meth.html
+http://www.nbcnews.com/id/41786945/ns/health-addictions/
+
+Shadow people
+
+Symptoms and Signs of a Meth Addict
+
+During methamphetamine use, a person's pupils become dilated, their heart rate increases and they may show signs of physical exertion (such as sweatiness and elevated body temperature). They may seem particularly agitated, nervous or frustrated. Because it is a strong stimulant, users will often go for long periods - possibly even days at a time - without sleep and a diminished appetite. Looking gaunt, drawn or undernourished is frequently a cause for concern even if it isn't indicative of a drug addiction, but when coupled with other symptoms of meth abuse these signs should be taken very seriously. Over long periods of addiction, the harsh chemicals in the drug cause oral deterioration, often termed "meth mouth", and skin health also suffers as increased acne and sores from skin-picking begin to appear.
+
+SHORT TERM EFFECTS INCLUDE THE FOLLOWING:
+Increased heart rate and blood pressureIrregular heartbeat and cardiovascular problemsInsomniaIntense irritabilityAnxiety/ParanoiaConvulsionsPossibility of stroke
+
+LONG TERM EFFECTS INCLUDE:
+DelusionsAuditory hallucinationsViolent behaviorHomicidal or suicidal thoughts
+
 A story about a man who buys a laptop off craigslist. A scientist has committed suicide, working on a prototype that was meant to change the world, his house robbed and lab burned to the ground. The man discovers its the laptop of the man who committed suicide.
 
 He didn’t commit suicide. It was murder. He’s not really dead, destroyed the technology, the world isn’t ready for it. The man inadvertently releases into the world, where it falls into the wrong hands, despite the scientists best wishes.
