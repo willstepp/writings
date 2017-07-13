@@ -1,3 +1,5 @@
+I wish my parents were still alive.
+
 Old Dude: You didn't show.
 Old Dude: Is it done?
 You: She got away
