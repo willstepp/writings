@@ -1,3 +1,5 @@
+This is not my circus. These are not my monkeys.
+
 I wish my parents were still alive.
 
 Old Dude: You didn't show.
