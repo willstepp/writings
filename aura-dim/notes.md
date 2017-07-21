@@ -1,3 +1,5 @@
+Opening of the book, a scene describing the beautiful day at Berry flying a kite in the tall grass, boy crawling in the grass like a puppy, a picnic of burgers and fries and fried strawberry pies. Mother is with them while flying the kite.
+
 This is not my circus. These are not my monkeys.
 
 I wish my parents were still alive.
@@ -279,7 +281,6 @@ Man he kills is step father
 After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. *But that was a lie.*
 He eats the man, like a drug-induced psychotic episode
 woman sex - I hate my life
-A chapter describing the beautiful day at Berry flying a kite in the tall grass, boy crawling in the grass like a puppy, a picnic of burgers and fries and fried strawberry pies
 The photography of Gregory Crewdson
 mother is with them while flying the kite
 snake trump -> gay trump -> compassionate trump
