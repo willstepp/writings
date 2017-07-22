@@ -1,4 +1,6 @@
-Opening of the book, a scene describing the beautiful day at Berry flying a kite in the tall grass, boy crawling in the grass like a puppy, a picnic of burgers and fries and fried strawberry pies. Mother is with them while flying the kite.
+Opening of the book, a scene describing the beautiful day at Berry flying a kite in the tall grass, boy crawling in the grass like a puppy, a picnic of cheeseburgers and onion rings and fried strawberry pies. Mother is with them while flying the kite. Mister Joseph. Which way is the wind blowing? Plans to go to the 411 drive in. What are you thinking about, baby?
+
+Has the restraining order taped to the mirror of his hotel room, to keep him strong. Unexpressed desire to make things right. Save money, puts it in a hidden stash. This money gets taken when his room is ransacked for the computer.
 
 This is not my circus. These are not my monkeys.
 
