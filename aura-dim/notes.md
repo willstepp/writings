@@ -293,6 +293,57 @@ they were controlling him the whole time, manipulating him to locate her
 he grows more paranoid, more agitated, less hungry, as time goes by
 ^^^ as a meth addict
 bites nails, covers pot belly with arm
+why is this happening to me?
+girl in hotel room:
+  can I go?
+  will he hurt me?
+  he said so
+  will he hurt kurt?
+  he said so
+  goodbye
+  goodbye
+he destroys step dads new truck, later sees it at house, leaving gifts
+finds cell phone, they left it open to his text, they text him to make a deal
+killing the stepfather gives them leverage over him, entrapping him to work for them
+we never needed the computer, we just needed an innocent set of eyes on the data, a level of indirection, 
+to lead us to her. We thought it would be those tweakers we hired, just bad luck it was you.
+I ain't innocent.
+To Zoe you were.
+We used to talk about important things. How we were going to change the world. What happened? When did we lose that? 
+When did it become about money? Life happened. I'm married now. I have two girls. Do you know how expensive private school is?
+This technology should be free. This is a tool for communication. It will change things. It will change the world. There's 
+nothing wrong with making money.
+at the house, her childhood home, he murders then eats, a fire, he runs away, burned, hides in the woods, like an animal
+I done it for the money. I can't ever go out in the sunlight, like I used to done. My lifes ruint.
+Shit was straight. That's why we stick with you. Your shit be real and your bags aint stingy neither. Not like those other 
+assholes. You be too quiet though, damn.
+Shut the fuck up, Jenn.
+Don't tell me Grady. He know I just playin. You don't own me.
+A dream to go square, straighten up.
+Feeling the drain.
+Recop, buy another batch.
+Behind the trailer in the woods, texts Grady, 'back door' - no response so he knocks, feels for the key and finds one, finds them 
+shot on the couch, phone missing, then gets a text, 'we just want the notebook' and then 'stay put' He doesn't.
+is chased through the woods by shadow people, they call his phone, he turns off, brandishes gun, then they're just gone. back at hotel, he memorizes number and gives it to the homeless guy who puts it in his cart.
+don't have scenes of character development and plot action, integrate
+notes.doc
+you have to write detail of the settings as if its exotic, as if its completely foreign and strange.
+to get out of the room, being watched, he calls 911 with reports of a fire and injuries. When the chaos of firetrucks and ambulances arrive he makes his escape around the building.
+Do not distrub
+Gets text message from The Bitch
+Do you still have the notebook? we need to get it back, for real. $ is no issue, hit me back, bro.
+computer comes in bag along with first gen headset
+sex with woman is forced with mind, gets idea from that to harm husband, when drunk
+walks through a birthday party in the past, their home zoey is a child, she says find me Mr. Will, Josey is there. Suzanne
+Where?
+she notes a visitor from government, the former director of CIA.
+Suzanne Bitch
+I believe in you and I'm not the only one. Help me. Find me.
+Calls firetruck but then escapes out the back, grabs the computer from the bin and is chased by the man in the shadows, ends up in a chase through the hospital, sir there is nobody here, sir there are no drugs here, runs to waffle house
+You murdered them, Grady and Jenn
+And you sold drugs to Grady and Jenn, long before we ever met, and maybe you were afraid to get caught with the computer at their botched robbery so maybe you killed them. You definitely have it in you. You murdered Randall, after all. Are you beginning to understand how things really are? We control the narrative. We control you. You work for us. You will work for us. I know there is a part of you that wants to believe you are free. That you ultimately decide the way your life is. But that is't so. You are not free. You have never been free. More than that, you don't want to be free.
+Who is us? Who are you? I don't get the big picture.
+It doesn't matter who we are, or what you call us, the company, the government, the man, the 1%, we are those who make the decisions about how things will be and you are he who obeys.
 
 
 Whoever finds this note, I need your help. Find me.
