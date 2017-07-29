@@ -344,6 +344,9 @@ You murdered them, Grady and Jenn
 And you sold drugs to Grady and Jenn, long before we ever met, and maybe you were afraid to get caught with the computer at their botched robbery so maybe you killed them. You definitely have it in you. You murdered Randall, after all. Are you beginning to understand how things really are? We control the narrative. We control you. You work for us. You will work for us. I know there is a part of you that wants to believe you are free. That you ultimately decide the way your life is. But that is't so. You are not free. You have never been free. More than that, you don't want to be free.
 Who is us? Who are you? I don't get the big picture.
 It doesn't matter who we are, or what you call us, the company, the government, the man, the 1%, we are those who make the decisions about how things will be and you are he who obeys.
+eat shit and die
+at the end he's burned, from the fire started in the house, after chewing off the face of Randall, like the victim of a meth lab explosion
+The rich woman ran her can head on into traffic, she died on the side of the highway - he is told this by the administrator, it mirrors the fantasy vision of DT
 
 
 Whoever finds this note, I need your help. Find me.
