@@ -347,6 +347,10 @@ It doesn't matter who we are, or what you call us, the company, the government, 
 eat shit and die
 at the end he's burned, from the fire started in the house, after chewing off the face of Randall, like the victim of a meth lab explosion
 The rich woman ran her can head on into traffic, she died on the side of the highway - he is told this by the administrator, it mirrors the fantasy vision of DT
+The Wizard of Oz playing on the TV, at Grady and Jenns
+Fast as Fuck = high on meth
+Climbs in through the kids old room, dust on the toys, her baby taken away
+Grady and Jenn are mutilated, not shot
 
 
 Whoever finds this note, I need your help. Find me.
