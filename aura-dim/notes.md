@@ -351,6 +351,14 @@ The Wizard of Oz playing on the TV, at Grady and Jenns
 Fast as Fuck = high on meth
 Climbs in through the kids old room, dust on the toys, her baby taken away
 Grady and Jenn are mutilated, not shot
+Password is address to house, he discovers on photo of birthday party
+After the escape with notebook, through the emergency room, he hides out in a Waffle House
+Figures out he needs device prototype for v2, in the charred remains of the research center. He goes there instead of meeting up with the people to sell the notebook, gets the prototype and communes with Zoey. He finally understands the device is for communication, not mind control. She tells him about how she discovered the two way stream, using an impression of the person via media. She chose to test with the person who revolted her most, DT - describes the fantasy world of DT, then the birthday party. Find me.
+A shopping spree at Avalon, wild euphoria, spending, wrapping, floating on wrapping paper with the woman - culminating in controlling her to have sex. I hate my life.
+You're not a good person. That is true. But you don't have to be. You have no need to feel guilt anymore. It's OK. Morality is a human invention. It has outlived its usefulness for control, we have better tools. We have technology. Be who you are. Do not be ashamed.
+The mutilators. The desecrators.
+In the GE plant, am I really here? I don't know if I'm here. Well you tell me? But I don't know. Then what difference does it make.
+Don't say things like that. Like what? Like killin don't matter. Well it doesn't. Folks don't talk like this. This is a movie. I'm afraid not. This is our new world, a world of the Aura stream, properly moderated of course, properly calibrated, we don't want to hurt anyone, after all. You're full of shit. I can't understand you.
 
 
 Whoever finds this note, I need your help. Find me.
