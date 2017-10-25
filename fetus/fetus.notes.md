@@ -1,3 +1,8 @@
+The eaters of the fetus try to recreate it, mechanical, dead, mundane
+work.
+
+The story diverges at a single point, either resenting the fetus and trying to recreate the fetus by machine, or embracing the loss, descending and becoming a fetus
+
 The creatures appear transclucent though this is because his eyes can see through their flesh, like x-rays, rather 
 than because their skin had that characteristic.
 
