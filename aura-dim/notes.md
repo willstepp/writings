@@ -4,6 +4,9 @@ Sirens all the time, an emergency somewhere.
 Wendall and Misti
 Get to the fucking point already, you're wasting my time.
 
+http://www.cnn.com/2017/10/26/health/heroin-addicts-allie-johnny/index.html
+"There's always that one person that always has hope in you, and when that last person gives up on you," he says, before trailing off. 
+"I don't think that person realizes how that little bit of hope they had for you helps keep you alive."
 
 Because I am your child I believe in you. I am from you. I am you. With your eyes I gaze upon you. With your ears I listen to you. Do not abandon me in the wilderness. Do not abandon me in my days of need. Return to me. In the wilderness I will wait for you.
 
