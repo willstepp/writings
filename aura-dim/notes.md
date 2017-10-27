@@ -1,3 +1,10 @@
+This shit will fucking kill you. Nothing good can come of this. It's evil. gonna get straight, get my kids back.
+Me and Wendall is done after this time, this is it, Will.
+Sirens all the time, an emergency somewhere.
+Wendall and Misti
+Get to the fucking point already, you're wasting my time.
+
+
 Because I am your child I believe in you. I am from you. I am you. With your eyes I gaze upon you. With your ears I listen to you. Do not abandon me in the wilderness. Do not abandon me in my days of need. Return to me. In the wilderness I will wait for you.
 
 Opening of the book, a scene describing the beautiful day at Berry flying a kite in the tall grass, boy crawling in the grass like a puppy, a picnic of cheeseburgers and onion rings and fried strawberry pies. Mother is with them while flying the kite. Mister Joseph. Which way is the wind blowing? Plans to go to the 411 drive in. What are you thinking about, baby?
