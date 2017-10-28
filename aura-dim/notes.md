@@ -25,7 +25,7 @@ Questions: Who is after him?
 3000: Followed, need new truck, truck robbery attempt, following home of man (family scene makes him cry)
 3000: Control of woman, shopping for gifts, rape, she is distraught
 1500: Delivery of gifts, scene at sons window
-3000: Arranging selling of computer and device (1 million), v2 of software, Zoey is alive
+3000: Arranging selling of computer and device (1 million), v2 of software (media alone), Zoey is alive
 
 Compelling Moment at the End: Finds out Zoey is alive
 
