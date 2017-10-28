@@ -1,3 +1,47 @@
+Write word count outline of scenes
+
+== OUTLINE
+
+Part One (11000):
+Questions: Why is the computer valuable? Who is after him?
+2000: Picnic, Kite, Woods
+3000: Drug deal behind strip mall, hotel after, in debt to Rodriguez
+3000: Grady and Jenn place, shadow people in woods
+3000: Return to hotel, escape from shadow people, waffle house, computer unlocked
+
+Part Two (7000):
+Questions: What is the device? Who was Zoey? Who is after him?
+3500: Bday party wallpaper, Documents, Emails, Chats, explaining a device is important
+3500: Retrieving device from remains of explosion, more shadow people
+
+Part Three (15000):
+Questions: Who is after him?
+1500: First time using device, with instructions on computer from Zoey
+3000: Juggalo robbery, payoff Rodriguez (you are no good, you are shit)
+3000: Followed, need new truck, truck robbery attempt, following home of man
+3000: Control of woman, shopping for gifts, rape, she is distraught
+1500: Delivery of gifts, scene at sons window
+3000: Arranging selling of computer and device (1 million), v2 of software, Zoey is alive
+
+Part Four (7500)
+7500: Communion with Zoey, real purpose of device is not mind control but communication, about betrayal, events leading up to breakin, dream of DT, birthday party, help me
+
+Part Five (4500)
+4500: Using clues from photo to track her down, once there, the place is ransacked, childhood home, is attacked by 
+shadow person, they fight, loses conciousness, he awakes in a fire, shadow person mutilated (stepfather), escapes to woods
+
+Part Six (10000)
+3000: Gets text to come. Traveling at night to the abandoned GE plant.
+4000: Explanation from voice, we were always following you, choosing for you, people dont want control, woman is dead
+3000: Asks to see Zoey, you won't like what you see, tears exchanged, Return to me, vision of Zoey and son confused. In the wilderness I will wait for you.
+
+== / OUTLINE
+
+Also figure out what mystery the reader wants to know at every scene
+Also figure out what mystery the main character wants to know at every scene
+Most of the time they should overlap
+
+
 This shit will fucking kill you. Nothing good can come of this. It's evil. gonna get straight, get my kids back.
 Me and Wendall is done after this time, this is it, Will.
 Sirens all the time, an emergency somewhere.
