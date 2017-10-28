@@ -1,3 +1,5 @@
+Try not to describe surroundings outside of narrative. Avoid rote phrasing, cliches, or telegraphing your ideas.
+
 Write word count outline of scenes
 
 == OUTLINE
