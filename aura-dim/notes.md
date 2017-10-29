@@ -1,3 +1,8 @@
+Why did you do it?
+I done it for the money. And now my life is ruint. And I can't ever go out in the sunshine again.
+
+The promise of money gives him hope, a euphoria.
+
 Someone snaps a photo of him the first night in the hotel, when drunk, when the police are there.
 
 The man who hires Zoey is the project lead, you answer to him. He uses a phrase, something unique 'I reckon...' and at voice at the end uses the same phrase, this is how we know its him.
