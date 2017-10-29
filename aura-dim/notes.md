@@ -1,3 +1,5 @@
+Someone snaps a photo of him the first night in the hotel, when drunk, when the police are there.
+
 The man who hires Zoey is the project lead, you answer to him. He uses a phrase, something unique 'I reckon...' and at voice at the end uses the same phrase, this is how we know its him.
 
 Try not to describe surroundings outside of action. Avoid rote phrasing, cliches, or telegraphing ideas. Do not narrate the story like someone telling a story around a campfire. It must be immediate, immersive, present.
