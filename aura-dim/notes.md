@@ -1,4 +1,6 @@
-Try not to describe surroundings outside of narrative. Avoid rote phrasing, cliches, or telegraphing your ideas.
+The man who hires Zoey is the project lead, you answer to him. He uses a phrase, something unique 'I reckon...' and at voice at the end uses the same phrase, this is how we know its him.
+
+Try not to describe surroundings outside of action. Avoid rote phrasing, cliches, or telegraphing ideas. Do not narrate the story like someone telling a story around a campfire. It must be immediate, immersive, present.
 
 Write word count outline of scenes
 
@@ -15,24 +17,24 @@ Compelling Moment at the End: Unlocks the Computer
 
 Part Two (7000):
 Questions: What is the device? Who was Zoey? Who is after him?
-3500: Bday party wallpaper, Documents, Emails, Chats, explaining a device is important
+3500: Bday party wallpaper, Documents, Emails, Chats, explaining a device is important, only hints, suggestions, using mice as example.
 3500: Retrieving device from remains of explosion, more shadow people
 
 Compelling Moment at the End: Turns on the Device in a Waffle House
 
 Part Three (15000):
 Questions: Who is after him?
-1500: First time using device, with instructions on computer from Zoey
+1500: First time using device, with instructions on computer from Zoey, was only accessible from within software with device connected.
 3000: Juggalo robbery, payoff Rodriguez (we good? you are no good, you are shit)
 3000: Followed, need new truck, truck robbery attempt, following home of man (family scene makes him cry)
 3000: Control of woman, shopping for gifts, rape, she is distraught
 1500: Delivery of gifts, scene at sons window
-3000: Arranging selling of computer and device (1 million), v2 of software (media alone), Zoey is alive
+3000: Arranging selling of computer and device (1 million), v2 of software (media alone), Zoey is alive (??? how is this revealed)
 
 Compelling Moment at the End: Finds out Zoey is alive
 
 Part Four (7500)
-7500: Communion with Zoey, real purpose of device is not mind control but communication, about betrayal, events leading up to breakin, dream of DT, birthday party, help me
+7500: Communion with Zoey, different with two willing participants, real purpose of device is not mind control but communication, about betrayal, events leading up to breakin, dream of DT, birthday party, help me
 
 Compelling Moment at the End: The cake with Help Me
 
