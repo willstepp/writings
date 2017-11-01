@@ -1,5 +1,5 @@
 Why did you do it?
-I done it for the money. And now my life is ruint. And I can't ever go out in the sunshine again.
+I done it for the money. And now my life is ruint. And I can't ever go out in the sunlight like I used to done.
 
 The promise of money gives him hope, a euphoria.
 
@@ -17,7 +17,7 @@ Part One (11000):
 Questions: Why is the computer valuable? Who is after him?
 2000: Picnic, Kite, Woods
 3000: Drug deal behind strip mall, hotel after, in debt to Rodriguez
-3000: Grady and Jenn place, shadow people in woods
+3000: Grady and Jenn place, (unseen) shadow people in woods
 3000: Return to hotel, escape from shadow people, library, computer unlocked
 
 Compelling Moment at the End: Unlocks the Computer
