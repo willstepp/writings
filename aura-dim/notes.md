@@ -1,3 +1,22 @@
+
+What happens in this scene?
+Will, his boy Joseph, and his wife Suzanne fly a kite in the tall grass field on a nice spring day. After, they have a picnic of burgers, potato salad, pickles, with sweet tea to drink. After, they nap and daydream, Joseph goes to pee by himself, gets lost in the woods. Will runs through the woods to find him, shouting his name. He finds Joseph crying in a dark part of the woods, tangled in thorns. He extracts him and holds him. Joseph is shivering and shaking. He carries him out and they eat fried strawberry pies.
+
+What is the purpose of this scene?
+To set up the end, to show how life used to be for Will. To establish they are rural people, the setting rural, when life is good, in order to contrast later.
+
+Daddy, can I have your pickle? 
+Boy you gonna turn into a pickle one of these days.
+No I ain't.
+Go on then, eat it and see what happens.
+Suzanne, look at Joseph. Look, he's turning all green. I think he's turning into a pickle!
+
+He nestled his head on her chest.
+Baby.
+What?
+Your titties sure do make good pillows.
+Thanks honey, that's sweet of you to say.
+
 Why did you do it?
 I done it for the money. And now my life is ruint. And I can't ever go out in the sunlight like I used to done.
 
