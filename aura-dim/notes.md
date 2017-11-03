@@ -1,4 +1,15 @@
 
+02 =====================================================
+
+What happens in this scene?
+Will meets Grady and Jenn behind the Huffaker Crossing Strip mall, to sell them meth. It is sleeting outside. They are driving an old Dodge Dart. Will is waiting for them. They get into his truck with a backpack. Jenn tells Will this is their last time. Will doesn't speak much if at all. Jenn kids him about this and tells him how bad meth is. Three hundred, he tells them. Grady and Jenn awkwardly reach for the backpack. Will draws the gun and points it at them. Whoa, buddy! It's just a notebook. What? A notebook, that's all it is. We wanted to tell you...Computer? Yeah, computer, notebook you know. It's got all the wires. They want to trade for the meth.
+
+What is the purpose of this scene?
+To establish that Will is living a different kind of life as a drug dealer, that it is mid-winter, that Will is not the same Will we saw before, harder, violent. To introduce us to Grady and Jenn. To introduce the notebook.
+
+
+01 =====================================================
+
 What happens in this scene?
 Will, his boy Joseph, and his wife Suzanne fly a kite in the tall grass field on a nice spring day. After, they have a picnic of burgers, potato salad, pickles, with sweet tea to drink. After, they nap and daydream, Joseph goes to pee by himself, gets lost in the woods. Will runs through the woods to find him, shouting his name. He finds Joseph crying in a dark part of the woods, tangled in thorns. He extracts him and holds him. Joseph is shivering and shaking. He carries him out and they eat fried strawberry pies.
 
