@@ -1,5 +1,13 @@
+02b =====================================================
 
-02 =====================================================
+What happens in this scene?
+
+
+What is the purpose of this scene?
+
+
+
+02a =====================================================
 
 What happens in this scene?
 Will meets Grady and Jenn behind the Huffaker Crossing Strip mall, to sell them meth. It is sleeting outside. They are driving an old Dodge Dart. Will is waiting for them. They get into his truck with a backpack. Jenn tells Will this is their last time. Will doesn't speak much if at all. Jenn kids him about this and tells him how bad meth is. Three hundred, he tells them. Grady and Jenn awkwardly reach for the backpack. Will draws the gun and points it at them. Whoa, buddy! It's just a notebook. What? A notebook, that's all it is. We wanted to tell you...Computer? Yeah, computer, notebook you know. It's got all the wires. They want to trade for the meth.
@@ -15,6 +23,9 @@ Will, his boy Joseph, and his wife Suzanne fly a kite in the tall grass field on
 
 What is the purpose of this scene?
 To set up the end, to show how life used to be for Will. To establish they are rural people, the setting rural, when life is good, in order to contrast later.
+
+
+
 
 Daddy, can I have your pickle? 
 Boy you gonna turn into a pickle one of these days.
