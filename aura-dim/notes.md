@@ -2,12 +2,14 @@
 
 What happens in this scene?
 
+Will enters the mobile home through a child's bedroom. There is suspense as he walks through the hallway. Calls out for Grady and Jenn? The house is a disaster area, trash, clothes piled up, ashtray full, boxes of fast food, pizza boxes, a rank smell, not old garbage. In the bedroom he finds a bloodbath, splatters of blood on the walls, closet, nightstand and the bed a pool of limbs, viscera. Mutilated. He backs away in horror, falls down and sits on the sofa, breathing heavily. Then jumps when he gets a text. He takes a deep breath in while he turns over the phone, from Grady. "We need the notebook back. Stay there." He looks out the window and sees a car coming up the drive, dashes off through the woods, sloshes through the leaves. Hears shouting, hears the back door open of the trailer. Gets in his truck and leaves, driving through the drainage ditch.
 
 What is the purpose of this scene?
 
+To escalate the value of the computer, to show that its own by some malevolent force, to introduce an element of horror, to introduce the shadow people who in this scene are heard but not seen. To establish they have Grady's cell phone.
 
 
-02a =====================================================
+01a =====================================================
 
 What happens in this scene?
 Will meets Grady and Jenn behind the Huffaker Crossing Strip mall, to sell them meth. It is sleeting outside. They are driving an old Dodge Dart. Will is waiting for them. They get into his truck with a backpack. Jenn tells Will this is their last time. Will doesn't speak much if at all. Jenn kids him about this and tells him how bad meth is. Three hundred, he tells them. Grady and Jenn awkwardly reach for the backpack. Will draws the gun and points it at them. Whoa, buddy! It's just a notebook. What? A notebook, that's all it is. We wanted to tell you...Computer? Yeah, computer, notebook you know. It's got all the wires. They want to trade for the meth.
