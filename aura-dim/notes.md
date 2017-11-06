@@ -1,3 +1,10 @@
+03 =====================================================
+
+What happens in this scene?
+
+What is the purpose of this scene?
+
+
 02b =====================================================
 
 What happens in this scene?
