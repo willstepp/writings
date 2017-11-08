@@ -1,7 +1,15 @@
 But what about the body? The police said they identified Zoey Jackson.
 You know what we want you to know, haven't you figured that out by now?
 
-03 =====================================================
+03b =====================================================
+
+What happens in this scene?
+Will runs into a 24 hour clinic and lab facility, ends up in the xray room, surrounded by nurses, saying no one is here, sir. We can't give you any drugs, sir. Give me the fucking pen, you bitch! Takes it from the nurse, who is afraid he'll commit suicide. He writes down the number in the phone, takes a large machine and crushes it. He runs off and takes a route through the woods and down under the path along the river back to the library. Inside the library he walks upstairs to a small bathroom near the back. He hides in a stall, on top of the toilet, until closing time, only an hour. Someone opens the door and says, 'Anybody in here? We're closing for the day.' Once alone in the empty library he finds a computer and researches how to bypass a login on an Apple computer. He fights with it, not understanding the technical details, then at last he gets in.
+
+What is the purpose of this scene?
+To ratchet up the tension, paranoia, and erractic behavior of Will. To strip away his possessions. To show his ingenuity. To create a compelling end note for the section leading to the emails, chats...etc.
+
+03a =====================================================
 
 What happens in this scene?
 Will, concerned they may have seen his truck, parks at the library across the river, down the street, and hoofs it back to the weekly-rate hotel where he discovers his room has been ransacked. Upon discovering this, he immediately locks the door and sees two old box-style sedans in the parking lot, with dark figures inside. He finds all his documents strewn, the restraining order from Suzanne. At this time he receives another text asking where is the notebook? i don't have it. please stay put, the message says. by now the sun is going down. he phones in a fire in room 216 nextdoor and awaits the fire engine, ambulance, and several police cars to arrive. then he makes his escape to the bin, he hears them outside, throws a garbage bag onto the ground in the opposite direction, sees the dark figures pounce and leaps out the other side, dashes up the hill, and runs into a 24 hour clinic and lab facility, ends up in the xray room, surrounded by nurses, saying no one is here, sir. We can't give you any drugs, sir. Give me a fucking pen!!! Takes it from the nurse, who is afraid he'll commit suicide. He writes down the number in the phone, takes a large machine and crushes it. He runs off and takes a route through the woods and down under the path along the river back to the library.
