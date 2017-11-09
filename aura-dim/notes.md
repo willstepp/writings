@@ -1,6 +1,13 @@
 But what about the body? The police said they identified Zoey Jackson.
 You know what we want you to know, haven't you figured that out by now?
 
+04a =====================================================
+
+What happens in this scene?
+
+What is the purpose of this scene?
+To introduce readers to Zoey, establish her character. To introduce mystery of the device, that it was based on a technology that Zoey developed in secret, while working for this research department. That there was a confrontation and intimidation by men in suits.
+
 03b =====================================================
 
 What happens in this scene?
