@@ -1,6 +1,16 @@
 But what about the body? The police said they identified Zoey Jackson.
 You know what we want you to know, haven't you figured that out by now?
 
+05a ======================================================
+
+What happens in this scene?
+
+Will goes to the research facility to look for the device. He finds it in a drawer but doesn't realize it until he puts the clue together when seeing the photo of the group in the lobby. Zoey is wearing the pink kitty hat, looks bored, and remembers 'I hid it where them boys will never find it.'
+
+What is the purpose of this scene?
+
+For Will to get ahold of the device
+
 04a =====================================================
 
 What happens in this scene?
@@ -95,7 +105,7 @@ Compelling Moment at the End: Unlocks the Computer
 Part Two (7000):
 Questions: What is the device? Who was Zoey? Who is after him?
 3500: Bday party wallpaper, Documents, Emails, Chats, explaining a device is important, only hints, suggestions, using mice as example.
-3500: Retrieving device from remains of explosion, more shadow people
+3500: Sleeps in library, is awoken by library poking him with a stick. Retrieving device from remains of explosion, more shadow people (is shot at), escapes to Waffle House where he turns on the device.
 
 Compelling Moment at the End: Turns on the Device in a Waffle House
 
