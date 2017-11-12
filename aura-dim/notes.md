@@ -1,4 +1,7 @@
 Bound prostitute has ties to Amara from Trinidad
+He finds another car, boxy old model, with keys under the seat
+Woman in coffee shop asks if he'd like anything. He says 'Coffee', just before the men enter
+At the Waffle House the waitress brings him a coffee withot asking, he also gets a pecan waffle and side of bacon
 
 05 ======================================================
 
