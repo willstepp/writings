@@ -1,15 +1,14 @@
-But what about the body? The police said they identified Zoey Jackson.
-You know what we want you to know, haven't you figured that out by now?
+Bound prostitute has ties to Amara from Trinidad
 
-05a ======================================================
+05 ======================================================
 
 What happens in this scene?
 
-Will goes to the research facility to look for the device. He finds it in a drawer but doesn't realize it until he puts the clue together when seeing the photo of the group in the lobby. Zoey is wearing the pink kitty hat, looks bored, and remembers 'I hid it where them boys will never find it.'
+After a short nap, Will drives to the research facility to look for the device, before dawn. He finds it in a drawer but doesn't realize it until he puts the clue together when seeing the photo of the group in the lobby. Zoey is wearing the pink kitty hat, looks bored, and remembers 'I hid it where them boys will never find it.' When he leaves he is chased by a car, is shot at. He crashes the pickup into a pole coming into town. He runs on the side streets, ducks in a coffee shop, 'Sir, can I get you a coffee?' But they enter and and pull gun, everyone dives to the ground, he runs out to a back alley and hides in a parking garage. When he's sure they're gone he jogs to a waffle house and sits down to collect his thoughts, has a cup of coffee, pecan waffle, and a side of bacon. He finally feels safe enough and gets out the laptop and hooks in the device.
 
 What is the purpose of this scene?
 
-For Will to get ahold of the device
+For Will to get ahold of the device, to take away his vehicle, to ratchet up the tension, danger, to create a compelling lead-in for the next scene.
 
 04a =====================================================
 
@@ -65,6 +64,8 @@ To set up the end, to show how life used to be for Will. To establish they are r
 
 
 
+But what about the body? The police said they identified Zoey Jackson.
+You know what we want you to know, haven't you figured that out by now?
 
 Daddy, can I have your pickle? 
 Boy you gonna turn into a pickle one of these days.
