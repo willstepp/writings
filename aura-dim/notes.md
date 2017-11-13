@@ -1,7 +1,24 @@
-Bound prostitute has ties to Amara from Trinidad
-He finds another car, boxy old model, with keys under the seat
-Woman in coffee shop asks if he'd like anything. He says 'Coffee', just before the men enter
-At the Waffle House the waitress brings him a coffee withot asking, he also gets a pecan waffle and side of bacon
+Makes a deal with the juggalo to not tell if he pays him, after being caught.
+What if I just gut you right now?
+Then you'll have to dispose of my body. Not easy. More chance to get caught. I'm not greedy, just 
+give me half, I walk away for good. I know if you see me again, you'll kill me.
+You not gonna say nothin?
+Ain't my business. 
+Not gonna go to the cops?
+I just need money.
+Hard to make a livin these days.
+You tellin me?
+
+06 ======================================================
+
+What happens in this scene?
+
+Will dons the device and is immediately immersed in a strange environment. He feels as if he has been transported to the bottom of a deep ocean. The light is very dim, sounds like underwater, resonant, as if from far away, his vision dim, things coming into and out of focus. Some dark shape approaching him, slowly. He cannot stop staring. Then his eyes slowly become accustomed and he realizes he is still in the Waffle House, the shape he sees is the waitress coming towards him with a pot of coffee. He watches her walk for minutes, approaching, moving almost imperceptibly towards him. But he cannot look away. After awhile the hazy scene fades, things are not the same exactly. The people he sees are more transparent, not bodily. But they are even more dimensional in a way he could see straight into. Looks at them, one scary individual at the bar is counting his money in his mind, as he eats a double cheeseburger and hashbrowns.
+
+What is the purpose of this scene?
+
+To introduce the device, deepen the mystery, answer a bit of what is going on.
+
 
 05 ======================================================
 
@@ -66,6 +83,12 @@ What is the purpose of this scene?
 To set up the end, to show how life used to be for Will. To establish they are rural people, the setting rural, when life is good, in order to contrast later.
 
 
+
+
+Bound prostitute has ties to Amara from Trinidad
+He finds another car, boxy old model, with keys under the seat
+Woman in coffee shop asks if he'd like anything. He says 'Coffee', just before the men enter
+At the Waffle House the waitress brings him a coffee withot asking, he also gets a pecan waffle and side of bacon
 
 But what about the body? The police said they identified Zoey Jackson.
 You know what we want you to know, haven't you figured that out by now?
