@@ -1,13 +1,8 @@
-Makes a deal with the juggalo to not tell if he pays him, after being caught.
-What if I just gut you right now?
-Then you'll have to dispose of my body. Not easy. More chance to get caught. I'm not greedy, just 
-give me half, I walk away for good. I know if you see me again, you'll kill me.
-You not gonna say nothin?
-Ain't my business. 
-Not gonna go to the cops?
-I just need money.
-Hard to make a livin these days.
-You tellin me?
+07 ======================================================
+
+What happens in this scene?
+
+What is the purpose of this scene?
 
 06 ======================================================
 
@@ -85,6 +80,25 @@ To set up the end, to show how life used to be for Will. To establish they are r
 
 
 
+Makes a deal with the juggalo to not tell if he pays him, after being caught.
+What if I just gut you right now?
+Then you'll have to dispose of my body. Not easy. More chance to get caught. I'm not greedy, just 
+give me half, I walk away for good. I know if you see me again, you'll kill me.
+You not gonna say nothin?
+Ain't my business. 
+Not gonna go to the cops?
+I just need money.
+Hard to make a livin these days.
+You tellin me?
+
+Atlantis, not Avalon
+
+
+When he gets out with 5K, he figures he needs a car to make the drive to Kennesaw to pay off Rodriguez.
+That leads him to the truck in the big truck garage parking lot. He figures out how to use the device while the laptop is in 
+his backpack, but the computer will only last five hours or so. He uses it and learns the location of the keys...gets caught, beat up, 
+finds another car with keys in it but returns to the garage to mess with the man (somehow he needs to discover he has control). Forklift drops a load onto the truck bed, denting it badly. Follows the man home. He sees Suzanne and Joseph welcome him. Suzanne is pregnant. He drives off.
+  
 Bound prostitute has ties to Amara from Trinidad
 He finds another car, boxy old model, with keys under the seat
 Woman in coffee shop asks if he'd like anything. He says 'Coffee', just before the men enter
