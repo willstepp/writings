@@ -2,6 +2,8 @@
 
 What happens in this scene?
 
+Rewrite this chapter to remove Jody's friend. Will work better.
+
 What is the purpose of this scene?
 
 06 ======================================================
