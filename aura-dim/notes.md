@@ -1,10 +1,14 @@
+He wanted to give him everything. Give him the world if he could. To give and give and keep on giving to him alone. To his boy.
+
 07 ======================================================
 
 What happens in this scene?
 
-Rewrite this chapter to remove Jody's friend. Will work better.
+Will needs a car so he is walking around, looking for one. He sees a bright red Tacoma in a mechanic shop's parking lot, along with several other cars. He sees the workers in the shop, the large doors are open. He finds a spot to hide in the bushes across the street and gets out the device, while still on his back. He looks at each of them, trying to learn about the cars and where the keys are. One guy has a brand new 4x4 Toyota Tacoma, metallic red. He keeps a spare key in a holder under the rear wheel well. This is good enough for him. His idea is to take the truck, drive it to Kennesaw with the 10K, pay off Rodriguez with the car and the money. Rodriguez deals with hot cars all the time. When he walks over there, he is discovered and runs, a man catches him and beats the shit out of him for messing with his truck. I'll be keeping an eye out. Fuck with my truck again and I'll call the cops. He walks off, wanders through a Storage parking lot. Towards the back he finds a Chevrolet Citation parked there. It looks like its been sitting there for a long time. He walks over, the door is open. Under the floorboard mat he finds the key. Drives off but feels compelled to park in a nearby gas station, side spot, where he has a clear view of the garage and parking lot. He gets out the machine
 
 What is the purpose of this scene?
+
+To introduced nemesis, though unknown. To get him in a car, a boxy model from the 80s. To establish he can control people with the device.
 
 06 ======================================================
 
@@ -155,9 +159,9 @@ Compelling Moment at the End: Turns on the Device in a Waffle House
 Part Three (15000):
 Questions: Who is after him?
 1500: First time using device, with instructions on computer from Zoey, was only accessible from within software with device connected.
-3000: Juggalo robbery, payoff Rodriguez (we good? you are no good, you are shit)
-3000: Followed, need new truck, truck robbery attempt, following home of man (family scene makes him cry)
-3000: Control of woman, shopping for gifts, rape, she is distraught
+1500: Juggalo robbery, payoff Rodriguez (we good? you are no good, you are shit)
+3500: need new truck, truck robbery attempt, following home of man (family scene makes him cry)
+4000: Control of woman, shopping for gifts, rape, she is distraught
 1500: Delivery of gifts, scene at sons window
 3000: Arranging selling of computer and device (1 million), v2 of software (media alone), Zoey is alive (??? how is this revealed)
 
