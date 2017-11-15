@@ -13,8 +13,20 @@ z.jackson: for sale, make offer $$$
 duckdodgers2450: WHO R U?
 duckdodgers2450: prove u have it
 z.jackson: pink hat with cat ears
-duckdodgers2450: U R in danger. do not sell!!!
+duckdodgers2450: u r in danger. do not sell
 duckdodgers2450: check email pls
+duckdodgers2450: did u get it
+z.jackson: yes
+duckdodgers2450: run aura2 with device attached then focus on the desktop wallpaper
+duckdodgers2450: still an old pic, birthday party, little black girl?
+z.jackson: yes
+duckdodgers2450: run it pls, follow instructions
+
+It was her. She was alive.
+
+Tells story of her developing technology, friction with Richard Dewey, ostracized by teammates. Not a weapon, a tool for empathy and ultimately communication. V1 requires subject in range but V2 works with media of subject. Test on Donald Trump, most despicable person she can imagine. His dream. Interest by government, military. Fallout with Richard Dewey. A vision of the future, of what's possible, back to the party, inside the photograph, walks among the party-goers. On the cake, a message from Zoey, "Help Me" and then he looks away and back again and it reads "Find Me".
+
+Then uses already open map program, and sees the road sign in the back of the photo, locates it.
 
 07 ======================================================
 
