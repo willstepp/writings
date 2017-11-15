@@ -1,4 +1,20 @@
-He wanted to give him everything. Give him the world if he could. To give and give and keep on giving to him alone. To his boy.
+He wanted to give him everything. Give him the world if he could. To give and give and keep on giving.
+
+He texts Grady's cell with offer to sell computer for a million. when they learn he has device he'll make 
+another offer. Where? He gets on computer and opens map program.
+
+duckdodgers2450@protonmail.com wants to be your friend. Do you accept?
+
+duckdodgers2450: who r u?
+duckdodgers2450: do u have the device?
+z.jackson: yes
+duckdodgers2450: who r u?
+z.jackson: for sale, make offer $$$
+duckdodgers2450: WHO R U?
+duckdodgers2450: prove u have it
+z.jackson: pink hat with cat ears
+duckdodgers2450: U R in danger. do not sell!!!
+duckdodgers2450: check email pls
 
 07 ======================================================
 
