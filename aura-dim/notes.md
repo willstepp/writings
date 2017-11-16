@@ -29,7 +29,17 @@ Tells story of her developing technology, friction with Richard Dewey, ostracize
 
 Then uses already open map program, and sees the road sign in the back of the photo, locates it.
 
-07 ======================================================
+07b ======================================================
+
+What happens in this scene?
+
+He gets out the machine and tortures the workers, both funny ways and not. He ruins the guys truck bed by having a guy pull out in a truck and smash into it. Follows the man home after, tries to run him off the road. At the house he watches him go in, shaken, calls police. Sees family greet him. It's Suzanne and Joseph.
+
+What is the purpose of this scene?
+
+To establish he can control people with the device. To establish the man's real identity and his connection to Will.
+
+07a ======================================================
 
 What happens in this scene?
 
