@@ -29,6 +29,16 @@ Tells story of her developing technology, friction with Richard Dewey, ostracize
 
 Then uses already open map program, and sees the road sign in the back of the photo, locates it.
 
+08a ======================================================
+
+What happens in this scene?
+
+Will wakes in his car in the parking lot to Avalon, an upscale shopping center the next town over. He finds an outside cafe where he can charge the computer, watching people go by, sees a woman who he can't take his eyes off of.
+
+What is the purpose of this scene?
+
+To establish the change of scene, set up that he is getting the computer ready. Introduce woman (do not compare her to Suzanne)
+
 07b ======================================================
 
 What happens in this scene?
@@ -199,7 +209,7 @@ Part Three (15000):
 Questions: Who is after him?
 1500: First time using device, with instructions on computer from Zoey, was only accessible from within software with device connected.
 1500: Juggalo robbery, payoff Rodriguez (we good? you are no good, you are shit)
-3500: need new truck, truck robbery attempt, following home of man (family scene makes him cry)
+4000: need new truck, truck robbery attempt, following home of man (family scene makes him cry)
 4000: Control of woman, shopping for gifts, rape, she is distraught
 1500: Delivery of gifts, scene at sons window
 3000: Arranging selling of computer and device (1 million), v2 of software (media alone), Zoey is alive (??? how is this revealed)
