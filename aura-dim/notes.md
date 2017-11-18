@@ -1,3 +1,9 @@
+Do you mind if we take this?
+Sure, that's fine. Go ahead.
+
+Does meth. They stand in line, hands over possessions. I'm an addict and I need a fix, gets a grain, eats it all. She starts running, kicking children, breathes shallowly. He calms her. He takes her to customer service, to ask for help. I'm afraid she might overdose on the meth she took. A giant with a head like two flaps of skin and a hollow inside walks up to her. She falls on the floor asleep and the man wraps the flaps around her head and begins extracting the meth.
+
+
 He wanted to give him everything. Give him the world if he could. To give and give and keep on giving.
 
 He texts Grady's cell with offer to sell computer for a million. when they learn he has device he'll make 
