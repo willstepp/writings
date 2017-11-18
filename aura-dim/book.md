@@ -594,7 +594,7 @@ Please connect device
 
   Then he slept. Two hours later the alarm he set went off and he packed the computer into its bag and walked outside through the emergency exit in the back. An alarm buzzed loudly inside the building, his heart jumped and he quickened his pace. It was cold and his breath visible in front of him. The tips of his ears stung by the time he reached the parking lot. He got in and let the truck run idle for a few minutes before driving off. Only after he turned onto Broad Street did he switch on the headlights. By now it was 5 am.
   He drove Highway 27 out of the city. There was no other traffic on the road but soon a semi came over the hill and blinded him with its high beams. He turned on his own high beams and flipped the driver off with a snarl.
-  "Fuck you too buddy."
+  "Fuck you too buddy!"
   He turned left at the Coca Cola Bottling Plant and passed a sign that read Riverside Industrial Park. Lucky for him several of the pole lights were busted. He switched off his headlights and drove in the dark, able to see dimly by the pale moon over the trees. He passed the Old Fashioned Bakery Distribution center and saw a line of white trucks, drivers sleeping in the seats. Nobody around to see him. Nobody who cared anyway.
   It was obvious he had reached the research facility when he saw the bands of yellow tape across the entranceway and all around the perimeter. He drove past and nearby found a small culdesac almost completely obscured by the woods. He pulled in and parked. He fished out a flashlight and put on the backpack with the computer and set off through the woods towards the facility.
   He brushed aside limbs only to have them lash back into his head and torso. He gazed up and saw the sky had become gray with morning and he knew he didn't have as much time as he would have liked. He figured the earliest any investigators would arrive would be after 9 but wanted to be long gone by then. With luck he would be.
@@ -760,7 +760,7 @@ His skin pale, clammy, his stomach weak, several times he had to stop and place 
   
 8
 
-  He awoke with a jolt the next morning and before he even realized where he was he gripped the steering wheel with both hands, as if to avoid an immanent traffic accident. But the car was parked. The sound that had woken him was only a nearby Mexican worker with a leaf blower, creating a wind storm for all the rogue leaves in the same parking lot where the Citation was sitting. He wiped his eyes and looked all around. He did not remember driving here. He didn't even know where here was.
+  Before he realized where he was he gripped the steering wheel with both hands as if to avoid an immanent traffic accident. But the car was parked. The roaring sound that had woken him was only a nearby Mexican worker with a leaf blower, creating a wind storm for all the rogue leaves in the same parking lot where the Citation was sitting. He wiped his eyes and looked all around. He did not remember driving here. He didn't even know where here was.
   The laptop was open in the passenger seat. He pushed some keys on the keyboard but it seemed it had run out of battery. The device sat in the floorboard, crumpled. The parking lot was mostly empty, a few cars here and there. Nice ones. A Lexus, a late-model Range Rover in burgundy, a silver BMW.
   His mouth was very dry and he had a crick in his neck from sleeping in the drivers seat all night. He got out of the car and stretched. The morning air was crisp and cold, the sky clear, a bright sun just over a huge, white office complex across the street. He waved his hands at the Mexican with the leaf blower. After several seconds of no acknowledgement he walked up and waved his hands directly in front of his face. The Mexican looked up, wearing safety glasses, and pulled one of the neon green earplugs out of his ear. He then switched off the blower and all of a sudden the man could hear again.
   "Where are we?"
@@ -786,6 +786,83 @@ His skin pale, clammy, his stomach weak, several times he had to stop and place 
   "You get two flavors and one extra for a dollar."
   "Just double the strawberry."
   "Okay, sir. That'll be $5.99."
-  While he waited he looked for a free outlet but didn't see any inside. Out the window he saw an extension cord connected to a power strip, with a single fan hooked to it. He figured he could use one of those outlets. A few minutes later the woman handed him the smoothie and he went outside and sat around one of the tables with the umbrella in the middle, close enough that the power cord would reach to the extension cord. He took a sip of the smoothie but found it way too sweet. So he went back inside and ordered a water, just something to quench his dry mouth. Then he sat outside and let the computer charge, all while trying to remember what had brought him here the night before.
+  While he waited he looked for an outlet but didn't see one inside. Out the window he saw an extension cord connected to a power strip, with a single fan hooked to it. He figured he could use one of those outlets. A few minutes later the woman handed him the smoothie and he went outside and sat around one of the tables with the umbrella in the middle, close enough that the power cord would reach to the extension cord. He took a sip of the smoothie but found it way too sweet. So he went back inside and ordered a water, just something to quench his dry mouth. Then he sat outside and let the computer charge, all while trying to remember what had brought him here the night before.
   And then he did remember. After leaving the house where he saw Suzanne and Joseph, and that guy James he had the radio on, and heard about a sale at Avalon for one of those video game systems that Joseph had been wanting. So he got on the road and drove here, not thinking the place would be closed. So he pulled into the parking lot and must have fallen asleep. There was a lot going on and he had the feeling that using the device might of had something to do with it too.
-  A couple hours later it was warmer and the shopping center was picking up a crowd. The sidewalks were dotted with packs of families, groups of women, carrying bags, dressed to the nines in fancy clothes they probably bought here. He felt out of place but didn't feel like getting up at the moment. The computer was nearly charged. And then, coming down the sidewalk, he saw a woman by herself. He sat up and watched her. There was something about the way her auburn hair blew in the wind and the way her thin figure filled out the peacoat she wore in just the right places, with just the right curves. Her delicate neck was exposed whenever the wind blew her hair the right way and her gloved hands he could tell were just as delicate.
+  A couple hours later it was warmer and the shopping center was picking up a crowd. The sidewalks were dotted with packs of families, groups of women, carrying bags, dressed to the nines in fancy clothes they probably bought here. He felt out of place but didn't feel like getting up at the moment. The computer was nearly charged. And then coming down the sidewalk he saw a woman by herself. He sat up and watched her approaching. There was something about the way her auburn hair blew in the wind and the way her thin figure filled out the peacoat she wore in just the right places, with just the right curves. Her delicate neck was exposed whenever the wind blew her hair the right way and her gloved hands he could tell were just as delicate.
+  After pulling the device from the backpack he connected it to the fully charged computer and started up the program. This time using it there was barely any of the bottom of the ocean disorientation before things returned to normal and he focused on the woman on the sidewalk. He saw she was focused on having her phone repaired at the Apple store and buying a new gingham shirt for her husband at the J.Crew store. Then a late lunch at Farm to Ladle, maybe half an avocado caprese sandwich with a cup of their wonderful turkey chili. He looked closer and saw she that she resented her husband spending all his time away from their kids, working on the weekends, hanging out with business colleagues after hours to _network_. Closer still and he saw she sometimes wondered if she still loved him, if she would not have been happier with another man from her past, one who had stirred her heart and made her feel like everyday a new adventure. But he was a good provider, Robert, and they had built a wonderful life together. He bought her the Lexus she had her eyes on, the RX, and it was beautiful. She loved to drive it. And her children were getting a great education since they were able to afford a home in Glen Abbey and the schools in this area were the best in all of Georgia. There was a lot to be thankful for and she was thankful.
+  "Excuse me, ma'am?"
+  She looked startled, as if she had been awoken from a deep slumber, then turned to him, eyes flashing.
+  "Oh, sorry, you scared me."
+  "Oh I apologize. See I'm going to be doing a little shopping around here today and I was wondering if you might want to join me for a little while?"
+  Her eyes dropped, in thought. Her lips pursed and she smiled warmly. Her left hand reached up and brushed the hair behind her ear.
+  "Well I'm not sure, I was in a bit of a rush to run some errands and then head back to work. I have a meeting in a couple hours. I'd like to though."
+  "It sure would be fun. I think it'd be more fun than going back to some boring old job."
+  "Maybe. I mean yeah my job can be pretty boring. What did you say your name was?"
+  "Well I didn't say. Do you want to know it?"
+  She laughed.
+  "Yes!"
+  "Yours first."
+  "Elizabeth."
+  "Oh, Elizabeth. That was my mama's name."
+  "No way! Was it really?"
+  "No, her name was Donna, actually."
+  She laughed again.
+  "You are funny!"
+  "No, I'm Will. Nice to meet you."
+  He reached out his hand and she took it, softly shaking it.
+  "Will. I like that name."
+  "Do you?"
+  "I do. Its very masculine."
+  She bit her lip and smiled.
+  "I guess I could come with you for awhile. Where do you want to go?"
+  "There's a store around here that's supposed to have a deal on the Nintendo Switch, some video game thing. Gonna pick up one of those for my boy."
+  "Oh my sons got a Switch for Christmas. They absolutely love it! Was the store GameStop by any chance? There is one a couple blocks over there. We could try?"
+  "I think it was GameStop, yeah."
+  Elizabeth took him by the hand and led him across the street to a cross-section where there was a large kiosk with a diagram of the entire place. She found the GameStop and their location in Avalon. They walked that way, admiring how blue the sky was today and how warm the sun was on their faces. In the store they found the Nintendo Switch on sale. He got one and a couple of games to go with it. When they got to the register Elizabeth reached into her purse and brought out a credit card.
+  "Let me get this for you."
+  "I have money. I can buy it."
+  "No but I want to. It's no problem."
+  He smiled and nodded.
+  She paid for the console and games and after they carried the bag to his car and placed it in the trunk.
+  "Will, I just thought about something."
+	"What is that?"
+	"Does Joseph have a television to play the video games on?"
+	"I don't really know. I honestly have no idea."
+	"Don't you think maybe we should get a television for him just in case? It wouldn't make sense to have the video game console without a television to play it on."
+	He thought about it. Nodded.
+	"That does make sense. Do you know any stores around here that sell televisions?"
+	She looked around her. Then pointed past the parking deck.
+	"Over there is an home appliance store. They sell electronics, home decor, anything like that."
+	"You sure are a kind and thoughtful woman," he said, "I think I like you."
+	She seemed embarrassed and took his hand again.
+	"I think I like you too."
+	They walked to the store, a large warehouse building on the other side of Avalon. Shoppers zipped around them, on foot, in cars, a security guard went past on a Segway, the red light on the handle flashing. They crossed a large intersection and walked into the main entrance. Elizabeth took a shopping cart from the line of them in the lobby and they entered.
+	Inside it was very bright. There were electronics everywhere, of every kind. Smartphones, digital DSLR cameras, computers, laptops, tablets, video games, washer and dryers, refrigerators, car audio stereos and speakers, and at the back there were rows and rows of high definition television sets, all playing the same movie, of a man and his son flying a kite in a field. The workers in blue shirts approached them but Elizabeth waved them away. In here, just like in the juice bar, he felt unclean. The place was so sanitary and perfect and he was not. He felt as if he didn't belong here. At that moment he felt Elizabeth squeeze his hand as if to say, _you are perfect just as you are and you do belong here, next to me_.
+	They looked at the televisions. He found a nice 42-inch one with vibrant colors that was not too expensive. He wanted to be modest, didn't want to make a big showing of it and get a 60-incher, though he could afford it. Besides 42-inches should be all Joseph needs in his room. He voiced his concerns to Elizabeth and she agreed. Better to be modest. They grabbed the ticket and started to head for the register but it occurred to him that Joseph might not have a place to set the television. He hadn't even considered that before.
+	"It's no problem," Elizabeth assured him, "They have entertainment centers here. It's a small selection but I bet we can find something that Joseph will like."
+	There were five entertainment centers that he liked. The best one was one with a wooden frame and a black glass top, sitting only a few feet high, but with plenty of shelving space for a game system, games, and anything else he might get later. That was important to consider, not just what's good for today but what's good for a year from now, two years from now. Elizabeth agreed with him on this point too. They grabbed a ticket for the one he liked and made their way to the register.
+	The man who checked them out asked if they wanted to insure the items for up to two years, for only a little more money. He thought that was a good idea but looked to Elizabeth to make sure she agreed, since she was the one making the purchase, and she did agree, so they added it. They told him to drive around the side so they could load up the television and entertainment center into his car.
+	"We walked here from the other side of Avalon. Can one of your guys go get the car while we wait here? It's a long way to walk."
+	"Of course, sir. That's no problem. I'll just need your keys."
+	He handed them over and described where the car was and what it looked like. The man handed the keys off to some kid from the back room wearing the same blue shirt, and he took off, running through the parking lot as fast as he could, arms and legs pumping. Meanwhile he and Elizabeth walked outside. Elizabeth saw a small stand of neon lighted keychains.
+	"Oh, these are wonderful. Don't you think so, Will?"
+	"They are. I'd like to have one of those on my keychain."
+	He turned back to the man at the register, had to wave to get his attention.
+	"Sir, would it be okay if we take these?"
+	The man nodded.
+	"Sure, that's no problem."
+	He picked up the stand and found that it wasn't as heavy as it looked. The keychains jangled around but none of them fell off. They took the stand and sat on the curb for a few minutes, waiting for the driver. He soon pulled up and two other men, wearing back braces, pushed over the television and entertainment center, on carts, and lifted them into the trunk. When they were done they thanked them and got in.
+	He drove around to the place in the parking lot where her car was. The parking lot was full and there were people everywhere, much different from the morning. They got out and he helped her put the stand of keychains in the back of the Lexus. The car smelled new inside. Then he shut the hatch and walked over to Elizabeth. They hugged. She squeezed him tightly. He squeezed back.
+	"I don't want to say goodbye."
+	"Me neither."
+	"This feels too good."
+	"I know."
+	They pulled away and stared at one another. There was a youthful glow in her face and eyes, her lips full. His heart was filled with a longing to be with her, to take care of her, and devote his life to her alone. The feeling was a mixture of sexual longing and spiritual fulfillment and left him feeling euphoric. And somehow he knew she was feeling the same thing.
+	"Spend some time with me. Let's go for an early dinner."
+	"Okay," she replied, softly, eagerly.
+	"Can I ask you a question?"
+	"Sure."
+	"May I call you Suzanne?"
+	She looked him in the eyes and exhaled, as if she had been waiting for that question for ages.
+	"I'd like that."
+	It was late in the afternoon and long shadows fell over the buildings and the sidewalks where they walked through Avalon to the center courtyard. Here there were several upscale restaurants, open but not busy yet, setting up tables and preparing for the evening. A fountain in the center of the courtyard erupted from time to time in a series of vertical jets. As they walked around the fountain he thought it would be fun to try to walk on those jets as they erupted. He climbed up on the stone guardrail and waited for the right moment and then when the first jet shot up he hopped onto it with one foot and it pushed him about ten feet into the air. When that jet reached its crest, he hopped onto the next one, which was just a bit higher, and then the next one, until he was on the center one just as it was coming down. But he didn't want to get wet in the pool so he reached out and grabbed the guardrail and heaved himself over the side, back onto the walkway. Then he rejoined Suzanne and they continued to the restaurant.
