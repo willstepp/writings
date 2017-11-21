@@ -35,6 +35,16 @@ Tells story of her developing technology, friction with Richard Dewey, ostracize
 
 Then uses already open map program, and sees the road sign in the back of the photo, locates it.
 
+09 ======================================================
+
+What happens in this scene?
+
+Will gives the gifts to Joseph, setting them on the porch in the evening, just before bed.
+
+What is the purpose of this scene?
+
+To connect with the last scene, show him giving what he is able to give, seeing his son and having a moment of connection
+
 08a ======================================================
 
 What happens in this scene?
