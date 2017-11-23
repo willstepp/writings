@@ -1,3 +1,7 @@
+You talk about your work and you can tell nobody gives a damn. But as soon as you mention money, watch their eyes light up. Then you see what truly stirs their souls.
+
+I feel. Alone. Not understood. Abandoned. Angry. Stupid. Wasteful.
+
 Do you mind if we take this?
 Sure, that's fine. Go ahead.
 
@@ -34,6 +38,17 @@ It really was her. She was alive.
 Tells story of her developing technology, friction with Richard Dewey, ostracized by teammates. Not a weapon, a tool for empathy and ultimately communication. V1 requires subject in range but V2 works with media of subject. Test on Donald Trump, most despicable person she can imagine. His dream. Interest by government, military. Fallout with Richard Dewey. A vision of the future, of what's possible, back to the party, inside the photograph, walks among the party-goers. On the cake, a message from Zoey, "Help Me".
 
 Then uses already open map program, and sees the road sign in the back of the photo, locates it.
+
+11a ======================================================
+
+What happens in this scene?
+
+Will communes with Zoey. He describes what the experience is like. And then he explores her memories of the discovery of the aura stream.
+
+What is the purpose of this scene?
+
+To show how a two-way communication stream works. To deepen the story of Zoey.
+
 
 10 ======================================================
 
@@ -244,6 +259,12 @@ Compelling Moment at the End: Finds out Zoey is alive
 
 Part Four (9500)
 9500: Communion with Zoey, different with two willing participants, real purpose of device is not mind control but communication, about betrayal, events leading up to breakin, dream of DT, birthday party, help me
+
+Project Aura (purpose of communication)
+Future of Mankind
+Obese Serpent (trial to see if empathy possible)
+Betrayal
+Birthday Party Help Me
 
 Compelling Moment at the End: The cake with Help Me
 
