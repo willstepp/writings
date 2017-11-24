@@ -1,6 +1,21 @@
+
+1000
+Start with how it’s different, not direct communication, free access to her being and she had free access to his, she saw the things he had done but he did not feel judged, she is able to guide his focus.
+
+4000
+She shows him the story of how she discovered the technology, and how she tested it and the breakthrough which led to it becoming a one-way tool to a two-way communication tool, her dream of Donald Trump, what her vision of the future is. That the device is only an amplifier to something dormant within us. Once awoken the device will not be necessary. 
+
+4000
+But then reality as she introduced it to Richard, the corporate stranglehold and difference of vision, intimdation from men in suits, ending with her fleeing the night Grady and Jenn broke into the facility. 
+
+1000
+Birthday party, Help Me...
+
+
 You talk about your work and you can tell nobody gives a damn. But as soon as you mention money, watch their eyes light up. Then you see what truly stirs their souls.
 
-I feel. Alone. Not understood. Abandoned. Angry. Stupid. Wasteful.
+You sound like you're reading a poem. Get real. This technology is not ethical.
+
 
 Do you mind if we take this?
 Sure, that's fine. Go ahead.
