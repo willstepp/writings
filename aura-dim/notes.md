@@ -1,3 +1,4 @@
+As he walks through the woods he finds a black dog, who attacks him. He kills the dog.
 
 1000
 Start with how it’s different, not direct communication, free access to her being and she had free access to his, she saw the things he had done but he did not feel judged, she is able to guide his focus.
@@ -11,7 +12,7 @@ Start with how it’s different, not direct communication, free access to her be
 But then reality as she introduced it to Richard, the corporate stranglehold and difference of vision, intimdation from men in suits, ending with her fleeing the night Grady and Jenn broke into the facility. 
 
 1000
-Birthday party, Help Me...
+Pulling out of the birthday party, Help Me...
 
 
 You talk about your work and you can tell nobody gives a damn. But as soon as you mention money, watch their eyes light up. Then you see what truly stirs their souls.
