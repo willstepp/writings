@@ -1,3 +1,20 @@
+I'm very close to being able to open a two-way channel. 
+The one-way channel is too invasive. It shouldn't ever be used. 
+How do you know?
+I've done it.
+The President of the United States.
+Zoey, that's treasonous
+I know but I did it. And it works.
+A two-way channel is secure. It depends on a handshake, it asks permission. I need more time to get there.
+It's possible that what's happening is the technology acts as an amplifier to some dormant capability of the human brain. In other words the technology is just an amplifier, like waving a fan over flames.
+What are you saying?
+I don't really know but it seems possible that once the brain has used this channel enough, the technology would no longer be required.
+Zoey, this is extremely dangerous. What you are talking about. This needs to be regulated. Controlled.
+You can't control it. It's not yours to control. Its something within us. Untapped.
+There may be a reason for that. Did you ever think of that?
+Maybe its time has come. It's like Darwin and the theory of evolution. If not me, then someone else.
+
+
 As he walks through the woods he finds a black dog, who attacks him. He kills the dog.
 
 1000
