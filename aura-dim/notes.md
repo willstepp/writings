@@ -1,3 +1,7 @@
+"You were a painter. And I watched how you betrayed it. Over the years...I saw that much."
+  
+He walks inside the house, sees the equipment, then outside to birthday party.
+
 I'm very close to being able to open a two-way channel. 
 The one-way channel is too invasive. It shouldn't ever be used. 
 How do you know?
