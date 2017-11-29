@@ -1,3 +1,8 @@
+Richard was a painter who never sold his paintings until he caught on during an election. Now selling plastic frames.
+
+
+He has to find the house, something in the background of the photo gives him a clue, a landmark, the house number
+
 "You were a painter. And I watched how you betrayed it. Over the years...I saw that much."
   
 He walks inside the house, sees the equipment, then outside to birthday party.
