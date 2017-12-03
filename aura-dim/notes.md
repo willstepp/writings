@@ -325,9 +325,9 @@ Compelling Moment at the End: The cake with Help Me
 
 Part Five (4500)
 4500: Using clues from photo to track her down, once there, the place is ransacked, childhood home, is attacked by 
-shadow person, they fight, loses conciousness, he awakes in house fire, shadow person mutilated (stepfather), escapes to woods
+shadow person, they fight, loses conciousness, he awakes in house fire, shadow person mutilated (stepfather), sees Tacoma outside, escapes to woods
 
-Compelling Moment at the End: Gets text to come
+Compelling Moment at the End: Gets text to Come Back
 
 Part Six (10000)
 3000: Traveling at night to the abandoned GE plant.
