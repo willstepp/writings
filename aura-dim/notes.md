@@ -1,3 +1,14 @@
+12a ======================================================
+
+What happens in this scene?
+
+Will uses clues to locate Zoey, a landmark in the photo that he recognizes. He goes there, sees the place and explores it. Zoey is not there. The house is dilapidated, her computer is set up in her old bedroom. 
+
+What is the purpose of this scene?
+
+To build anticipation for the climax, to show that the character is invested in Zoey since their communion.
+
+
 Richard was a painter who never sold his paintings until he caught on during an election. Now selling plastic frames.
 
 
