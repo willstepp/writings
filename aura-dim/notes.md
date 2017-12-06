@@ -1,3 +1,14 @@
+13a ======================================================
+
+What happens in this scene?
+
+Will hides in the woods, delirious from his wounds, hurting in the sunlight, he creeps during the day, hiding in the brush and only when its night does he emerge and make his way out of the woods. A dog approaches him, a large black dog. It sniffs and starts to attack his arm, biting into it. He beats it with a piece of wood until its dead.
+
+What is the purpose of this scene?
+
+To establish the extent of his burns, to show that he is going somewhere and to build mystery from that
+
+
 12a ======================================================
 
 What happens in this scene?
