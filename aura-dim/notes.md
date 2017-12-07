@@ -1,3 +1,15 @@
+The workers on the assembly line are folding some organic matter from a black square into a ball.
+
+13b ======================================================
+
+What happens in this scene?
+
+To wait until night to cross the street, sidewalks, in another set of woods behind the ruins of the GE plant. Scales the fence and traverses the parking lot, around the broken glass, the faded paint on the aluminum walls, the rusted door with a circle and an x through it, sealed with a keypad lock.
+
+What is the purpose of this scene?
+
+To reveal where he is going. To build mystery what's behind the door to the plant.
+
 13a ======================================================
 
 What happens in this scene?
