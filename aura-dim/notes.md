@@ -1,3 +1,5 @@
+They get so happy. And it makes me very sad. Because something has been lost.
+
 The workers on the assembly line are folding some organic matter from a black square into a ball.
 
 13b ======================================================
