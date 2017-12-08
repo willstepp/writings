@@ -2,6 +2,16 @@ They get so happy. And it makes me very sad. Because something has been lost.
 
 The workers on the assembly line are folding some organic matter from a black square into a ball.
 
+14a ======================================================
+
+What happens in this scene?
+
+Will awakens in a strange place, on a table, wrapped in bandages. His wounds are dressed. Time has passed and he is no longer in any pain. He is wearing coveralls. He unwraps his head and looks at himself in the mirror, he's covered in scar tissue, no hair on his head. He breaks down. He leaves the room and walks through an empty building, the ceiling caved in, water pooled on the floor. Very dark. He sees boxes piled and hears something like a generator in the next room. He enters the next room, up some stairs, and there is a long conveyor belt, affixed to machinery, rusted. Out of the machine is the blob and men in coveralls like his own are hard at work down the line, packing it into the boxes. He sees a light on in an office above the line and walks up to it but no one is in the office. But he hears a voice in his head.
+
+What is the purpose of this scene?
+
+To describe what he sees. To lead into the scene with the voice.
+
 13b ======================================================
 
 What happens in this scene?
