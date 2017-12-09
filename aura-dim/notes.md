@@ -1,4 +1,76 @@
-Your breaktime is over. Return to your station.
+Hears the voice, unsure where its coming from
+Asks questions
+Is told it is not his place to ask questions
+Is reminded of his recent actions, theft, rape, murder
+Defends himself, saying his loves his family, his son
+Comparison with a dog. But you are forgiven. We expect nothing from you, except to obey.
+I ain't free. I ain't never been free.
+You are free. But you don't want freedom. What people want.
+Zoey is free. She will release the technology and it will change the world.
+It's not her decision to make. She doesn't get to decide.
+How he helped them find Zoey, how he only sees what they want him to see.
+Show me her.
+You won't like what you see.
+Clocks out for a break.
+Walks downstairs where a man leads him downstairs, through a corridor.
+Finds Zoey, like a skeleton. She won't eat. We force her to drink. She'll die soon.
+Looks at her. She recognizes him. A tear falls from her eye.
+He is reminded his break is over. Walks out.
+
+
+I do not understand this wilderness or the creatures who inhabit the darkness here. I do not understand how they are able to live or what they feed upon to give them strength. The laws which govern this place are alien to me. I am filled with confusion and doubt. I am lost.
+
+Explanation from voice, we were always following you, choosing for you, people dont want control, woman is dead
+
+Unfortunately it doesn't work that way, James. You are not in a position to ask questions of us. You are not in control here. This will be hard for you to accept but it is the truth, and you will understand that truth in time. Further, you are not in control of your own life. You never have been. You never will be. Do you know the most influential force in the world? Inertia. People do not want freedom. They want comfort. To be taken care of. A life of ease and entertainment, of rich food and parties. To be soothed and pampered from the time they are born until their bodies are lowered into the ground.
+
+That ain't true. I love. I have loved. My boy. I love him more than my own life. I know that.
+
+Dogs love their own James. Do you think of yourself angelic because of that? It is instinct. He loves you because you provide for him, give him that comfort we are speaking about. And you love him because of chemicals in your nervous system, millions of years of genetic programming to keep our species propagating. That's all.
+That's not true.
+We are afraid so.
+
+As you judged others we judged you. We forgive you.
+
+
+People want to sleepwalk through life, people want to get fat. Once you had access to the device what did you do? You might have done anything, you looted a pimp, a restaurant owner, a lawyer. Think about that won't you.
+
+
+He leads her to them. They had been monitoring him all along.
+We judged you as you judged others. Why didn't you help the girl in the hotel room? Why didn't you stop to help the people in the car accident?
+You were supposed to kill our man. You were supposed to discover the keycard. As we suspected you felt nothing.
+Talks through intercom.
+She did this to herself. No clothes, no food or water.
+Talks in the voice of his son, forgiveness. Return to me, father return. Forgive others as I have forgiven you. This is my prayer.
+There's no such thing as a search for power. Only a search for security, for comfort. We provide that. That is our purpose. We are justified by your actions. It is a good for the service of mankind.
+
+After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. *But that was a lie.*
+
+And you sold drugs to Grady and Jenn, long before we ever met, and maybe you were afraid to get caught with the computer at their botched robbery so maybe you killed them. You definitely have it in you. You murdered Randall, after all. Are you beginning to understand how things really are? We control the narrative. We control you. You work for us. You will work for us. I know there is a part of you that wants to believe you are free. That you ultimately decide the way your life is. But that is't so. You are not free. You have never been free. More than that, you don't want to be free.
+
+Who is us? Who are you? I don't get the big picture.
+It doesn't matter who we are, or what you call us, the company, the government, the man, the 1%, we are those who make the decisions about how things will be and you are he who obeys.
+
+
+You're not a good person. That is true. But you don't have to be. You have no need to feel guilt anymore. It's OK. Morality is a human invention. It has outlived its usefulness for control, we have better tools. We have technology. Be who you are. Do not be ashamed.
+The mutilators. The desecrators.
+In the GE plant, am I really here? I don't know if I'm here. Well you tell me? But I don't know. Then what difference does it make.
+Don't say things like that. Like what? Like killin don't matter. Well it doesn't. Folks don't talk like this. This is a movie. I'm afraid not. This is our new world, a world of the Aura stream, properly moderated of course, properly calibrated, we don't want to hurt anyone, after all. You're full of shit. I can't understand you.
+
+
+
+
+
+It's been fifteen minutes. Return to your station.
+
+
+
+
+
+
+
+
+
 
 They get so happy. And it makes me very sad. Because something has been lost.
 
