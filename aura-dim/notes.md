@@ -6,6 +6,7 @@ Defends himself, saying his loves his family, his son
 Comparison with a dog. But you are forgiven. We expect nothing from you, except to obey.
 I ain't free. I ain't never been free.
 You are free. But you don't want freedom. What people want.
+
 Zoey is free. She will release the technology and it will change the world.
 It's not her decision to make. She doesn't get to decide.
 How he helped them find Zoey, how he only sees what they want him to see.
@@ -16,6 +17,10 @@ Walks downstairs where a man leads him downstairs, through a corridor.
 Finds Zoey, like a skeleton. She won't eat. We force her to drink. She'll die soon.
 Looks at her. She recognizes him. A tear falls from her eye.
 He is reminded his break is over. Walks out.
+
+I done it for my family. I done it for my boy.
+Say why
+I done it for the money.
 
 
 I do not understand this wilderness or the creatures who inhabit the darkness here. I do not understand how they are able to live or what they feed upon to give them strength. The laws which govern this place are alien to me. I am filled with confusion and doubt. I am lost.
