@@ -1,3 +1,14 @@
+15 ============================================
+
+  What happens in this scene?
+
+  We are in an impressionistic memory of Zoey's birthday party, from her point of view, and then when playing tag the grass with her friends, it changes into Joseph's memory of their day flighting the kite together, ending with him waiting for father in the woods.
+
+  What is the purpose of this scene?
+
+  To establish that Zoey no longer needs the technology to utilize the Aura communion. To establish that Joseph believes in his father.
+
+
 Hears the voice, unsure where its coming from
 Asks questions
 Is told it is not his place to ask questions
