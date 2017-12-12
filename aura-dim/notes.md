@@ -60,7 +60,7 @@ She did this to herself. No clothes, no food or water.
 Talks in the voice of his son, forgiveness. Return to me, father return. Forgive others as I have forgiven you. This is my prayer.
 There's no such thing as a search for power. Only a search for security, for comfort. We provide that. That is our purpose. We are justified by your actions. It is a good for the service of mankind.
 
-After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. *But that was a lie.*
+After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. But that was a lie.
 
 And you sold drugs to Grady and Jenn, long before we ever met, and maybe you were afraid to get caught with the computer at their botched robbery so maybe you killed them. You definitely have it in you. You murdered Randall, after all. Are you beginning to understand how things really are? We control the narrative. We control you. You work for us. You will work for us. I know there is a part of you that wants to believe you are free. That you ultimately decide the way your life is. But that is't so. You are not free. You have never been free. More than that, you don't want to be free.
 
@@ -667,7 +667,7 @@ Part Three, search for her, evade government agents, and company men. Turn, she 
 He needs to progress through three stages, maybe ending with empathy.
 Sees a car wreck, keeps driving
 http://libguides.usc.edu/writingguide/researchglossary
-https://www.reddit.com/r/printSF/comments/18dc62/what_is_your_favorite_book_featuring_telepathy/
+https://www.reddit.com/r/printSF/comments/18dc62/whatisyourfavoritebookfeaturingtelepathy/
 http://openbci.com
 p.aura
 People want to sleepwalk through life, people want to get fat. Once you had access to the device what did you do? You might have done anything, you looted a pimp, a restaurant owner, a lawyer. Think about that won't you.
@@ -743,7 +743,7 @@ neuroimaging electrophysiological data
 I can't help you
 Sees a car wreck, keeps driving
 http://libguides.usc.edu/writingguide/researchglossary
-https://www.reddit.com/r/printSF/comments/18dc62/what_is_your_favorite_book_featuring_telepathy/
+https://www.reddit.com/r/printSF/comments/18dc62/whatisyourfavoritebookfeaturingtelepathy/
 http://openbci.com
 p.aura
 People want to sleepwalk through life, people want to get fat. Once you had access to the device what did you do? You might have done anything, you looted a pimp, a restaurant owner, a lawyer. Think about that won't you.
@@ -765,7 +765,7 @@ Truth is losing. Losing out to fantasy and delusional belief systems.
 Revenge on Carols new boyfriend. Works at a shop, compels him to do something that gets him fired, or worse? This ties into the man he murders later on, feels compelled to do it...
 Smoked a foil
 Man he kills is step father
-After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. *But that was a lie.*
+After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. But that was a lie.
 He eats the man, like a drug-induced psychotic episode
 woman sex - I hate my life
 The photography of Gregory Crewdson
