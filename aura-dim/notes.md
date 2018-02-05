@@ -1,3 +1,6 @@
+Do not abandon me in this wilderness. Do not abandon me in my days of needs. Come back to me. Father, please. In the wilderness I will wait for you.
+
+
 15 ============================================
 
   What happens in this scene?
