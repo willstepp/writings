@@ -1,3 +1,5 @@
+The sky was gray because his heart was depressed because the ground was frozen because his fingers were numb. There seemed to be no ultimate cause, only a sequence of interconnected relationships.
+
 Will and deed are one in Heaven.
 
 At the end in his 'ever walking' narration, be sure to mention the will of his 

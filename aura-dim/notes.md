@@ -1,3 +1,7 @@
+Epilogue: And then he goes. And the door closes. And the darkness and the silence returns. So then I return to the place I was.
+
+Prologue: Rewrite in First Person
+
 Do not abandon me in this wilderness. Do not abandon me in my days of needs. Come back to me. Father, please. In the wilderness I will wait for you.
 
 
