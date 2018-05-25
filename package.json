@@ -3,8 +3,7 @@
   "version": "1.0.0",
   "description": "* Trinidad: A Voyage [4th draft] * Hunger [2nd draft] * The Dogs of Santiago [1st draft] * Joseph the Son [1st draft] * Aura Dim [In Draft] * Fetus [Notes]",
   "main": "compile.book.js",
-  "scripts": {
-  },
+  "scripts": {},
   "repository": {
     "type": "git",
     "url": "git+https://github.com/willstepp/writings.git"

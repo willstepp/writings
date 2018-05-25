@@ -1,3 +1,14 @@
+REVISION ONE
+========================================
+-) Read chapter aloud, recording
+-) Make notes about what works and doesn't work on a story level, then ideas for improvement
+-) Come up with ideas where chapter can be expanded by 1500 words (adding new content|deepening what exists)
+-) Rewrite chapter, implementing new ideas, fixing old story problems, prose and grammar issues
+-) Read chapter aloud
+-) Record chapter as is, only fixing minor readability problems you discover
+
+
+
 Epilogue: And then he goes. And the door closes. And the darkness and the silence returns. So then I return to the place I was.
 
 Prologue: Rewrite in First Person
