@@ -718,7 +718,7 @@ You used to be someone who didn't care about money. Remember those conversations
 The world isn't as black and white as we thought when we were undergrads.
 We help people. You can't say we don't help others doing what we do. And I make enough money 
 now to help my parents now. How is that not a good thing? Its only a good thing.
-Something is different. Something slipped in along with all those good intentions. Something cynical and ugly.
+different. Something slipped in along with all those good intentions. Something cynical and ugly.
 I feel like everyone who used to be on my side has abandoned me, one by one, and I'm alone.
 It's called growing up.
 The world is much bigger than we knew back then. We were just kids.
@@ -750,51 +750,93 @@ Actual Telepathy Technology
 http://www.cnbc.com/2017/07/07/this-inventor-is-developing-technology-that-could-enable-telepathy.html
 http://www.openwater.xyz/
 
+
+
 Email Notes:
+
 Part One leads up to unlocking the encrypted drive to better understand the device. Turn, device is not just for mind reading, but for telepathy.
+
 Part Two is story of the creation of the Aura algorithm and what led up to the fire. Turn, she is not really dead. Rant on money, feeling alone when friends abandon dreams.
+
 Part Three, search for her, evade government agents, and company men. Turn, she is mad.
+
 He needs to progress through three stages, maybe ending with empathy.
+
 Drug buyers were hired to rough her up, steal equipment, government? corp?
+
 Ends in vision of empathy
+
 neuroimaging electrophysiological data
+
 I can't help you
+
 Sees a car wreck, keeps driving
 http://libguides.usc.edu/writingguide/researchglossary
 https://www.reddit.com/r/printSF/comments/18dc62/whatisyourfavoritebookfeaturingtelepathy/
 http://openbci.com
+
 p.aura
+
 People want to sleepwalk through life, people want to get fat. Once you had access to the device what did you do? You might have done anything, you looted a pimp, a restaurant owner, a lawyer. Think about that won't you.
 Leaves gifts for son. Is confronted by mother, calls him a piece of shit, gives the gifts back.
+
 He learns the device is not for reading minds, it's for communication. Zoey opens a stream and they join. This is where he learns her story, the dream of Donald Trump, and where she is in hiding.
+
 He leads her to them. They had been monitoring him all along.
+
 We judged you as you judged others. Why didn't you help the girl in the hotel room? Why didn't you stop to help the people in the car accident?
+
 You were supposed to kill our man. You were supposed to discover the keycard. As we suspected you felt nothing.
+
 Talks through intercom.
+
 She did this to herself. No clothes, no food or water.
+
 Talks in the voice of his son, forgiveness. Return to me, father return. Forgive others as I have forgiven you. This is my prayer.
+
 There's no such thing as a search for power. Only a search for security, for comfort. We provide that. That is our purpose. We are justified by your actions. It is a good for the service of mankind.
+
 DT in the back of a Maybach, listening to the original version of China Girl. Awash with feelings of feminine ecstasy, vulnerable, yielding.
+
 teener, ball, geeked up
+
 Needs a scene where he exploits a woman's fantasy for his own pleasure.
+
 He wakes up from a dream reunited with carol and walker, in his loneliness he finds an unhappy woman who has fantasies of an unrequited love, he uses those fantasies to seduce her - a scene at Christmas, floating on a moving sea of wrapping paper, she loses him momentarily.
+
 They have sex, each thinking of others they want to be with. She routinely has affairs, trying to recapture that feeling of a perfect love.
+
 Truth is losing. Losing out to fantasy and delusional belief systems.
+
 Revenge on Carols new boyfriend. Works at a shop, compels him to do something that gets him fired, or worse? This ties into the man he murders later on, feels compelled to do it...
+
 Smoked a foil
+
 Man he kills is step father
+
 After being told that his life is not his own, the evil he's done is not his concern. Do not worry, it was not you. But that was a lie.
+
 He eats the man, like a drug-induced psychotic episode
-woman sex - I hate my life
+w
+oman sex - I hate my life
+
 The photography of Gregory Crewdson
+
 mother is with them while flying the kite
+
 snake trump -> gay trump -> compassionate trump
+
 he brings gifts and leaves them at the door. he receives a note? talks to ex? you don't get to do that anymore. you don't have the right. receives them, burned.
+
 they were controlling him the whole time, manipulating him to locate her
+
 he grows more paranoid, more agitated, less hungry, as time goes by
 ^^^ as a meth addict
+
 bites nails, covers pot belly with arm
+
 why is this happening to me?
+
 girl in hotel room:
   can I go?
   will he hurt me?
@@ -803,64 +845,108 @@ girl in hotel room:
   he said so
   goodbye
   goodbye
+
 he destroys step dads new truck, later sees it at house, leaving gifts
+
 finds cell phone, they left it open to his text, they text him to make a deal
+
 killing the stepfather gives them leverage over him, entrapping him to work for them
+
 we never needed the computer, we just needed an innocent set of eyes on the data, a level of indirection, 
 to lead us to her. We thought it would be those tweakers we hired, just bad luck it was you.
+
 I ain't innocent.
 To Zoe you were.
+
 We used to talk about important things. How we were going to change the world. What happened? When did we lose that? 
 When did it become about money? Life happened. I'm married now. I have two girls. Do you know how expensive private school is?
+
 This technology should be free. This is a tool for communication. It will change things. It will change the world. There's 
 nothing wrong with making money.
+
 at the house, her childhood home, he murders then eats, a fire, he runs away, burned, hides in the woods, like an animal
+
 I done it for the money. I can't ever go out in the sunlight, like I used to done. My lifes ruint.
+
 Shit was straight. That's why we stick with you. Your shit be real and your bags aint stingy neither. Not like those other 
 assholes. You be too quiet though, damn.
 Shut the fuck up, Jenn.
 Don't tell me Grady. He know I just playin. You don't own me.
+
 A dream to go square, straighten up.
+
 Feeling the drain.
+
 Recop, buy another batch.
+
 Behind the trailer in the woods, texts Grady, 'back door' - no response so he knocks, feels for the key and finds one, finds them 
 shot on the couch, phone missing, then gets a text, 'we just want the notebook' and then 'stay put' He doesn't.
 is chased through the woods by shadow people, they call his phone, he turns off, brandishes gun, then they're just gone. back at hotel, he memorizes number and gives it to the homeless guy who puts it in his cart.
+
 don't have scenes of character development and plot action, integrate
+
 notes.doc
+
 you have to write detail of the settings as if its exotic, as if its completely foreign and strange.
+
 to get out of the room, being watched, he calls 911 with reports of a fire and injuries. When the chaos of firetrucks and ambulances arrive he makes his escape around the building.
+
 Do not distrub
+
 Gets text message from The Bitch
+
 Do you still have the notebook? we need to get it back, for real. $ is no issue, hit me back, bro.
+
 computer comes in bag along with first gen headset
+
 sex with woman is forced with mind, gets idea from that to harm husband, when drunk
+
 walks through a birthday party in the past, their home zoey is a child, she says find me Mr. Will, Josey is there. Suzanne
+
 Where?
 she notes a visitor from government, the former director of CIA.
+
 Suzanne Bitch
+
 I believe in you and I'm not the only one. Help me. Find me.
+
 Calls firetruck but then escapes out the back, grabs the computer from the bin and is chased by the man in the shadows, ends up in a chase through the hospital, sir there is nobody here, sir there are no drugs here, runs to waffle house
+
 You murdered them, Grady and Jenn
+
 And you sold drugs to Grady and Jenn, long before we ever met, and maybe you were afraid to get caught with the computer at their botched robbery so maybe you killed them. You definitely have it in you. You murdered Randall, after all. Are you beginning to understand how things really are? We control the narrative. We control you. You work for us. You will work for us. I know there is a part of you that wants to believe you are free. That you ultimately decide the way your life is. But that is't so. You are not free. You have never been free. More than that, you don't want to be free.
+
 Who is us? Who are you? I don't get the big picture.
 It doesn't matter who we are, or what you call us, the company, the government, the man, the 1%, we are those who make the decisions about how things will be and you are he who obeys.
+
 eat shit and die
+
 at the end he's burned, from the fire started in the house, after chewing off the face of Randall, like the victim of a meth lab explosion
+
 The rich woman ran her can head on into traffic, she died on the side of the highway - he is told this by the administrator, it mirrors the fantasy vision of DT
+
 The Wizard of Oz playing on the TV, at Grady and Jenns
+
 Fast as Fuck = high on meth
+
 Climbs in through the kids old room, dust on the toys, her baby taken away
+
 Grady and Jenn are mutilated, not shot
+
 Password is address to house, he discovers on photo of birthday party
+
 After the escape with notebook, through the emergency room, he hides out in a Waffle House
+
 Figures out he needs device prototype for v2, in the charred remains of the research center. He goes there instead of meeting up with the people to sell the notebook, gets the prototype and communes with Zoey. He finally understands the device is for communication, not mind control. She tells him about how she discovered the two way stream, using an impression of the person via media. She chose to test with the person who revolted her most, DT - describes the fantasy world of DT, then the birthday party. Find me.
+
 A shopping spree at Avalon, wild euphoria, spending, wrapping, floating on wrapping paper with the woman - culminating in controlling her to have sex. I hate my life.
+
 You're not a good person. That is true. But you don't have to be. You have no need to feel guilt anymore. It's OK. Morality is a human invention. It has outlived its usefulness for control, we have better tools. We have technology. Be who you are. Do not be ashamed.
+
 The mutilators. The desecrators.
+
 In the GE plant, am I really here? I don't know if I'm here. Well you tell me? But I don't know. Then what difference does it make.
 Don't say things like that. Like what? Like killin don't matter. Well it doesn't. Folks don't talk like this. This is a movie. I'm afraid not. This is our new world, a world of the Aura stream, properly moderated of course, properly calibrated, we don't want to hurt anyone, after all. You're full of shit. I can't understand you.
-
 
 Whoever finds this note, I need your help. Find me.
 
@@ -869,3 +955,303 @@ When he joins her aura stream he sees a memory from here childhood, the dilapida
 She built the prototype into a knitted pink beanie with cat ears, to keep the men in the lab away from it.
 
 The woman he has sex with he sees walking through Avalon.
+
+Each exploitive act must tie back to family somehow, or a corruption of it. Hence, the boy in the hotel room is the juggalo's son, the woman handcuffed his mother.
+
+something was lost, not fast, over years of time - something was forgotten
+
+With his skin burned he cannot stand to be in the sunlight
+
+When he drops off the presents, sees his son through the window playing, wants to keep the moment, to have it, not like a memory, but the moment itself. They touch hands through the glass...
+
+Tries to destroy his life, the stepfather.
+
+Woman is a lost love, plants a seed in her brain
+
+Beat by beat description of her thoughts as they have sex, betraying her husband. His attraction to her breasts, lips, togetherness. 
+
+Panic when over, she dries away, distraught.
+
+His life as it was held together by whatever strength he had, even the mess of it now, he felt it took energy just to maintain, to pay the rent of the hotel, his cell phone bill, sometimes just the energy of those things was almost too much to bear. So to get back again to the place he used to be, to have the things he had, that seemed like an insurmountable wall.
+
+In the wilderness I will wait for you.
+
+He saw himself like a beast with a thousand arms, each one reaching out to hold his reality together, this arm paid the hotel bill each month, this one the cell phone bill, this one handled the recop whenever he ran dry. And it was too much sometimes. And all it would take for his entire reality to unravel would be to let go, to stop giving a shit. That's all it would take.
+
+Device is at campus lab, in a pink toboggan, he retrieves it. More shadow people. Juggalo Joe returns, they fight, makes a deal. Pays off Rodriguez. Fucks with mechanic, ruins his new red truck, learning he can control others, follows him home, to family dinner, he weeps.
+
+After dizziness, headache, dilated pupils.
+
+Woman at Avalon he controls her to buy gifts for his family, becomes a date, she is euphoric, they have sex behind a dumpster
+
+Needs a new vehicle after escape, passes by a beautiful red Tacoma in a builders supply parking lot. Stops and watches for the owner to come out, he learns where he hid the keys and waits for a chance to steal it. But something stops him, the man comes out, chases him away, without seeing him. He is angry, focuses on the man and causes him to hurt himself. Causes another man to run into the truck with a fork lift...follows him home...
+
+Makes a deal to trade the device and computer for 1 million. Before he goes he discovers v2, which works with only media of the subject. He tries it with Zoey and learns she’s alive (bday party) and that the real purpose of the technology is communication. They join...dream of DT, her family, what happened before the fire. Find me she says.
+
+feel like begotten, handmade, earthen
+
+find me, on the cake at the party
+
+help me, elsewhere
+
+Store clerk badgers, man is irritated, woman slaps
+
+Need a document of the first experiment
+
+Father, what Zoey says to him
+
+Unknown the woman and girl relationship to him. Daddy, the girl came out of the room, mommy’s crying. He took the distraction and picked up the phone book and knocked the knife blade
+
+He handed the blanket to Joseph to carry to the only clear spot in the field, the rest covered in tall, green grass. Suzanne carried the picnic basket, while he fussed with the kite.
+
+Can I have your pickle? Boy you gonna turn into a pickle one of these days.
+
+He nestled his head on her chest.
+
+You make a good pillow.
+
+Mmm, and you are a good blanket.
+
+Things with woman turns into a date, they eat gelato, rent an expensive room, make love...
+
+Here I am. Here I am. I was always here. And I always will be.
+
+Like being at the bottom of the ocean, walking through water.
+
+Do you understand? Tell me that you understand.
+
+All the workers stop and turn to face him. Their eyes blank, expectant.
+
+I do understand.
+
+They forgot to have her sign document that gives them right to IP, leads to argument with director. She knows him from college.
+
+First letters is all about how it came to be, significance, shouting from rooftops
+
+Second communion is about betrayal
+
+This is bigger than us, this is important. It deserves to be given to people. It could change things, forever.
+
+That’s just my concern. We don’t understand this and it could very well change things. It’s irresponsible to make this technology available to the public at large. I mean Zoey look, this could disrupt all the systems modern civilization is built upon. I hate to say things that make me sound like a comic book supervillian but that’s what we’re talking about here. 
+
+Maybe all the systems of modern civilization need disrupting.
+Oh grow up, you still sound like a rebellious teenager, against the man. The world isn’t that way.
+
+It’s like once the pattern had been establish it’s available to me, the channel is unblocked. It could happen for everyone.
+
+Where do you want me to come, sir?
+Do it in me, baby.
+
+Poverty, patience, assurance, and austerity: all good qualities for your writing to have.
+Also humility
+
+The underwater, slow-moving experience is temporary, like your eyes adjusting to sunlight. People also resemble their natures?
+
+This shit right here, this will kill you. Deader than hell. It robs you of your life. Of your children. It don’t care. It will take it all from you.
+
+Will pulls gun when Grady reaches into bag
+
+With the woman in a department store the floor opens and there is a lake filled with coral and fish and clear water...they swim together
+
+But you know the truth, Will, don’t you? Say it.
+I am not free.
+You have never been free.
+
+A derelict warming his hands under the dryer ventilation
+
+An interruption in the library, a bookish woman asking for a chair he has his foot propped on, he tells her he needs it. Fuck. Off.
+
+I’m not free. I’ve never been free.
+
+we forgive you
+
+You oughta be ashamed to sell this to folks, it’s devilish. It’s not Godly.
+Jenn, shut the fuck up.
+I’m just saying, that’s all.
+Three hundred.
+
+Eat your own pickle
+I already did
+Boy you gonna turn into a pickle
+No I ain’t daddy
+Go on then...
+
+I don’t have no filter. I tell it like it is.
+
+The lambswool footmats, he placed his hand upon, soft, and there were tears and he knew those tears were for those who would never know this kind of excellence.
+
+Date with woman should be like a dream, they walk through a cavern with jewels alive, they float down a stairs made from parachute material, they eat at a buffet with strange foods.
+
+He doesn’t get money from juggalo, beaten up instead...
+
+Funded by a consortium of technology leaders: Facebook, Amazon, Google, Apple, Microsoft. They all stand to gain by having a finger in this pie.
+
+Blood on the steering wheel
+
+She signs nda Donald Duck
+
+Woman reminds him of young Suzanne
+
+She asks to use her own computer - important!!! 
+
+Violates dress code
+
+Theft rape murder
+
+Fucking bean counters, making all the decisions.
+Those bean counters pay your salary.
+
+I don’t know, something has been lost here. People don’t dream anymore. Or rather we do have dreams but they must conform to parameters defined by the powers that be. Our dreams are caged in, limited by parameters of some program.
+
+It’s like you never grew up. I’m not the bad guy. Im trying to put my kids through school, to be the best provider I can be for them. You’ll understand that one day.
+
+There's an unspoken idea around here that only things which have the potential to make money are worth spending time on. I reject that. 
+
+In fact I believe its really the other way around. It didn't used to be this way. What happened to you?
+
+I want to do great things. To push against the limits of human understanding. But all we are focused on is how to speed up the transfer of money from this person's pocket into this other person's pocket. I feel boxed in, limited. It trivializes everything it touches, makes it mundane, of the world.
+
+If I have to see another guy in a blue button down and pressed khakis I'm going to jump off this building. I swear to God. The market. That look of empty-headed rapture in all the corporate photos. Those blank smiles, empty eyes.
+Where did you leave your unicorn? This relentless positivity, Jesus Christ. You are like zombies of positive thinking...
+
+Thanks for all you’ve done.
+
+No problem, it was my pleasure!
+
+Woman before date, after shopping
+
+You know what we need you to know, when we need you to know it. Just as you controlled the minds of others we were also controlling you.
+
+What about the bodies? Grady and Jenn, Zoey, what do police know? The bodies were never recovered. They know nothing.
+
+Give me the fucking pen!
+
+Hides in library overnight, sleeps
+
+Im sorry, for what I did.
+
+You are loved. You will be loved. You have been loved.
+
+What have I done?
+
+Get your hands off her, don’t you dare move her!
+
+You are loved. You are loved.
+
+Everything is forgiven. Everything is forgiven.
+
+They spend the night in a fancy hotel, she wakes up, is horrified, stumbles out the door. 'What did I do? What have I done?' He watches her leave in the parking lot, swiping another car, running through a median.
+
+Drops gun in woods
+
+What is project Aura?
+
+As reported by one of our test subjects who was approached by you last week, under the radar, so it seems. And why have you been using facilities after hours, unauthorized? Please see me when you get this. Mike
+
+The computer should contain information about project aura, what it is about in vague terms, but also about zoeys character, rebellious, angry...
+
+You're the one I want. You make me happy.
+
+I love you Suzanne. I love you always.
+
+Sees his son older, missed time
+
+Chat log from dating site, PinkHatGirl, talks about being a visualization programmer, a way to explain in layman’s terms what she does
+
+I don’t love money, I love freedom, opportunity, why is that wrong?
+
+this was different.
+
+Start with how it’s different, not direct communication, free access to her being and she had free access to his, she saw the things he had done but he did not feel judged, she is able to guide his focus, and she shows him the story of how she discovered the technology, and how she tested it and the breakthrough which led to it becoming a one-way tool to a two-way communication tool, what her vision of the future is. That the device is only an amplifier to something dormant within us. Once awoken the device will not be necessary. But then reality as she introduced it to Richard, the corporate stranglehold and difference of vision, ending with her fleeing the night Grady and Jenn broke into the facility. Birthday party, Help Me...
+
+As he stares at ceiling he thinks about tendrils holding him to life
+
+Don’t you feel the walls closing in, the need of money becomes the want of money, the want of money becomes the desire, the desire becomes the obsession, and the obsession leaves no room for the things in life which are truly good, selfless love and pure creativity, things which have no utility except that they stir our imaginations, our souls, and show us glimpses of the world as it could be.
+pursuits which have no utility
+
+baby carriage instead of a shopping cart
+
+We no longer follow interests from the wellspring of our hearts, but instead what can give us the largest ROI. Why does this matter?
+
+Write that novel, paint that picture, build that crazy statue
+
+For these things I weep; mine eye, mine eye runneth down with water, because the comforter that should relieve my soul is far from me: my children are desolate, because the enemy prevailed.
+Lamentations 1:16
+
+I do not understand how they live or what feeds their souls
+
+make it evocative
+
+Strengthen Zoeys refusal to acknowledge their claim to the technology. This is bigger than IP, NDAs. Then bring up Jonas Salk.
+
+The anger of the book is not against business or entrepreneurism, it’s against betraying a dream for something smaller, trading God for mammon.
+
+A psychedelic, science fiction, mystery thriller set in the rural south...
+
+You a lie! Jenn (about computer)
+
+The only way it can work is if it’s free to all, that is the only way to prevent exploitation, to use it as a tool for control. That was the only way.
+
+She understands her line of thought leads to control, but decides it must be that way, the risk of it that is
+
+extremely high spatial and temporal resolution can be achieved with a noninvasive array of nodes, it is also resistant to ambient interference
+
+Fearful of him. Of what he might do. He heard it in their stilted hellos. Saw it in their eyes that would not look at him. Saw it in their eyes that would not meet his.
+
+Goddamn tennis ball stuffed in the broken tail light housing, painted red, like he’s fooling somebody.
+
+http://suzannekingsbury.net/you-and-me/
+
+unidirectional, bidirectional
+
+Transcranial Magnetic Stimulation, Transcranial Ultrasound
+
+Suzanne pinched him.
+Woman!
+Hey, that what happens. I see a cute tush, I pinch.
+
+He thought about Joseph and if he would ever remember him...
+
+As they lay he listens to the distant going by on Highway 27. He heard the mountain bikers return and pack up, but was too lazy to move to look at them. He opens his eyes and sees his son playing with some blades of grass, braiding them in some fashion around a twig. 
+
+Angel of mine, he thought, and his heart swelled with an overwhelming tenderness towards his boy and he thought he might cry. Somewhere in the back of his mind a voice laughed at him, a younger, more immature version of himself. He didn’t care.
+
+Hey, I see a cheek I pinch.
+
+publishersmarketplace.com
+
+his face that sublime mix of the masculine and feminine as only a child’s face can be
+
+a labrynth of machines
+
+Zoey mentions her parents death, her capture, in final memory. My imprisonment
+
+nether regions
+
+rug free is the way to be
+
+Dog carcass in the bathroom
+
+pot belly on woman, jittery, jerky movements, hardened eyes, dark circles
+
+half gram for fifty bucks
+
+imprisoners
+
+The door closes and my imprisoners are gone so I return and there I am in the pink dress, in front of the mirror, my mother clasping barrettes onto the ends of my braids. She tells me I look beautiful and I tell her I look like a dang mushroom
+
+On the levels of phrase, sentence, paragraph, scene, chapter, book, make sure each proceeds logically from the one before. Doing this provides a sense of continuity and helps guide the reader through the story without feeling disoriented. To say another way, you may confuse the reader if the all the components of your story do not follow logically one from the other.
+
+We used to dream about...now we dream of Roth IRAs and how to maximize our returns for the short to medium terms.
+
+You can’t own this, any more than you can own photosynthesis or ...
+
+We used to dream about inventing a vaccine that would save a hundred million lives, now we dream about how to maximize the annual return percentage of our Roth IRAs. We used to dream about making music that would move people to tears from its melody alone, now we dream about getting the best rate on our fixed thirty year mortgage...
+
+...now we dream of ways to raise our Equifax credit score.
+
+Behind an old strip mall, where the Krogers used to be, where he liked to meet up with folks this side of town, he waited.
+
+The song popped into his head every now and then, at the weirdest of times, in a gas station buying cigarettes, at the dump tossing bags of trash, and he always had to laugh. It just wasn’t the way it was. Not no more.
+
+Us and Them by Pink Floyd, at Grady and Jenns
