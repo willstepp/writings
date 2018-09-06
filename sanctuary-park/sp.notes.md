@@ -38,3 +38,22 @@ because they are really those things, but because that is how your mind is able 
 Your memory of those things creates the association, since they have the nearest relationship through 
 both form and behavior. But then sometimes the thing you call a tree will bend down consciously 
 and sniff around and the illusion is broken. But you can't help yourself. It's how the mind works.
+
+He could no longer take the BS. 
+
+"My soul is starving for something good. Something true." As he spoke these words 
+aloud in the car he recognized it was not something people said. Normal people don't speak like that.
+
+I know you’re going through hell, but I don’t deserve to be talked to like that.
+
+Fetus as a conclusion to the story, a kind of redemption to his suffering?
+
+In the central garden of the park there was a room. No building, just a room. The realization of that caused him confusion. Yet there it was.
+
+Blue whale, Momo - something to do with that, maybe instead of following the con-man, he receives an email from him, initiating the game, which leads to the Murder Kroger, behind which he discovers a park in which there is a cabin. The old woman who lives there takes your grief.
+
+His pain is the loss of a wife and child during birth (only hinted at)
+
+The man who lives in the room is part plant part human.
+
+Part one ends with a vision of the future, where the elder thing breaks apart the world in space.
