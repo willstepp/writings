@@ -2,7 +2,7 @@ SANCTUARY PARK
 
 I. The Man Who Lives in the Room
 
-Wednesday began the same as any other. He opened his eyes a good twenty minutes before the alarm was set to go off, marked the time he had remaining, and then cocooned into the blanket with his phone and swiped through social media to see what was new in the world.
+That Wednesday began the same as any other. Awake half an hour before my alarm was set to go off, I cocooned myself into the blanket with my phone and swiped through social media to see what was new in the world.
 
 II. The Fetus
 

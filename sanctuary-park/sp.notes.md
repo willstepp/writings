@@ -52,8 +52,16 @@ In the central garden of the park there was a room. No building, just a room. Th
 
 Blue whale, Momo - something to do with that, maybe instead of following the con-man, he receives an email from him, initiating the game, which leads to the Murder Kroger, behind which he discovers a park in which there is a cabin. The old man who lives there takes your grief. The final message says to kill the man who lives in the room.
 
-His pain is the loss of a wife and child during birth (only hinted at)
+His pain is the loss of a wife and child from a murder/suicide from text game (only hinted at)
 
 The man who lives in the room is part plant part human.
 
 Part one ends with a vision of the future, where the elder thing breaks apart the world in space.
+
+How does the man figure into it? How does he act as the white rabbit? Maybe the man doesn't know why his wife murdered his newborn son and herself. The only thing connecting them is a symbol.
+
+Receives an email with the subject line, 
+
+'Thanks, brother!'
+
+Inside is a link, clicking it opens an app whose icon is the same symbol. Installing it triggers the game.
