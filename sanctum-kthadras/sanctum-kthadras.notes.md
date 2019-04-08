@@ -67,3 +67,6 @@ Receives an email with the subject line,
 'Thanks, brother!'
 
 Inside is a link, clicking it opens an app whose icon is the same symbol. Installing it triggers the game.
+
+
+Insight into Will: 'The wisest one of all formed no opinions.' He wants to remain an observer, curious but not a part of things.
