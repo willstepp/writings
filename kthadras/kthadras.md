@@ -4,13 +4,13 @@ I. The Man Who Lives in the Room
 
 One
 
-At the entrance was a gray box with a flat, white panel and a small glowing red light on top. He had observed the driver ahead of him press a keycard to the panel at which point the light turned green and the gate lifted, allowing the SUV to pass through. Now it was his turn and nervously he put the car into park and fumbled through a pile of loose paperwork on the passenger seat. Eventually he found the keycard and held it up to the white panel. The red light blinked twice but did not turn green and the gate did not open for him.
+At the entrance was a gray box with a flat, white panel and a small glowing red light on top. He had observed the driver ahead of him press a keycard to the panel, at which point the light turned green and the gate lifted, allowing his SUV to pass through. Now it was his turn and nervously he put the car into park and fumbled through a pile of loose paperwork on the passenger seat. Soon he found the keycard and held it up to the white panel. The red light blinked twice but did not turn green and the gate did not open for him.
 "Of course that's what happens," He sighed deeply, "What else?"
 The car behind him honked lightly and he gestured with frustration towards the  box. A woman got out of the car and approached. She pressed her own keycard to the panel and the light turned green as the gate lifted.
-"Thanks. First day."
+"Thanks, first day."
 "Figured as much. Good luck to you."
-A light drizzle of rain fell onto the windshield as he pulled through the entrance. Last Wednesday, the day of his interview, it had been sunny weather. But today everything looked unfamiliar, winding through the curves in the road, passing large office complexes with well-maintained hedgerows and beautiful green grass. He followed the painted signs to his own building somewhere inside this maze of buildings. He couldn't tell one from the other. They all looked the same to him.
-Suddenly he felt a sickening lurch in the pit of his stomach and reached into the storage area of the console and pulled out a bottle of Pepto Bismol. He twisted off the cap and drank the entire contents in a few gulps. He had stopped at a gas station along the way for just this reason and was glad he had remembered to do so.
+A light drizzle of rain fell onto the windshield as he pulled through the entrance. Last Wednesday, the day of his interview, it had been sunny weather. But today everything looked unfamiliar, winding through the curves in the road, passing large office complexes with well-maintained hedgerows and beautiful green grass, everything looked strange. He followed the painted signs to his own building deep inside this maze of buildings. He couldn't tell one road or office complex from another. They all looked the same to him.
+Suddenly he felt a sickening lurch in the pit of his stomach and reached into the console and pulled out a bottle of Pepto Bismol. He twisted off the cap and drank the entire contents. This morning he had stopped at a gas station for just this reason and was glad he had remembered to do so.
 By the time...
 
 "Oh. I thought they would have said something about it during the interview. Maybe it's not my place to say."
