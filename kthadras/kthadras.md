@@ -9,8 +9,8 @@ At the entrance was a gray box with a flat, white panel and a small glowing red 
 The car behind him honked lightly and he gestured with frustration towards the  box. A woman got out of the car and approached. She pressed her own keycard to the panel and the light turned green as the gate lifted.
 "Thanks. First day."
 "Figured as much. Good luck to you."
-A light drizzle of rain fell onto the windshield as he pulled through the entrance. Last Wednesday, the day of his interview, it had been sunny weather. But today everything looked unfamiliar, winding through the roads, passing large office complexes on both sides, following the wooden signs to his building. He couldn't tell one from the other. They all looked the same to him.
-In the pit of his stomach he felt a sickening lurch. He reached into the storage area of the center console and pulled out a bottle of Pepto Bismol and drank the entire contents. He had stopped at a gas station along the way for just this reason and was glad he had remembered to do so.
+A light drizzle of rain fell onto the windshield as he pulled through the entrance. Last Wednesday, the day of his interview, it had been sunny weather. But today everything looked unfamiliar, winding through the curves in the road, passing large office complexes with well-maintained hedgerows and beautiful green grass. He followed the painted signs to his own building somewhere inside this maze of buildings. He couldn't tell one from the other. They all looked the same to him.
+Suddenly he felt a sickening lurch in the pit of his stomach and reached into the storage area of the console and pulled out a bottle of Pepto Bismol. He twisted off the cap and drank the entire contents in a few gulps. He had stopped at a gas station along the way for just this reason and was glad he had remembered to do so.
 By the time...
 
 "Oh. I thought they would have said something about it during the interview. Maybe it's not my place to say."
