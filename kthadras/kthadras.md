@@ -13,7 +13,7 @@ A light drizzle of rain fell onto the windshield as he pulled through the entran
 In the pit of his stomach he felt a sickening lurch. He reached into the storage area of the center console and pulled out a bottle of Pepto Bismol and drank the whole thing. He had stopped at a gas station along the way for just this reason and was glad he had remembered to do so.
 By the time...
 
-"Oh. I thought they would have said something during the interview. Maybe it's not my place to say."
+"Oh. I thought they would have said something about it during the interview. Maybe it's not my place to say."
 
 SUICIDE NOTE
 
