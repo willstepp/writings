@@ -10,7 +10,7 @@ The car behind him honked lightly and he gestured with frustration towards the  
 "Thanks. First day."
 "Figured as much. Good luck to you."
 A light drizzle of rain fell onto the windshield as he pulled through the entrance. Last Wednesday, the day of his interview, it had been sunny weather. But today everything looked unfamiliar, winding through the roads, passing large office complexes on both sides, following the wooden signs to his building. He couldn't tell one from the other. They all looked the same to him.
-In the pit of his stomach he felt a sickening lurch. He reached into the storage area of the center console and pulled out a bottle of Pepto Bismol and drank the whole thing. He had stopped at a gas station along the way for just this reason and was glad he had remembered to do so.
+In the pit of his stomach he felt a sickening lurch. He reached into the storage area of the center console and pulled out a bottle of Pepto Bismol and drank the entire contents. He had stopped at a gas station along the way for just this reason and was glad he had remembered to do so.
 By the time...
 
 "Oh. I thought they would have said something about it during the interview. Maybe it's not my place to say."
