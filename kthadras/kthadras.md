@@ -1,8 +1,21 @@
 KTHADRAS
 
-The Man Who Lives in the Room
+I. The Man Who Lives in the Room
 
-1
+One
+
+At the entrance was a gray box with a flat, white panel and a small glowing red light on top. He had watched the driver ahead of him press a keycard to the panel at which point the light turned green and the gate lifted, allowing his SUV to pass through. Now it was his turn and nervously he put the car into park and fumbled through a pile of loose paperwork on the passenger seat. Eventually he found the keycard and held it up to the white panel. The red light blinked twice but did not turn green and the gate did not open for him.
+"Of course that's what happens," He sighed deeply, "What else?"
+The car behind him honked lightly and he gestured with frustration towards the gray box. A woman got out of the car and approached. She pressed her own keycard to the panel and the light turned green and the gate lifted.
+"Thanks. First day."
+"Figured as much. Good luck to you."
+A light drizzle of rain fell onto the windshield as he pulled through the gate. The day of his interview it had been sunshine. That was last Wednesday. Today everything looked strange and unfamiliar as he drove through the winding roads, passing large office complexes on both sides, following the wooden signs to his building. He couldn't tell one from the other. They all looked the same.
+In the pit of his stomach he felt a sickening lurch. Nerves. He reached into the storage box in the console and pulled out a bottle of Pepto Bismol and drank the entire bottle. He had bought it for just this reason and was glad he had remembered.
+By the time...
+
+"Oh. I thought they would have said something during the interview. Maybe it's not my place to say."
+
+
 
 The story opens as the main character, a man named Will, is arriving on his first day as a computer programmer at a large nondescript corporate office in the city. Soon thereafter he learns the person who previously held his position, a young woman named Alicia Davis, committed suicide under mysterious circumstances. On his work computer, the same one used by Alicia, he discovers an encrypted text file. After some sleuthing he is able to open the file using an encryption key that was attached to the suicide email that was cc’d to the entire company before she killed herself.
 
