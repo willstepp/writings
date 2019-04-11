@@ -4,5 +4,5 @@
 * Hunger [2nd draft]
 * The Dogs of Santiago [1st draft]
 * Aura Dim [1st draft]
-* Kthadras [Notes]
+* Sanctum Kthadras [Notes]
 * Joanne [Notes]
