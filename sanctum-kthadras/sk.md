@@ -9,8 +9,8 @@ At the entrance was a gray box with a white panel and a glowing red dot on top. 
 The car behind him beeped and he gestured with frustration towards the box. A woman got out of the car and approached him. She pressed her own keycard to the panel and the dot turned green and the gate lifted.
 "Sorry bout that. First day."
 "Naw, you good."
-Drizzle fell onto the windshield as he drove under the gate and entered the technology park. Last Wednesday, the day of his interview, it had been all sunshine and blue skies. Now in the overcast he noticed everything looked strange and unfamiliar. He wound through the curves in the road, passing large office complexes on both sides. He admired their well-maintained flower gardens and noticed their unusually green lawns. He followed painted wooden signs to his own building deep within this maze of buildings. They all looked the same to him.
-Then his stomach lurched and he felt a little sick. He reached into the console and pulled out the bottle of Pepto Bismol he had picked up at a gas station along the way, anticipating his nerves. He twisted off the cap and drank the entire bottle in a few gulps.
+Drizzle fell onto the windshield as he drove under the gate and entered the technology park. Last Wednesday, the day of his interview, it had been all sunshine and blue skies. Now in the overcast he noticed everything looked strange and unfamiliar. He wound through the curves in the road, passing large office complexes on both sides. He admired the well-manicured hedge and flower gardens out in the front of the mostly concrete and glass buildings. He followed painted wooden signs to his own building deep within this maze of buildings. After awhile they all looked the same to him.
+As he got nearer his stomach turned and he felt a little sick. He reached into the console and pulled out the bottle of Pepto Bismol he had picked up at a gas station along the way, anticipating just this moment. He twisted off the cap and drank the entire bottle in a few gulps.
 By the time...
 
 "Oh. I thought they would have explained the situation to you during the interview. Maybe it's not my place to say."
