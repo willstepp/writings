@@ -4,18 +4,18 @@ I. The Man Who Lives in the Room
 
 One
 
-At the entrance was a gray box with a white panel and a glowing red dot on top. He had observed the driver ahead of him press a keycard to the panel, at which point the dot turned green and the gate lifted, allowing his SUV to pass through. Now it was his turn at the box. He nervously put the car into park and fumbled through a binder of paperwork on the passenger seat. He found the keycard and held it up to the white panel. The red dot blinked twice but did not turn green and the gate did not open.
+At the entrance was a gray box with a white panel and a glowing red dot on top. He had observed the driver ahead of him press a keycard to the panel, at which point the dot turned green and the gate lifted, allowing his SUV to pass through. Now it was his turn at the box. He nervously put the car into park and fumbled through a binder of paperwork on the passenger seat. He found the keycard and held it up to the panel. The red dot blinked twice but did not turn green and the gate did not open for him.
 "Of course it doesn't work," He sighed deeply, "Why would it?"
-The car behind him honked lightly and he gestured with frustration towards the  box. A woman got out of the car and approached him. She pressed her own keycard to the panel and the dot turned green as the gate lifted.
+The car behind him beeped and he gestured with frustration towards the box. A woman got out of the car and approached him. She pressed her own keycard to the panel and the dot turned green and the gate lifted.
 "Sorry bout that. First day."
 "Naw, you good."
-Drizzle fell onto the windshield as he pulled through the entrance and into the technology park. Last Wednesday, the day of his interview, it had been all sunshine. He noticed everything looked unfamiliar in the overcast light, winding curves in the road, passing large office complexes with well-maintained hedge gardens and unusually green grass. He followed the wooden signs to his own office deep inside this maze of offices. He couldn't tell one from another. They all looked the same to him.
+Drizzle fell onto the windshield as he drove under the gate and entered the technology park. Last Wednesday, the day of his interview, it had been all sunshine and blue skies. Now in the overcast he noticed everything looked strange and unfamiliar. He wound through the curves in the road, passing large office complexes on both sides. He admired their well-maintained flower gardens and noticed their unusually green lawns. He followed painted wooden signs to his own building deep within this maze of buildings. They all looked the same to him.
 Then his stomach lurched and he felt a little sick. He reached into the console and pulled out the bottle of Pepto Bismol he had picked up at a gas station along the way, anticipating his nerves. He twisted off the cap and drank the entire bottle in a few gulps.
 By the time...
 
-"Oh. I thought they would have said something about it during the interview. Maybe it's not my place to say."
+"Oh. I thought they would have explained the situation to you during the interview. Maybe it's not my place to say."
 
-"Sometimes after lunch me and Alicia would go for walks down by the pond, over yonder...she was such a beautiful soul."
+"Sometimes after lunch me and Alicia would go for walks down by the pond, over yonder," the woman pointed to a path around the side of the building, her eyes lingering there as if lost in a memory, "She was such a beautiful soul."
 
 SUICIDE NOTE
 
