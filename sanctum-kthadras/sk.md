@@ -15,7 +15,7 @@ By the time...
 
 "Oh. I thought they would have explained the situation to you during the interview. Maybe it's not my place to say."
 
-"Sometimes after lunch me and Alicia would go for walks down by the pond, over yonder," the woman pointed to a path around the side of the building, her eyes lingering there as if lost in a memory, "She was such a beautiful soul."
+"Sometimes after lunch me and Alicia would go for walks down by the pond, over yonder," the woman pointed to a path around the side of the building, her eyes lingering there as if lost in a memory, "She was a beautiful soul. So kind to me."
 
 SUICIDE NOTE
 
