@@ -5,4 +5,4 @@
 * The Dogs of Santiago [1st draft]
 * Aura Dim [1st draft]
 * Sanctum Kthadras [Notes]
-* Joanne [Notes]
+* Miriam, Angel [Notes]
