@@ -1,6 +1,6 @@
 SANCTUM KTHADRAS: Synopsis
 
-Remember from whence thou art fallen, and repent...
+Remember therefore from whence thou art fallen, and repent
 Revelations 2:5
 
 I. The Man Who Lives in the Room
@@ -8,7 +8,7 @@ I. The Man Who Lives in the Room
 Will
 =================
 
-The story begins on Will's first day at a new job. He arrives in the morning and eventually learns that the woman who previously held his job committed suicide. Her name was Abigail. His work laptop has been untouched since she was there and he scours the file system in order to learn more about her and maybe discover why she did it. He finds a brief mention of a journal in a calendar entry on the computer and one night when he can't sleep he drives to the old house where she lived and decides to look around for it. In the house he sees a vision of her hanging in the closet with tentacles coming out of her eyes and mouth and then a tentacled hand points at an old desk in the corner of the bedroom. He wakes up and realizes it was a nightmare. It is the middle of the night and he decides to actually drive over there as he did in his dream. Once there he discovers things look pretty much how they did in his dream, except for small differences. He finds her journal in a hidden cubby in the desk drawer and takes it home with him.
+The story begins on Will's first day at a new job. He arrives in the morning and soon learns that the woman who previously held his position committed suicide. Her name was Abigail, or Abbie. The laptop she used has been untouched since then and he scours the computer in order to learn more about her and maybe to discover why she did it. In a calendar entry he discovers a brief mention of a journal and one night when he can't sleep he drives to the old house where she lived and decides to look around for it. In the house he sees a vision of her hanging in the closet with tentacles coming out of her eyes and mouth and then a tentacled hand points at an old desk in the corner of the bedroom. He wakes up and realizes it was only a nightmare. It is the middle of the night and he decides to actually drive over there as he just did in his dream. Once there he discovers that strangely things look pretty much how they did in his dream, except for minor details. He finds her journal in a hidden cubby in the desk drawer and takes it home with him.
 
 Abigail
 =================
