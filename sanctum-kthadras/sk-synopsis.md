@@ -1,6 +1,6 @@
 SANCTUM KTHADRAS: Synopsis
 
-Remember therefore from whence thou art fallen, and repent  
+Remember therefore from whence thou art fallen, and repent...  
 Revelations 2:5
 
 I. The Man Who Lives in the Room
