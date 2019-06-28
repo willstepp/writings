@@ -1,17 +1,15 @@
-SANCTUM KTHADRAS - Synopsis
+# SANCTUM KTHADRAS - Synopsis
 
-Remember therefore from whence thou art fallen, and repent  
+_Remember therefore from whence thou art fallen, and repent_  
 Revelations 2:5
 
-I. The Man Who Lives in the Room
+## I. The Man Who Lives in the Room
 
-Will
-=================
+### Chapter One: Will
 
 It is Will's first day on a new job. He soon learns that the woman who previously held his position committed suicide. Her name was Abigail, or Abbie. The computer she used has been untouched since and he goes through the filesystem to learn more about her and to maybe even learn why she did it. In a calendar entry he finds her mentioning a journal and one night when he can't sleep he drives to her address, finds the door open, and decides to look around for it. In a closet he sees a vision of her hanging by a wire with tentacles coming out of her eyes and mouth and then a tentacled hand points at an old desk in the corner of the bedroom. He wakes up and realizes it was only a nightmare. It is the middle of the night and he decides to actually drive over there as he just did in his dream. Once there he discovers that strangely things look pretty much how they did in his dream. He finds her journal in a hidden cubby in the desk drawer and takes it home with him.
 
-Abigail
-=================
+### Abigail
 
 Her journal entries reveal that she has been told to write this journal by her psychiatrist to help cope with the loss of her mother from cancer. The entries show how distraught she is, her mother being her entire world. She was unmarried and had no children of her own. She describes a day where she went to work in a bad mood and exploded at a coworker and was told to take the rest of the day off. She drives around the city all that afternoon because being at home only reminds her of her mother. In the early evening she picks up a hitchhiker who says he needs a ride to the hospital. He goes by the name of Rabbit and is a black albino, wearing a strange egg-shaped pendant around his neck. It becomes clear to her that he is some kind of con man, but in her state of mind she doesn't care and humors him. He spins her some kind of yarn about his mother being in the hospital with terminal cancer and eventually asks her for some money to help fly in his sister who lives in Kansas. She stops at an ATM and gives him a few hundred dollars. He thanks her and asks her instead to just drop him off at the McDonald's down on Ponce De Leon. 
 
@@ -23,8 +21,7 @@ Where are you hurting, Abigail?
 
 She asks how he knows her name and it turns out he knows more than that. He seems to know everything about her. For some reason she can't explain she trusts him and eventually breaks down and he consoles her with a hug. She leaves and returns through the woods to her car and goes home. The next day she is surprised to realize she no longer feels depressed. There is a lightness in her heart that she has not felt since her mother died.
 
-Will
-=================
+### Will
 
 Will is captivated by this story and visits the Murder Kroger, but when he walks around back he can't find any door matching her description. He sneaks inside the back of the Kroger and sees a black albino sitting in the break room talking with someone. His is wearing the egg-shaped pendant around his neck. When he sees Will he gets up and walks outside into the parking lot to a piece of junk Corolla with a wire for a door handle. Will follows him and asks if he ever met a woman named Abigail who gave him a ride and a few hundred dollars. He says no and takes off in a hurry.
 
