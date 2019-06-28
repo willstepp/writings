@@ -1,11 +1,14 @@
-SANCTUM KTHADRAS: Synopsis
+SANCTUM KTHADRAS - Synopsis
+
+Remember therefore from whence thou art fallen, and repent  
+Revelations 2:5
 
 I. The Man Who Lives in the Room
 
 Will
 =================
 
-The story begins on Will's first day at a new job. He arrives in the morning and soon learns that the woman who previously held his position committed suicide. Her name was Abigail, or Abbie. The laptop she used has been untouched since then and he scours the computer in order to learn more about her and maybe to discover why she did it. In a calendar entry he discovers a brief mention of a journal and one night when he can't sleep he drives to the old house where she lived and decides to look around for it. In the house he sees a vision of her hanging in the closet with tentacles coming out of her eyes and mouth and then a tentacled hand points at an old desk in the corner of the bedroom. He wakes up and realizes it was only a nightmare. It is the middle of the night and he decides to actually drive over there as he just did in his dream. Once there he discovers that strangely things look pretty much how they did in his dream, except for minor details. He finds her journal in a hidden cubby in the desk drawer and takes it home with him.
+It is Will's first day on a new job. He soon learns that the woman who previously held his position committed suicide. Her name was Abigail, or Abbie. The computer she used has been untouched since and he goes through the filesystem to learn more about her and to maybe even learn why she did it. In a calendar entry he finds her mentioning a journal and one night when he can't sleep he drives to her address, finds the door open, and decides to look around for it. In a closet he sees a vision of her hanging by a wire with tentacles coming out of her eyes and mouth and then a tentacled hand points at an old desk in the corner of the bedroom. He wakes up and realizes it was only a nightmare. It is the middle of the night and he decides to actually drive over there as he just did in his dream. Once there he discovers that strangely things look pretty much how they did in his dream. He finds her journal in a hidden cubby in the desk drawer and takes it home with him.
 
 Abigail
 =================
@@ -77,14 +80,18 @@ Where are you hurting, Abigail?
 Will
 =================
 
-He is contacted by secure email and told to meet in a small town a few states up in an abandoned state hospital (Weston State Hospital). He is sent GPS coordinates and given a time to be there. He takes off work for the weekend, packs a bag, withdraws the five thousand in cash and heads out. He also brings an aluminum baseball bat.
+He is contacted by secure email and told to meet in a small town a few states up in an abandoned state hospital, dilapidated and overgrown. He is sent GPS coordinates from which to enter the building and given a time to be there. He is told to make sure he arrives at the exact time and to enter from the exact coordinates. He takes off work for the weekend, packs a bag, withdraws the five thousand in cash and heads out. He also brings an aluminum baseball bat.
 
-By the time he pulls into the parking lot of the old place the sun is going down. He uses his phone to find the exact coordinates. With him he brings a small backpack with the $5000 inside and a baseball bat. As he enters the place he smells something foul and realizes too late it is a fume of some kind, a gas that has been pumped in. His vision blurs and he begins to see strange creatures in the corners but when he gets closer there is nothing there. His mood is not afraid but euphoric. One of the shadows ends up being a man, brandishing a long knife. He is chased through the surreal environment, room to room. Then he is caught by surprise, attacked and is stabbed, bleeding out as sunlight come through a large cracked window and he is the one holding the knife, a black albino is on the floor,  bleeding out, but still gripping the aluminum bat. "Don't kill me man. Don't kill me." He looks with horror at the knife and drops it, then looks in a satchel he is carrying - the book.
+By the time he pulls into the parking lot of the old place the sun is going down. He uses his phone to find the exact coordinates. With him he brings a small backpack with the $5000 inside and the baseball bat. As he enters the place he notices the light is strangely radiant and hallucinates creatures in the corners but when he gets closer there is nothing there. Strangely his mood is not afraid but euphoric. One of the shadows ends up being a man, brandishing a long knife. He is chased through the surreal environment, room to room, each one more bizarre than the last. Then he is caught by surprise, attacked and is stabbed, bleeding out. Then as a desperate last move he hurls a broken piece of concrete towards the man. It misses but breaks out a large window (opaque with layers of dust and grime) and a burst of sunlight comes through. Suddenly he is the one holding the knife and a black albino is on the floor, bleeding out, but still gripping an aluminum bat. "Don't kill me man. Don't kill me." The man pleads. Will looks with horror at the knife and drops it. He stumbles out of the place and returns to his car, bewildered. Only then does he look in a satchel he is carrying - the book is inside.
 
 Abigail 
 =================
 
-VIOLENCE+VISIT
+Abigail explains that she feels compelled to write in the journal so as to not lose the final connection to the person she used to be. It is hard for her to read the entries at the beginning of the journal. It feels like they were written by someone else. Her work stopped her paychecks and she is staying with a pimp in a weekly-rate motel, doing tricks for meth, robbing the johns. She spends her days watching out the window. There is a pregnant woman who lives across the lot and she watches her with envy, as something she can never be again. She is routinely raped and beaten but finds that she likes it because it is the only time she can feel anything like a human being. She is with a john who likes being choked. She keeps choking and choking and something inside her makes her keep going. She kills him and is euphoric about the feeling it gives her. But soon after is overcome with a feeling of overwhelming doom, as if her soul has been torn open and filled with acid. She returns once more to the man who lives in the room. Now the room is completed covered in some alien-textured mold and the ground is covered with creeping things. The man seems to have fused to the floor. His arms have turned into flailing tentacles. His teeth fallen out, hair gone. His skin has turned translucent like a newborn frog. He reaches out to her and with difficulty he asks the same question:
+
+Where are you hurting, Abigail?
+
+They embrace.
 
 Will
 =================
@@ -94,7 +101,11 @@ Understanding the Book
 Abigail
 =================
 
-INSANE+VISIT
+Murder of Pimp, Rips baby from womb of neighbor and devours the fetus. In a frenzy returns to the man in the room. He is barely a person anymore and cannot speak. There is a beak inside the tentacles where his face used to be, it hisses the words she had heard so many times, yet before it can complete the thought she stabs it repeatedly through the head with a railroad spike she picked up along the way and leaves. She warns anyone reading this journal to stay away from the room. Stay away. Maybe that is why I've kept writing all this time, to be a warning to others who might stumble upon it sometime in the future. What a joke my life turned out to be. Haha. I never understood this fucked up world and I guess I never will.
+
+Near the bottom of the final page of the journal a new paragraph had been started.
+
+Mama,
 
 Will
 =================
@@ -103,3 +114,5 @@ Within and Waiting
 
 
 II. The Fetus
+
+You are used to the darkness by now, finding your way in the darkness, without the use of your eyes.
