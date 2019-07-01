@@ -1,8 +1,7 @@
 ## SANCTUM KTHADRAS - Synopsis
 
 
-_Remember therefore from whence thou art fallen, and repent_  
-Revelations 2:5
+_Remember therefore from whence thou art fallen, and repent_
 
 
 ### Part One. The Man Who Lives in the Room
@@ -103,9 +102,9 @@ Understanding the Book
 
 #### Chapter Twelve - Abigail
 
-Murder of Pimp, Rips baby from womb of neighbor and devours the fetus. In a frenzy returns to the man in the room. He is barely a person anymore and cannot speak. There is a beak inside the tentacles where his face used to be, it hisses the words she had heard so many times, yet before it can complete the thought she stabs it repeatedly through the head with a railroad spike she picked up along the way and leaves. She warns anyone reading this journal to stay away from the room. Stay away. Maybe that is why I've kept writing all this time, to be a warning to others who might stumble upon it sometime in the future. What a joke my life turned out to be. Haha. I never understood this fucked up world and I guess I never will.
+Murder of Pimp, Rips baby from womb of neighbor and devours the fetus. In a frenzy returns to the man in the room. He is barely a person anymore and cannot speak. There is a beak inside the tentacles where his face used to be, it hisses the words she had heard so many times, yet before it can complete the thought she stabs it repeatedly through the head with a railroad spike she picked up along the way and leaves. She warns anyone reading this journal to stay away from the room. Stay away. Maybe that is why I've kept writing all this time, to be a warning to others who might stumble upon it sometime in the future. What a joke my life turned out to be. Haha. I never understood this fucked up world and now I guess I never will.
 
-Near the bottom of the final page of the journal a new paragraph had been started.
+Near the bottom of the final page a new paragraph had been started, consisting of a single word.
 
 Mama
 
