@@ -20,7 +20,7 @@ She lets him out in the parking lot and pulls around to get a large order of fri
 
 Inside she finds herself in a nondescript room, neither big nor small, with bare, smooth walls. Standing in the middle of the room is an old man in threadbare clothes. He greets her with a nod and the first thing out of his mouth is a question.
 
-Where are you hurting, Abigail?
+_Where are you hurting, Abigail?_
 
 She asks how he knows her name and it turns out he knows more than that. He seems to know everything about her. For some reason she can't explain she trusts him and eventually breaks down and he consoles her with a hug. She leaves and returns through the woods to her car and goes home. The next day she is surprised to realize she no longer feels depressed. There is a lightness in her heart that she has not felt since before her mother died.
 
@@ -34,7 +34,7 @@ Will is captivated by this story and visits the Murder Kroger, but when he walks
 
 Returning to the journal, Will learns that after the meeting with the man in the room she continued to be happy for a few days, but then something happened. She becomes numb and insatiably hungry. She visits all you can eat buffets and eats until she vomits in the toilet. And then goes somewhere else. She starts drinking, not to feel numb but to stop the feeling of numbness. Then another few days go by and she becomes depressed again. But the numb feeling does not go away. She decides to revisit the man who lives in the room but just like Will she can't find the door when she walks around back. Confused and frustrated she remembers something the man had said to her when she asked where she was. "In a certain place, in a certain time, in a certain orientation." At the time he she thought he was being sarcastic, but now that she reflected on his words she started to wonder if he had been telling her the truth. His words reminded her of books she had read which explained multi-dimensional theory. She thought maybe it was not only important where she looked for the door, but also when and from what direction. So she waits until late afternoon, when the sun has just reached the top of the treeline and walks the same path behind the McDonald's. Sure enough she finds the door. The man is happy to see her and once again asks,
 
-Where are you hurting, Abigail?
+_Where are you hurting, Abigail?_
 
 She tells him all about how she felt better after talking with him and then about the numbness that made her insatiably hungry. He once again embraces her and she departs.
 
@@ -54,7 +54,7 @@ He emails a professor named Susan Burrows who has written the most on the histor
 
 In the meantime he reads more of the journal. After visiting the man she once more feels light in her heart, and can sleep well. But then after a few days she becomes insatiable again, gorging herself at buffets, but now she has also taken up drinking. Anything to help that numb feeling go away. And it does help. But it starts to affect her work. She misses some days. A friend hooks her up with a guy who sells marijuana and she does that. But it's not enough. She asks the guy to sell her meth after doing research on it. The guy says he doesn't fuck with that stuff but tells her about another guy he knows. She contacts him and they meet in a sketchy neighborhood where unaccompanied kids are playing in the street. He shows her how to do it and they get high. While high the dealer pressures her into pleasuring him, and she does. Then leaves. The meth works for awhile but she soon feels that numbness again. She also has a hard time remembering things about her mother, other loved ones from her past. And this frightens her. She returns once more to the man who lives in the room. This time she notices a difference. The walls of the room are now spotted in mildew. The man himself is paler than before. He speaks in a weaker voice, though still smiling.
 
-Where are you hurting, Abigail?
+_Where are you hurting, Abigail?_
 
 
 #### Chapter Seven - Will
@@ -76,7 +76,7 @@ Will visits a bar that night, debates with himself whether he should keep going 
 
 Weeks have passed. Abigail is regularly indulging in drugs, meth, cocaine, heroin, anything she can get her hands on. She is thinner. Her coworkers are concerned about her health and she has been asked to take some time off. At night she posts on personal ads to meetup with men and women for random sex. The numbness has given way to an emptiness. She spends so much money on drugs she is living on credit. She begins to charge money for the sex, agrees to meet up with groups of men, who abuse her. She feels compelled to do this because it alleviates the feeling temporarily. She returns to previous journal entries and cannot remember writing them. Her mother is a memory she has, like a nice shoe I once owned, fond but meaningless to me. One man she meets up with tells her there are men who would pay good money for rough stuff. Is she interested? Yes. One night she is gang-raped and beaten to a pulp. She enjoys the pain but it doesn't last. So once again she walks to visit the man who lives in the room. Now the room is blackened with a crimson mold of some kind, the floor has a fuzzy type of growth, and the man is clearly ill, his hair now fallen out. There are small crawling things in the corners though she cannot make them out. Still, after wheezing, he smiles at her,
 
-Where are you hurting, Abigail?
+_Where are you hurting, Abigail?_
 
 
 #### Chapter Nine - Will
@@ -90,27 +90,35 @@ By the time he pulls into the parking lot of the old place the sun is going down
 
 Abigail explains that she feels compelled to write in the journal so as to not lose the final connection to the person she used to be. It is hard for her to read the entries at the beginning of the journal. It feels like they were written by someone else. Her work stopped her paychecks and she is staying with a pimp in a weekly-rate motel, doing tricks for meth, robbing the johns. She spends her days watching out the window. There is a pregnant woman who lives across the lot and she watches her with envy, as something she can never be again. She is routinely raped and beaten but finds that she likes it because it is the only time she can feel anything like a human being. She is with a john who likes being choked. She keeps choking and choking and something inside her makes her keep going. She kills him and is euphoric about the feeling it gives her. But soon after is overcome with a feeling of overwhelming doom, as if her soul has been torn open and poured with acid. She returns once more to the man who lives in the room. Now the room is completed covered in some alien-textured mold and the ground is covered with creeping things. The man seems to have fused to the floor. His arms have turned into flailing tentacles. His teeth fallen out, hair gone. His skin has turned translucent like a newborn frog. He reaches out to her and with difficulty he asks the same question:
 
-Where are you hurting, Abigail?
-
-They embrace.
+_Where are you hurting, Abigail?_
 
 
 #### Chapter Eleven - Will
 
 Once home he opens the book and starts to read. The book seems as if was written a thousand years ago, the language and syntax is strange and metaphoric, something like an Eastern religious text. He is not able to understand a lot of it, but reads a short parable and then flips through and sees hieroglyphic-like drawings of religious rites. One drawing in particular catches his eye showing two figures enclosed within a two-dimensional square, each hand is reaching out towards the other. There are rays of light emitting from the head of one figure. Below the square are dozens of crudely-drawn tentacles reaching upward, not unlike flames, and that is all enclosed within a two-dimensional egg. He studies the book well into the night and just as he starts to nod off his vision blurs on the page and he recognizes words forming in the negative space between the text. The characters are English but the words they form are not. Once he focuses on the words they disappear so he does his best to stay in that half-dreaming state and remembers what he can. The next morning he awakes from terrible dreams, his head resting on the book. On a sheet of paper beside him he has scrawled a strange phrase:
 
-L'ygraob mar Plmuzar Okaxcib deve K'thadras piy gwam
+_Lyg'raob mar Plmuzar Okaxcib deve K'thadras piy gwam_
 
-That this phrase contains the word 'Kthadras' he determines it is too much to be a coincidence and is convinced this is the phrase of entrance he was told the book contains.
+That this phrase contains the word 'Kthadras' seems too much to be a coincidence and so Will is convinced this is the phrase of passage he was originally told the book contained.
 
 
 #### Chapter Twelve - Abigail
 
-Murder of Pimp, Rips baby from womb of neighbor and devours the fetus. In a frenzy returns to the man in the room. He is barely a person anymore and cannot speak. There is a beak inside the tentacles where his face used to be, it hisses the words she had heard so many times, yet before it can complete the thought she stabs it repeatedly through the head with a railroad spike she picked up along the way and leaves. She warns anyone reading this journal to stay away from the room. Stay away. Maybe that is why I've kept writing all this time, to be a warning to others who might stumble upon it sometime in the future. What a joke my life turned out to be. Haha. I never understood this fucked up world and now I guess I never will.
+Abigail is not doing well. No matter how many drugs she does or how abused she is, the overwhelming feeling of emptiness and doom is ever-present now. She spends her days staring out the window of the weekly-rate hotel, drunk or stoned out of her mind, watching with envy the pregnant mother who stays in the room on the opposite side of the hotel lot, taking care of her kids.
+
+She gets into a fight with her pimp and ends up killing him in a very violent way. Something breaks inside her and there is nothing left to hold back her feelings of rage. The anger fills the emptiness and she becomes euphoric. In a mindless frenzy she runs outside and murders the pregnant woman and does something to the unborn baby too horrible to mention.
+
+Covered in blood she returns to the man in the room one last time. Along the way she picks up a railroad spike she finds in the woods, near the train tracks.
+
+By now the room is completely overgrown with alien flesh. The entire place seems alive, crawling with strange lifeforms that have the characteristics of both animal and plant. Affixed to the floor is the man, or what remains of him. There is a small beak inside the tangle of tentacles where his face used to be. It hisses those words she had heard so many times before, yet before it can complete the thought she stabs it repeatedly through the head with the railroad spike. It makes a horrible sound and then dies. She leaves and returns to her mother's house.
+
+She warns anyone reading the journal to not go near the room.
+
+_Stay away. Maybe that is why I've kept writing all this time, to be a warning to others who might stumble upon it sometime in the future. What a joke my life turned out to be. Haha. I never understood this fucked up world and now I guess I never will._
 
 Near the bottom of the final page a new paragraph had been started, consisting of a single word.
 
-Mama
+_Mama_
 
 
 #### Chapter Thirteen - Will
