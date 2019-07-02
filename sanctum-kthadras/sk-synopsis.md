@@ -123,7 +123,11 @@ _Mama_
 
 #### Chapter Thirteen - Will
 
-Within and Waiting
+With the pendant and book, Will makes his way through the woods behind the McDonald's to the back of the Murder Kroger. Using the pendant as a key and uttering the strange phrase, the door unlocks. He enters and finds himself in a long candlelit corridor which he realizes is lined with worshippers overlooking him from a floor above. They are chanting in low voices, their faces obscured under hoods. He walks through the corridor and descends the stairs at the end. The walls soon turn to rough-hewn stone like he is underground. Eventually he comes to an open room with three doors. He approaches the doors one by one and opens them. Through the first he sees the creation of the world, of the hibernating God Kthadras in the vastness of space, a time before the Earth was born, and instantly his hair turns white like snow and his mind is overcome. He understands the being which they call Kthadras in reality has no name. And never could. He opens the second and sees the familiar back area of the Murder Kroger, empty, a soft wind blowing through it. He closes the door and reaches to open the third, but it is locked. And would always be.
+
+He turns and the stairs are gone. He sits in the room and tries to figure a way out. _I wait because it waits._ After several hours he heard one of the doorknobs turn. A woman entered, alone and looking somewhat pensive. At last he understood and accepted his role of honor. He rose to his feet and faced her, smiling.
+
+_Where are you hurting, Abigail?_
 
 
 
