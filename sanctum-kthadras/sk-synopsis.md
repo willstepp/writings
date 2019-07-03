@@ -99,7 +99,7 @@ Once home he opens the book and starts to read. The book seems as if was written
 
 _Lyg'raob mar Plmuzar Okaxcib deve K'thadras piy gwam_
 
-That this phrase contains the word 'Kthadras' seems too much to be a coincidence and so Will is convinced this is the phrase of passage he was originally told the book contained.
+That this phrase contains the word Kthadras seems too much to be a coincidence and so Will is convinced this is the phrase of passage he was originally told the book contained.
 
 
 #### Chapter Twelve - Abigail
@@ -114,18 +114,22 @@ By now the room is completely overgrown with alien flesh. The entire place seems
 
 She warns anyone reading the journal to not go near the room.
 
-_Stay away. Maybe that is why I've kept writing all this time, to be a warning to others who might stumble upon it sometime in the future. What a joke my life turned out to be. Haha. I never understood this fucked up world and now I guess I never will._
+_Stay away from the room. No matter what. Some parts of this world aren't meant to be explored. Maybe that's the real reason I've kept the journal all this time, as a warning to others who might stumble upon the room sometime in the future. As a record. Please don't ever go there. What a joke my life turned out to be. Haha. I never understood this fucked up world and I guess I never will._
 
-Near the bottom of the final page a new paragraph had been started, consisting of a single word.
+Near the bottom of the final page a new paragraph had been started and never finished. It consisted of a single word.
 
 _Mama_
 
 
 #### Chapter Thirteen - Will
 
-With the pendant and book, Will makes his way through the woods behind the McDonald's to the back of the Murder Kroger. Using the pendant as a key and uttering the strange phrase, the door unlocks. He enters and finds himself in a long candlelit corridor which he realizes is lined with worshippers overlooking him from a floor above. They are chanting in low voices, their faces obscured under hoods. He walks through the corridor and descends the stairs at the end. The walls soon turn to rough-hewn stone like he is underground. Eventually he comes to an open room with three doors. He approaches the doors one by one and opens them. Through the first he sees the creation of the world, of the hibernating God Kthadras in the vastness of space, a time before the Earth was born, and instantly his hair turns white like snow and his mind is overcome. He understands the being which they call Kthadras in reality has no name. And never could. He opens the second and sees the familiar back area of the Murder Kroger, empty, a soft wind blowing through it. He closes the door and reaches to open the third, but it is locked. And would always be.
+With the pendant and book, Will makes his way through the woods behind the McDonald's to the back of the Murder Kroger. Using the pendant as a key and uttering the strange phrase, the door unlocks. He enters and finds himself in a long candlelit corridor which he realizes is lined with adherents overlooking him from a floor above. They are chanting a strange song in low voices, their faces obscured under hoods. He walks through the corridor and descends the stairway at the end. The walls of the stairwell turn to rough-hewn stone like he is going underground. Eventually he comes to an open area with three doors. He approaches the doors one by one and opens them. Through the first he sees the creation of the world, of the hibernating God Kthadras in the vastness of space, a time before the Earth was born, and instantly his hair turns white as snow and his mind is overcome. He understands that in reality the being which they call Kthadras has no name. And never could. He opens the second door and sees the familiar back alleyway of the Murder Kroger, empty, a soft wind blowing through it. He closes the second door and reaches to open the third, but it is locked. And he understands that it would always be so.
 
-He turns and the stairs are gone. He sits in the room and tries to figure a way out. _I wait because it waits._ After several hours he heard one of the doorknobs turn. A woman entered, alone and looking somewhat pensive. At last he understood and accepted his role of honor. He rose to his feet and faced her, smiling.
+He turns around and the stairway is gone. He turns back to the doors and there is only a single door, locked from the other side. He sits on the floor and reflects on his present predicament, on the reality of Kthadras and of everything he has witnessed. After an indeterminate time, going through the expected stages of denial, anger, bargaining, depression, and finally acceptance -- a stark realization overwhelms him.
+
+_I wait because it waits._ 
+
+The years pass until he is no longer a young man but very old indeed. He spends his time reflecting on his life and the nature of Kthadras. One day the doorknob turns and a woman enters, pensive and alone. He faces her, understanding his true purpose for the first time, and smiles warmly.
 
 _Where are you hurting, Abigail?_
 
@@ -135,3 +139,5 @@ _Where are you hurting, Abigail?_
 
 
 You are used to the darkness by now, finding your way in the darkness, without the use of your eyes.
+
+An unnamed lifeform on an alien world, which has hazy and indistinct memories of life as a human being on planet Earth, explores the strange landscape and observes the bizarre flora and fauna that live there. A ceaseless droning lures it to the ruins of an abandoned city, whose structures and technology are beyond anything it can hope to understand. Here it meets others who are like it (except for the black, hardened carapaces on their backs) and who survive by eating _the fruit of this world_, which are small half-formed beings which arise from milky ponds on the barren plains. Suffering from a deep hunger it joins them and devours the fetuses, until it takes pity on one that cries out in pain. It will not eat this fetus and when the others come it prevents them from eating it also. They attack it and it fends them off. The others abandon it by the milky pond, the fetus untouched. Not very long after the skies illuminate with a terribly bright light. All the other lifeforms take shelter, burrowing underground or hiding in caves, in the buildings of the abandoned city. The fetus does not go underground and the life form stays with it. It somehow knows that if it takes the fetus from the pond that it will die. When the sunrise comes it overtakes the sky with flames and heat. There is no sky anymore, only a burning orb, omnipresent and raging. The sun burns away the atmosphere and the vegetation and any living thing that crawls upon the surface. The life form shields the fetus from the burning heat as well as it can, covering it with its body. The seven-thousand degree heat incinerates its body and leaves it charred and in pain beyond imagining.
