@@ -1,9 +1,6 @@
 ## SANCTUM KTHADRAS - Synopsis
 
 
-_Remember therefore from whence thou art fallen, and repent_
-
-
 ### Part One. The Man Who Lives in the Room
 
 
