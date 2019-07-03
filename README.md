@@ -6,3 +6,5 @@
 * Aura Dim [1st draft]
 * Sanctum Kthadras [Notes]
 * Miriam, Angel [Notes]
+
+https://gist.github.com/willstepp/f79813cb7adc96f6fdddaef19bcff596
