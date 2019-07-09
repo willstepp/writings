@@ -62,7 +62,7 @@ He asks her if there is anymore information about the actual places, like how to
 
 "What I mean is, you email me out of the blue and tell me this bizarre story of a woman’s death, you tell me you're investigating for clues like you're fucking Sherlock Holmes. You see what I mean? But that’s not what’s really going on here. It’s as clear as day, you just haven’t recognized it yet. You still think you’re nothing more than a concerned citizen, an impartial but curious observer to the tragedy and potential crime you’ve uncovered. You still think you can close that journal anytime you like, make an anonymous call to the police, and then go on with your life, just like it was before. But you are a part of this story now. A role has been written for you and you are playing it at this very moment, by reading the journal, by taking that pendant, by coming to speak with me. Can't you see that? To put it more bluntly, because I can see by your reaction that you’re not seeing it — you still think you’re safe."
 
-Then she reached out and grabbed his hand and squeezed it hard, as you would to wake up someone from a deep dream.
+She reached out and grabbed his hand and squeezed it hard, as you would to wake up someone from a deep dream.
 
 "You are not safe."
 
