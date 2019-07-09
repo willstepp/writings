@@ -111,7 +111,7 @@ By now the room is completely overgrown with alien flesh. The entire place seems
 
 She warns anyone reading the journal to not go near the room.
 
-_Stay away from the room. No matter what. Some parts of this world aren't meant to be explored. Maybe that's the real reason I've kept the journal all this time, as a warning to others who might stumble upon the room sometime in the future. As a record. Please don't ever go there. What a joke my life turned out to be. Haha. I never understood this fucked up world and I guess I never will._
+_Stay away from the room. No matter what. Some parts of this world aren't meant for people to explore. Now that I think about it, maybe that's the real reason I've kept the journal all the time, as a warning to those who might stumble upon that room sometime in the future. Like a signpost. Please don't go in there. Let me be an example to the rest of the world. Stay away. What a joke my life turned out to be. Ha Ha Ha. I never understood this fucked up world. Now I guess I never will._
 
 Near the bottom of the final page a new paragraph had been started and never finished. It consisted of a single word.
 
