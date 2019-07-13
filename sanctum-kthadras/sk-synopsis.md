@@ -4,12 +4,12 @@
 ### Part One. The Man Who Lives in the Room
 
 
-#### Chapter One - Will
+#### Chapter One - Will (5000)
 
 It is Will's first day on a new job. Upon arriving he soon learns that the woman who previously held his position committed suicide six months ago. Her name was Abigail, or Abbie. The computer she used has remained untouched since then and he looks through it to learn more about her. In a calendar entry he finds mention of a journal and on a sleepless night a few days later he drives to her home address, finds the door unlocked, and looks for it. In the closet he has a vision of her hanging by a wire with tentacles coming out of her eyes and mouth and then her tentacled hand reaches for an old desk in the corner of the bedroom. He wakes and realizes that it was only a nightmare. It is still the middle of the night and he decides to actually drive over there, just as he did in his dream. Once there he discovers that things look pretty much how they did in the dream. He discovers her journal in a hidden cubby in the desk drawer and takes it home with him.
 
 
-#### Chapter Two - Abigail
+#### Chapter Two - Abigail (7500)
 
 Her journal entries reveal that she has been told to keep it by her psychiatrist as a way to help cope with the loss of her mother earlier that year from cancer. The entries show how distraught she has been, her mother having been her entire world. Abigail was unmarried and had no children of her own.
 
@@ -24,12 +24,12 @@ _Where are you hurting, Abigail?_
 She is taken aback but somehow not frightened and asks how he knows her name. It turns out he knows more than that. He seems to know everything about her. For some reason she can't explain she trusts him and eventually tells him about her mother and then breaks down in his arms. The man consoles her with a hug. She leaves and returns through the woods to her car and goes home. The next day she is surprised to realize she no longer feels depressed or anxious. There is a lightness in her heart that she has not felt since before her mother died.
 
 
-#### Chapter Three - Will
+#### Chapter Three - Will (2500)
 
 Will is captivated by this story and the next day at lunch he drives to the Murder Kroger, but when he walks around back he can't find any door matching her description in the journal. He sneaks into the back area of the Kroger and sees a black albino sitting in the break room talking with a co-worker. He is wearing the same egg-shaped pendant around his neck. When the man sees Will he gets up nervously and walks outside into the parking lot to a piece of junk Corolla with a wire for a door handle. Will follows him and asks if he ever met a woman named Abigail who gave him a ride and a few hundred dollars. He says no and takes off in a hurry.
 
 
-#### Chapter Four - Abigail
+#### Chapter Four - Abigail (5000)
 
 Returning to the journal, Will learns that after the meeting with the man in the room she continued to be happy for a few days afterwards, but then something changed inside her. She is overcome with a feeling of emptiness and becomes insatiably hungry. She drives to the Golden Corral and eats plate after plate until she has to run and vomit in the toilet. And then returns for more, until finally she is asked to leave. She also starts drinking as a way not to feel that pervading emptiness she can't seem to make go away. Another few days go by and she sinks into a deep depression. But the empty feeling does not go away. In a state of desperation she decides to revisit the man who in the room, but when she returns her experience is just like Will's and she can't find the door when she walks around back. Confused and frustrated she remembers something the man had said to her when she asked where she was. "In a certain place, in a certain time, in a certain orientation." At the time he she thought he was merely being sarcastic, but now that she reflected on his words she started to wonder if he had been telling her the truth. His words remind her of books she's  read on multidimensional theory. In a moment of inspiration she wonders if maybe it's not just important _where_ she looked for the door, but also _when_ and from _what direction_. So she waits until late afternoon, when the sun has just reached the top of the treeline and enters the same wooded path behind the McDonald's, following the railroad tracks. Sure enough she finds the door. The man is there, happy to see her again and once again he asks,
 
@@ -38,7 +38,7 @@ _Where are you hurting, Abigail?_
 She confesses to him all about how she felt good after their conversation the other evening and then about the emptiness that made her insatiably hungry and everything that followed. He embraces her and she departs.
 
 
-#### Chapter Five - Will
+#### Chapter Five - Will (7500)
 
 Following after what Abigail discovered about the door Will too drives to the McDonald's and finds the path leading into the woods and the railroad tracks all the way to the Murder Kroger. It is twilight by the time he emerges and hard to make out the details of things, but he can see the door. He turns the knob but finds it locked. At that point he hears someone else coming through the woods and hides behind a large trash bin. He watches the black albino emerge and approach the same door. Rabbit takes the pendant from around his neck, inserts it into a slot in the door, mutters strange words, turns the knob and enters. After a few moments Will once again approaches the door because he can see the pendant and chain still hanging from the slot. He turns the knob but it still won't open. He removes the pendant from the slot and looks at it. Suddenly he is hit over the head by something hard. He has just enough time to see Rabbit from the corner of his eye swinging a 2x4 in his direction, hitting him squarely on the shoulder. Rabbit is shouting, "Gimme dat key back! Gimme dat key!" Will falls down and scrambles away into the woods. He hears Rabbit following close behind, 2x4 in hand.
 
@@ -49,7 +49,7 @@ The following day Will uses a photo of the pendant to do an image search online 
 He finds the email of a woman named Susan Burrows, who has written more than anyone else on the history of the Order. He sends her the photo of the pendant, asking if she has ever seen anything like it and if so can help him to understand the strange things he's seen over the last few days. She responds very quickly wanting to discuss the pendant. They Skype briefly and it turns out she will be in the city in a few weeks time on a lecture tour and they make tentative arrangements to meet up then. She asks him to not show anyone else the pendant until they talk. He agrees.
 
 
-#### Chapter Six - Abigail
+#### Chapter Six - Abigail (5000)
 
 In the meantime he reads more of Abigail's journal. After her second visit to the man she feels good again and has restful sleep. For a few days. But then just as before she becomes insatiable, gorging herself at buffets and now drinking to excess. She tries anything that might help her rid that empty  feeling within. And it does help. But then it begins to affect her work. She calls in sick for days at a time. A friend hooks her up with a dealer who sells marijuana on the side and she gets as high as she can, but it's not enough. She asks the dealer to sell her meth. The dealer says he _don't fuck with that shit_ but tells her he can hook her up with another guy he knows. She text him and they meet in a sketchy neighborhood where unaccompanied kids are playing in the street. He shows her how to smoke the meth and they get high together. While high the dealer pressures her into sex and she does. Then she leaves, disgusted with herself. The meth works for awhile but she soon feels the emptiness again. She is also beginning to have difficulty remembering things about her mother and other loved ones from her past. This frightens her.
 
@@ -58,7 +58,7 @@ She returns again to the man who lives in the room to tell him about her fears a
 _Where are you hurting, Abigail?_
 
 
-#### Chapter Seven - Will
+#### Chapter Seven - Will (7500)
 
 Will takes off work and attends Susan Burrows' lecture. The lecture takes place in a renovated industrial complex that has been subdivided into studio workshops for craftspeople: blacksmiths, woodworkers, sculptors, stained-glass makers. There is a meeting hall in the center and the sign on the door reads, "The Outsider Occult: An Introduction to Lesser-Known Belief Systems in the United States, and Beyond..." and the names of several people, Susan Burrows one name among them. He attends her lecture and learns a great deal more than he was able to learn from his research on the internet. Dr. Burrows takes questions after. Will introduces himself and they sit down for coffee in a little cafe near the meeting hall.
 
@@ -73,7 +73,7 @@ She reached out and grabbed his hand and squeezed it hard, as you would to wake 
 Will visits a bar that night and decides whether he should contact the email Dr. Burrows gave to him or leave a tip with the police to investigate behind the Murder Kroger and walk away. He goes out and buys a prepaid cellphone and leaves a message on the anonymous tip line, explaining just where, when, and from what direction they need to investigate the Murder Kroger for a possible murder. Then he drives to the McDonald's parking lot and waits in his car. A few hours later a patrol car pulls up and two officers get out and enter the path behind the McDonald's. Then another hour later they emerge as if nothing was out of the ordinary, get in the patrol car, and drive away. Will becomes frustrated and emails the contact he was given by Dr. Burrows, offering $5000 for the handbook.
 
 
-#### Chapter Eight - Abigail
+#### Chapter Eight - Abigail (5000)
 
 Weeks have passed. Abigail is regularly indulging in drugs, meth, cocaine, heroin, anything she can get her hands on. She has grown thin. Her coworkers are concerned about her health and she has been officially been asked to go on a leave of absence. At night she posts on personal ads to meetup with men and women both for random sex. The emptiness has given way to numbness. She spends so much money on drugs she is living on credit and whatever of her mother's belongings she can sell. She gets desperate and starts charging money for the sex, agreeing to meet up with groups of men who abuse her. Abigail feels compelled to do this because it alleviates the feeling of numbness, at least temporarily. She revisits her previous journal entries and cannot even remember writing them. It is like they were written by another person. Her mother is a memory _like a pair of shoes I once owned_. One strange man meets up with tells her there are other men who would pay good money for _the rough stuff_. Is she interested? Yes, she says. The following evening she is gang-raped and beaten to a pulp. To her horror she finds that she enjoys it since it temporarily alleviates the numbness that has spread within her. But that too doesn't last.
 
@@ -82,14 +82,14 @@ Once again she goes to visit the man who lives in the room. Now the room is blac
 _Where are you hurting, Abigail?_
 
 
-#### Chapter Nine - Will
+#### Chapter Nine - Will (5000)
 
 Will is contacted by secure email and told to meet in a small town a few states up the coast, in an abandoned state hospital, now dilapidated and overgrown. He is sent GPS coordinates from which to enter the building and given a time to be there. He is told to make sure he arrives at the exact time and to enter from the exact coordinates. He takes off work for the weekend, packs a bag, withdraws the $5000 in cash and heads out. He also brings an aluminum baseball bat.
 
 By the time he pulls into the parking lot of the old hospital the sun is going down. He uses his phone to find the exact coordinates. With him he brings the baseball bat and a small backpack with the money inside. As he enters the main building he notices the light is strangely radiant and hallucinates creatures in the corners, but when he gets closer there is nothing there. Strangely his mood is not afraid but euphoric. One of the shadows turns out to be a man brandishing a long knife. Will is chased through a surreal environment, room to room, each one more bizarre than the last. Then he is caught by surprise, attacked and stabbed. He falls to the ground, bleeding out. As a desperate last move he hurls a broken piece of concrete towards the man. It misses him but breaks out a large window (opaque from years of accumulated dust and grime) and a burst of glaring sunlight comes through and blinds them both. Suddenly Will finds that he is the one holding the knife and a strange black albino is on the floor, bleeding out, but still gripping an aluminum bat. "Don't kill me man. Don't kill me." The man pleads. Will looks with horror at the bloody knife in his hand and drops it. He stumbles out of the place and returns to his car, bewildered. Only then does he look in the satchel he is carrying - the book is inside.
 
 
-#### Chapter Ten - Abigail 
+#### Chapter Ten - Abigail (5000)
 
 Abigail is let go from her job. Her paychecks have stopped coming in and she is staying with a pimp in a weekly-rate motel, doing tricks for meth and sometimes robbing the johns. She spends her days watching out the window. There is a pregnant woman who lives across the lot and she watches her with envy as something she can never be. She is routinely raped and beaten by her pimp but she likes it because it is the only time she can feel anything like a human being anymore. One night is with a john who likes being choked. She keeps choking him and choking him and then something inside her snaps. She strangles him to death and is euphoric about the feeling it gives her. But soon after she is overcome with a feeling of overwhelming doom, as if her soul has been torn open and poured with acid. It is even worse than the numbness. 
 
@@ -98,7 +98,7 @@ She returns once more to the man who lives in the room. Now the room is complete
 _Where are you hurting, Abigail?_
 
 
-#### Chapter Eleven - Will
+#### Chapter Eleven - Will (5000)
 
 Home again Will sits at his desk and reads the book or tries to. The text seems as if was written a thousand years ago, the language and syntax is strange and metaphoric, something like an Eastern religious text. He is not able to understand a lot of it but reads a short parable and then flips through and sees hieroglyphic-like drawings of religious rites. One drawing in particular catches his eye, showing two figures enclosed within a two-dimensional square, each hand is reaching out towards the other. There are rays of light emitting from the head of one figure. Below the square are dozens of crudely-drawn tentacles reaching upward not unlike flames and that is all enclosed within a two-dimensional egg. He studies the book well into the night and just as he starts to nod off his vision blurs on the page and he recognizes words forming in the negative space between the text. The characters are English but the words they form are not. Once he focuses on the words they disappear so he does his best to stay in that half-dreaming state and remembers what he can. The next morning he awakes from terrible dreams, his head resting on the book. On a sheet of paper beside him he has scrawled a strange phrase:
 
@@ -107,7 +107,7 @@ _Lyg'raob mar Plmuzar Okaxcib deve K'thadras piy gwam_
 That this phrase contains the word Kthadras seems too much to be a coincidence, and so Will is convinced this is the phrase he heard the black albino speak to open the door.
 
 
-#### Chapter Twelve - Abigail
+#### Chapter Twelve - Abigail (5000)
 
 Abigail is not doing well. No matter how many drugs she does or how abused she is, the overwhelming feeling of emptiness and doom is ever-present now. She spends her days staring out the window of the weekly-rate hotel, drunk or stoned out of her mind, watching with envy the pregnant mother who stays in the room on the opposite side of the hotel lot, taking care of her kids.
 
@@ -117,14 +117,10 @@ Covered in flesh and blood she returns to the man in the room one last time. Alo
 
 By now the room is completely overgrown with alien tissue. The entire place seems alive, crawling with strange lifeforms that have the characteristics of both animal and plant. Affixed to the floor is the man or what remains of him. There is a small beak inside the tangle of tentacles where his face used to be. It hisses those words she had heard so many times before, yet before it can complete the thought she stabs it repeatedly through the head with the railroad spike. It makes a horrible sound and then dies. She leaves and returns to her mother's house.
 
-_Stay away from the room. No matter what. There are parts of this world that are beyond our ability to understand them and will always be so. Now that I think about it, maybe that's the real reason I've kept this journal, as a warning to those who might stumble upon it. Like a signpost. Please don't go inside the room. Let me be your example. Stay far away. What a mess my life has turned out to be. How precarious it all is. How delicate the parts that separate a person from happiness and endless despair. I never understood this fucked-up world and now I guess I never will._
-
-Near the bottom of the final page a new paragraph had been started but never finished. It consists of a single word.
-
-_Mama_
+_Stay away from the room. No matter what. There are parts of this world that are beyond our abilities to understand and will always be so. Now I realize maybe that's the actual reason I've kept this journal all the time, as a warning. A signpost for the curious. Please don't go to the room. Let me be your example. Stay far away. What a mess my life has turned out to be. How precarious it all was. Looking back now. How thin the walls that protected me from endless despair._
 
 
-#### Chapter Thirteen - Will
+#### Chapter Thirteen - Will (5000)
 
 With the pendant and book Will makes his way through the woods behind the McDonald's to the back of the Murder Kroger. Using the pendant as a key and uttering the strange phrase the door unlocks. He enters and finds himself in a long candlelit corridor which he realizes is lined with adherents of the Order overlooking him from a floor above. They are chanting a strange song in low voices, their faces obscured under hoods. He walks through the corridor and descends the stairway at the end. The walls of the stairwell turn to rough-hewn stone like he is going underground. Eventually he comes to an open area with three doors. He approaches the doors one by one and opens them. Through the first he sees the creation of the world, of the hibernating God Kthadras in the vastness of space, a time before the Earth was born, and instantly his hair turns white as snow and his mind is overcome. He understands that in reality the being which they call Kthadras has no name, and never could. He opens the second door and sees the familiar back alleyway of the Murder Kroger, empty, a soft wind blowing through it. He closes the second door and reaches to open the third, but it is locked. And he understands that it would always be so.
 
@@ -138,7 +134,7 @@ _Where are you hurting, Abigail?_
 
 
 
-### Part Two. The Fetus
+### Part Two. The Fetus (10000)
 
 
 _You are used to the darkness by now, finding your way in the darkness, without the use of your eyes._
