@@ -117,7 +117,7 @@ Covered in flesh and blood she returns to the man in the room one last time. Alo
 
 By now the room is completely overgrown with alien tissue. The entire place seems alive, crawling with strange lifeforms that have the characteristics of both animal and plant. Affixed to the floor is the man or what remains of him. There is a small beak inside the tangle of tentacles where his face used to be. It hisses those words she had heard so many times before, yet before it can complete the thought she stabs it repeatedly through the head with the railroad spike. It makes a horrible sound and then dies. She leaves and returns to her mother's house.
 
-_Stay away from the room. No matter what. There are parts of this world that lie beyond our understanding and will always be so. Only now do I realize maybe that is the actual reason I've kept this journal all the time, as a warning. A signpost for the curious. Please don't go. Let me be an example. Stay away. What a mess my life has turned out to be. How precarious it all was. From the beginning. Looking back I see that now. How thin those walls were that protected me from endless and utter despair._
+_Stay away from the room. No matter what. There are parts of this world that lie beyond our understanding and will always be so. Only now do I realize maybe that is the actual reason I've kept this journal all the time, as a warning. A signpost for the curious. Please don't go. Let me be an example. Stay away. What a mess my life has turned out to be. How precarious it all was. From the beginning. Looking back I see that now. How thin those walls were that protected me from utter despair._
 
 
 #### Chapter Thirteen - Will (5000)
