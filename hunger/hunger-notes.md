@@ -1,4 +1,6 @@
-MAKE IT FUNNY!!!
+Things to do to improve this story:
+- MAKE IT FUNNY!!!
+- "Stories only matter to the extent that we care about the people in them. So the most high-flown concept won't really fly unless you begin by asking yourself what it means for the people in the story, and then follow them." - Neil Gaiman
 
 The sky was gray because his heart was depressed because the ground was frozen because his fingers were numb. There seemed to be no ultimate cause, only a sequence of interconnected relationships.
 
