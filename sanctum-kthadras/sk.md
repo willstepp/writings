@@ -4,11 +4,11 @@ I. The Man Who Lives in the Room
 
 One
 
-At the entrance was a gray box with a white panel and a glowing red dot on top. He had observed the driver ahead of him press a keycard to the panel, at which point the dot turned green and the gate lifted, allowing his SUV to pass through. Now it was his turn at the box. He nervously put the car into park and fumbled through a binder of paperwork on the passenger seat. He found the keycard and held it up to the panel. The red dot blinked twice but did not turn green and the gate did not open for him.
-"Of course it doesn't work," He sighed deeply, "Why would it?"
+At the entrance was a gray box with a white panel and a glowing red dot on top. He had observed the driver of the BMW ahead of him press a keycard to the panel, at which point the dot turned green and the gate lifted, allowing the vehicle to pass through. Now it was his turn. He put the Jeep into park and fumbled through a manila envelope on the passenger seat. Eventually he found the keycard paper-clipped to the W4 form, rolled down the window, and held the card up to the panel, noticing in the side mirror a growing line of cars. The red dot blinked twice but did not turn green and the gate did not open for him.
+"Of course it doesn't work," He sighed, "Why would it?"
 The car behind him beeped and he gestured with frustration towards the box. A woman got out of the car and approached him. She pressed her own keycard to the panel and the dot turned green and the gate lifted.
-"Sorry bout that. First day."
-"Naw, you good."
+"Thanks for that. First day."
+"Naw you good."
 Drizzle fell onto the windshield as he drove under the gate and entered the technology park. Last Wednesday, the day of his interview, it had been all sunshine and blue skies. Now in the overcast he noticed everything looked strange and unfamiliar. He wound through the curves in the road, passing large office complexes on both sides. He admired the well-manicured hedge and flower gardens out in the front of the mostly concrete and glass buildings. He followed painted wooden signs to his own building deep within this maze of buildings. After awhile they all looked the same to him.
 As he got nearer his stomach turned and he felt a little sick. He reached into the console and pulled out the bottle of Pepto Bismol he had picked up at a gas station along the way, anticipating just this moment. He twisted off the cap and drank the entire bottle in a few gulps.
 By the time...
