@@ -5,10 +5,10 @@ I. The Man Who Lives in the Room
 One
 
 At the entrance was a gray box with a white panel and a glowing red dot on top. He had observed the driver of the BMW ahead of him press a keycard to the panel, at which point the dot turned green and the gate lifted, allowing the vehicle to pass through. Now it was his turn. He put the Jeep into park and fumbled through a manila folder on the passenger seat. Eventually he found the keycard paper-clipped to his W4 form, rolled down the window, and held the card to the panel, noticing in the side mirror as he did the line of cars now backed into the  road, blocking traffic. The red dot blinked twice but did not turn green and the gate did not open for him.
-"Of course it doesn't work," He sighed, "Why would it?"
-Now there was honking and beeping from the line. He threw up his hands and gestured in frustration towards the box. Then, just as he was about to do a U-turn out of line and phone Marcia Johnson from HR, he saw an obese woman climb out of a SUV a few cars back and approach him. Around her neck she wore a retractable badge with a keycard inside and without acknowledging his presence at all she held it against the panel. Finally, the dot turned green and the gate lifted.
-"Thanks for that. It's my first day."
-"Naw you good," was her reply.
+He sighed. "Of course it doesn't work. Why would it?"
+Now there was honking and beeping from the line. He threw up his hands and gestured in frustration towards the box. Then, just as he was about to do a U-turn out of line and phone Marcia Johnson from HR, he saw an well-dressed woman climb out of a SUV a few cars back and approach him. Around her neck she wore a retractable badge with a keycard inside and without acknowledging his presence at all she held it against the panel. Finally, the dot turned green and the gate lifted.
+"Thanks for that," he said, "First day."
+"Naw you good."
 As he drove under the gate and entered the technology park a drizzle of rain fell onto the windshield. Last Wednesday, the day of his interview, it had been all sunshine, white clouds, and blue skies. Now in the overcast everything felt unfamiliar and strange. He wound through the curves in the road, passing large office complexes on both sides. He admired the well-manicured hedge and flower gardens out in the front of the mostly concrete and glass buildings. He followed painted wooden signs to his own building deep within this maze of buildings. After awhile they all looked the same to him.
 As he got nearer his stomach turned and he felt a little sick. He reached into the console and pulled out the bottle of Pepto Bismol he had picked up at a gas station along the way, anticipating just this moment. He twisted off the cap and drank the entire bottle in a few gulps.
 By the time...
