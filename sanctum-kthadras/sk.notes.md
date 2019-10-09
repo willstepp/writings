@@ -134,6 +134,85 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 * Trust in Him. Trust in the One Who Waits.
 
+* He finds a todo list Abigail wrote to herself: - Fix SVG icons for Dave - Fill out timecard and expense form - Write journal entry. Stop putting it off!!! This leads him to wonder where the journal is. In dream he visits, sees hanging corpse with tentacle face, beak for mouth, hundreds of tiny eyes, it points to the desk, which catches on fire. He wakes, drives there in the middle of the night. The door is unlocked. He finds the journal. Something benign jumps out.
+
+2000 - his new job
+2000 - his what's on computer
+2000 - his dream about journal
+2000 - his actual journal
+2000 - her journal beginning
+3000 - her 1st visit, meeting
+3000 - his 1st visit, nothing
+3000 - her debauchery
+3000 - her 2nd visit, changes
+3000 - his 2nd visit, body, pendant
+25000
+4000 - her sex+visit
+4000 - his research into pendant, lecture
+4000 - her violence+visit
+4000 - his book with phrase???
+4000 - her insane+visit
+5000 - his within and waiting
+50000
+
+* After he finds the body in the Ford Escort he contemplates telling the police. He almost burns the journal but reads on. In the next entry she describes doing the same thing.
+
+* Remember therefore from whence thou art fallen, and repent. - Revelations, 2:5
+
+* Will: He goes for a walk and finds a bar, orders a burger and a large draft of beer. He asks to use the phone and leaves an anonymous tip with the police about the body. He decides that’s it and when he returns home he puts the journal away in a storage box in the closet, a decisive end to his curiosity. Very decisive indeed, a voice mocked him later in the middle of night, when he was tossing in his bed, unable to sleep, But you didn’t throw it away.
+
+* Do not ask me for my opinion. I do not know — that is all. HP Lovecraft, The Color Out of Space
+
+* I think the problem with Laird Barron is that his writing is too eloquent and ‘le mot just’ and therefore feels safe in a way that undercuts any horror the story contains. With his work I feel like I’m comfortably removed from anything too disturbing to my worldview. Compare this to Ligotti, whose work feels truly dangerous, like the ground has crumbled away beneath your feet, exposing you to the raw void.
+
+* Only use description to describe the environment, people, atmosphere, not to project metaphors or other ideas you have. Keep it about the reality of story’s world. In other words don’t write like the previous reply (He rounds a hill and sees the skyline of the city spread before him, half a million lights coalesced into a glow...). This is important if you want readers to feel the uncanny when it comes.
+
+* The story of a photojournalist who took a photo of a starving child who died and then soon thereafter killed himself.
+
+* Maybe contacting the person on the dark web initiates some kind of trial, like the blue whale, which gets increasingly hallucinatory and culminates in the discovery of rabbit and the book in the clermont hotel.
+
+* Maybe he has to take a pill as part of it. Maybe it asks him to commit suicide, which he will not do.
+
+* They frame him for murder of rabbit using the knife he used for something else, when he was trying to rescue something.
+
+* Blue Whale Challenge List
+Carve a specific phrase on the person’s own hand or arm.
+Wake up at 4:20 a.m. and watch a scary video (sent by the curator.)
+Make lengthwise cuts on the person’s own arm.
+Draw a whale on a piece of paper
+Write “yes” on the person’s own leg if ready to be a whale. Otherwise, they should cut themselves multiple times.
+Secret task (written in code.)
+Scratch (a message) on the person’s own arm.
+Write a status online about being a whale.
+Overcome a fear.
+Get up at 4:20 and go to the roof.
+Carve a whale on the person’s own hand.
+Watch scary videos all day.
+Listen to music the “curator” sends.
+Cut your lip.
+Poke the person’s own arm/hand with a needle.
+Make yourself hurt or sick.
+Go to a roof and stand on the edge.
+Stand on a bridge.
+Climb a crane.
+At this step, the “curator” somehow checks to see if the participant is trustworthy.
+Talk with a “whale” on Skype.
+Sit down on a roof with legs dangling over the edge.
+Another job that is in code.
+A secret mission
+Meet with a “whale.”
+The “curator” assigns a date that the person will die.
+Visit a railroad.
+Do not talk with anyone all day.
+Give an oath/vow about being a whale
+
+* You have to communicate your progress to a 'curator'. Maybe the curator is the one he speaks with in the end.
+
+* Before you get any deeper, be sure this is what you want.
+
+* The trials have him hurt things, starting small.
+
+
 ### Abigail
 
 * The horror of watching yourself become something you don’t recognize. Losing your humanity without being able to stop.
@@ -161,6 +240,41 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 * People bring out your true potential, or else it doesn't blossom. You might spend your entire life dormant.
 
 * She lay there after in the dark and quiet of the hotel room. Her mind drifted to memories of a lost time, of the backyard at her maw maw and paw paws, of them smiling and helping her on a little pink tricycle, pedaling on the grass, her maw maw with the crippled fingers. And she wondered how it was that moment time no longer existed in this reality. And it made her heart sick and she wanted to die rather than live one more day in a world where such things happen. And tears fell from her eyes in the dark and quiet of that hotel room, and no one else in the room knew of her tears.
+
+* Sometimes it was like we were complete strangers who knew everything about each other. She made me so frustrated I wanted to scream and still I knew I couldn’t live without her. No, not exactly that. I couldn’t live without her being there. It was like she was the Sun and I was the Earth. Everything I was only made sense in my relation to her. And now the sun had burned out and I was suddenly a planet adrift, abandoned, alone in a dark, vast universe that cared nothing about me.
+
+* She writes an entry seething at her mother and then apologizing
+
+* Where does the anger come from? I feel ashamed of the way I feel.
+
+* She didn’t believe in goodness anymore. As a concept yes but not in it’s reality. She reflected on the things in her life that she had always believed to be examples of goodness and saw only selfishness, greed, and manipulation. A part of her still longed to believe in goodness but it could not be.
+
+* Give illustrations of benevolent acts and then deconstruct them to a self-interested core.
+
+* When she kills him, it is like all the rage and anger had left me and all that remained was pity for him, suffering and alone, in that room that was his prison.
+
+* She buys things on credit, becoming obsessed with acquiring material possessions.
+
+* She feels overcome by a delirium where at the same time she is aware she is doing wrong and does not care.
+
+* She regrets the time she did not spent with her mother. She remembers a night when they were doing nothing, her in her room on Instagram, her mother in the living room playing games on her iPad. Why didn’t I go and speak to you? I could have asked about your day? I could have brought you a coke from the fridge. I would do anything to have another chance to do that just one more time. But it can never be. Not ever again.
+
+* We could have talked. I could have told you about the memory I have when I was seven and we lived in that trailer up in Adairsville...and you were in the kitchen and me on the floor in front of that dirty old box fan, melting crayons on the spinning hub...
+
+* She remembered a time when her beliefs and dreams had been pure and good. It made her heart ache that she had lost them now, forever.
+
+* I felt understood (by the man who lives in the room)
+
+* Abigail Echols
+
+* She writes an entry that she cannot remember a memory she previously wrote down. She is afraid. What is wrong with me? I don’t want to forget who I am. It’s all I have left in the world.
+
+* Her mind twists into believing it would be better had she never been born. Her journal ends with; Mama (dried tears stain the page)
+
+* She wonders whether life will always get better. And decides that no. It has no obligation to do that. And we have to live with that knowledge. A dog does not. That is what makes us human, the awareness of our predicament. Besides the anti-natalism she grows to resent her mother and what she stands for.
+
+* We cannot ignore the inferno.
+
 
 ### Will
 
@@ -196,10 +310,36 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 * He wept at it’s reality.
 
+* Make it very clear his desire to protect her, even after death. To right the wrong of her death. And to restore justice.
+
+* He wanted very much to protect her, understanding how paradoxical that feeling was and yet feeling that way just the same.
+
+* I woke in the night feeling like I was suffocating. Like I was confined in an uncomfortable space and wanted to move but couldn’t. I remembered a movie about Vietnam where prisoners of war were kept in a small wooden box with small air holes for days at a time. The thought of a torture like that wouldn’t leave my mind. I wanted to die. Better to die than that.
+
+* He didn’t want to save her. That made no sense anyway. But it was something like that, in a way, he supposed. What he really wanted was to protect her memory and also to bring whoever it was to, justice? But that was bullshit and he couldn’t keep up that line of self-delusion for very long. No, the simple and only truth of it was, he wanted to _know_.
+
+* I wait because it waits.
+
+* He wakes in the middle of the night and feels an unbearable loneliness and a fear that is unplaceable but very real. He longs for Abigail and feels she would understand.
+
+* His thoughts turn to feeling isolated from society and its values. His work is meaningless and he knows it. He has daydreams of walking away from it all, maybe walking cross country. When he discovers Abigail's journal he feels a sense of purpose again.
+
+* He goes for a drive in the night after these thoughts?
+
+* He rounds a hill and sees the skyline of the city spread before him, half a million lights coalesced into a glow that radiates into the black and starless skies above. He wonders how many of the people are asleep right now, visiting strange worlds filled with strange inhabitants that flames brightly for a few hours and then goes out forever.
+
+* Millions of souls asleep and dreaming of strange, wonderful, and perhaps horrifying worlds that live only a few hours and then blink out of existence forever. In these dreams they process the mundane problems of waking life, reunite with loved ones dead or estranged, and fulfill the secret wishes of their hearts.
+
+* Millions of souls asleep and dreaming of surreal, wonderful, and even terrifying worlds that live only a few hours of time and then blink out of existence forever. In these dreams we process the mundane problems of waking life and fulfill the deepest and most secret wishes of our hearts. Weird shit if you thought about it long enough. Fucking weird.
+
+
 
 ### Rabbit
 
 * The pendant is in the con mans mouth
+
+* His name is Rabbit. He’s a black albino.
+
 
 ### Work (Sanctuary Park)
 
@@ -211,6 +351,16 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 * Of course it doesn’t work, why would it?
 
+* For some reason it went through his mind what it would be like if he took off all his clothes right now and walked inside the building very business-like, buck ass naked, and then in the next moment censuring himself. Normal people don’t think about things like that, Will. Don’t be weird.
+
+* The scene where the woman tells him about the suicide, the wind is rising and a storm is approaching.
+
+* The sun comes out at lunchtime. They go to the cafeteria in the main building and sit outside. They tell stories about programming and he is wondering the entire time about Abigail. Maybe he keeps talking about her in hopes someone will talk about it.
+
+* He can see her personal calendar, which she has linked into her work schedule. Dates with a psychiatrist...etc.
+
+* Why is it everyplace you work there has to be at least one asshole? They joke at lunch. And if there isn’t one, it may be you! I’ve never worked with an asshole.
+
 ### Murder Kroger
 
 * The place is below the Murder Kroger. The Man Who Lives in the Room. He takes away feelings of sorrow. The place links to the past and the future. Somehow the Dark Web is involved.
@@ -218,6 +368,16 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 * The portal is in the back of the Bad Places, which here is the Murder Kroger. The portal is The Room.
 
 * Con man is in the hatchback of an old Chevy Citation, blown wheels, covered with pollen. He sees a flickering light inside, smells a putrid odor, hears the buzzing of insects, opens the hatch and sees his dismembered body of the con man arranged in an asymmetrical pattern, surrounded by burning candles. The egg pendant inside his mouth.
+
+* He runs in horror from the dismembered con man, into the woods, where he sees a meteor shower, an aurora, then comes across a dinosaur.
+
+* Under the light of the nebula he stumbles upon the sleeping dinosaur, who opens its eye and looks at him.
+
+* He emerged into the grocery store next to the fresh seafood counter. He bought some Cheez-Its on the way out and ate them on way back to McDonalds, taking the sidewalk up Ponce de Leon.
+
+* Maybe something needs to replace rabbits death scene, maybe it comes too early - but then how does he get the pendant - perhaps he is attacked by rabbit, pulls the pendant from around his neck and escapes into the woods? That would allow building to the death of rabbit to attain the book, ratcheting the tension in a more linear way, while still indicating danger to him.
+
+
 
 ### State Hospital (Virginia)
 
@@ -228,6 +388,11 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 * (Dream) Sees her try to light the journal on fire, put it out, then hide it instead.
 
 * Has a dream he visits the house and discovers a journal when her hung body with tentacles for a face point at the dresser. He wakes up, unaware he was dreaming. It’s the middle of the night. The house is the same as his dream. He finds the journal.
+
+* The place looks like his dream, except reverse. And darker. He uses phone as flashlight.
+
+* Exploring the house he sees his reflection in the mirror and is startled.
+
 
 ### The Goat Farm (Art Center)
 
@@ -257,6 +422,9 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 * I’ll be speaking at the Anthropology and the Occult conference in Chattanooga over the weekend, you’re welcome to come by. I’d love to hear more of your story and to be perfectly honest take a gander at that pendant!
 
+* Important that the lecturer gives him a contact on the deep web, accessed via Tor, then the arrangement to meet in a public place, Clairmont?
+
+* You have this pendant because they want you to have it. Why don’t you see that?
 
 
 ### The Room
@@ -272,6 +440,16 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 * Tore into the skull like...
 
 * Monkish robes, K’thadras
+
+* There were no words to describe its nature. No human words. But there was a feeling, a deep sense of hopelessness and never-ending despair.
+
+* Abigail: I can recall every detail of the room and yet if you were to ask me a simple question about it, like what is the color of the walls, I couldn’t tell you. How strange that sounds now that I’ve written it down.
+
+* All the anger went out of me. I understood the man was as much of a victim of this as me when I saw the suffering in those still recognizable eyes.
+
+* They don’t wear robes, instead they are dressed from cultures throughout history.
+
+* Why should I seek out suffering? I don’t believe in that sort of thinking. You don’t need to do anything. Suffering will seek out you.
 
 ### McDonald's
 
@@ -293,7 +471,7 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 * I don’t wish anything. But you do. All your life you do, because life is nothing but a wish. I don’t understand what you mean by that. You will. In time all will be revealed to you, as it was to me. And you will understand.
 
-* I told him I didn't wish anything. And I'll never forget what he said next. He seemed momentarily confused, taken aback really, his eyes squinting, his eyebrows furrowed. "But you do," he said at last, calmly and with utmost sincerity and conviction, "Your entire life is a wish."
+* "The room is as you wish it to be," which I thought was a strange way to put it. I told him I didn't wish anything. And I'll never forget what he said next. He seemed momentarily confused, taken aback really, his eyes squinting, his eyebrows furrowed. "But you do," he said at last, calmly and with utmost sincerity and conviction, "Your entire life is a wish."
 
 * The world is his dream and we mere phantasms which haunt our corner of his dream for a brief time.
 
@@ -304,6 +482,16 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 ### Weekly-Rate Motel
 
+* She sees a woman out the window, pushing a stroller down the sidewalk and longs to be her, sees how far she is from that reality and it breaks her heart.
+
+
+### The Book
+
+* A crude sketch in the book of a man inside a box
+
+* When he has the book, it is written in strange English, with words he does not understand. There is repeated reference to the ‘words of admittance’ but he cannot find them anywhere mentioned. As he is drifting off to sleep reading his vision blurs and he sees hidden text on the page, between the visible words. From this he learns the phrase which will open the door.
+
+
 
 ## The Fetus
 
@@ -311,6 +499,37 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 * Fetus as a conclusion to the story, a kind of redemption to his suffering?
 
+* A voice within, yet not a voice. It comes over you like an urge or a compulsion. And it says, Eat not the fruit of this world. You think this will not make life here easy. He has joined with the band of scavengers who scour the plains and eat the ‘fruit’. Protect the fruit of this world. Join us. You are like us. We grow stronger the more we stay together.
+
+* It was funny, well not funny at all, but fascinating. Before those words ‘you are one of us’ were uttered you don’t remember what you were, if you even had a corporeal existence at all. Yet as if the act of speaking those words made it so, you look down and find that you are in fact like them, though you lack the blackened carapace that seems to cover them all.
+
+* A place where you can make things appear with your mind?
+
+* Should feel like a discovery, each scene revealing something strange and mysterious about the world in which you are in.
+
+* The Fetus - make it feel like Revelations, strange vision after strange vision, unfolding in front of our protagonists eyes. He is along for the journey until he decides to act and save the fetus.
+
+* The Fetus - craft the narrative itself to pull the reader through. End first chapter as the protagonist crests an outcropping overlooking a valley, ‘you cannot believe your eyes.’ The protag eats the mud and debris, though there is no nutrition in it.
+
+* The Fetus - protagonist is not aware he/she is not human, until the encounter with the carapaced hunters.
+
+* The Fetus - Exploring the Ruins of a Once-Great Civilazation.
+
+* You are filled with an inconsolable longing but for what exactly you do not know.
+
+* You encounter a jellyfish-like enormity whose victims are visible within its belly, in various states of corruption. You see hopeless tentacled creatures lashing against the translucent membrane, in pain. You encounter a lightning storm that is conscious. It sends electricity out and moves with the wind. Everything in this place is about eating.
+
+* Everything about you is consumption, unending.
+
+* Everything here is consumption, unending.
+
+* You hate what you see. And you are consumed by that hatred.
+
+* The Fetus - he walks through a forest of old bones, gargantuan and fractal-shaped.
+
+* The Fetus - you feel as if who you are or were faded is there but obscured, in a fog that will not blow through. There are times it comes into a clearing and you glimpse it better.
+
+* The Fetus - a constant sense of unease, homesickness, nostalgia for a time and place you can’t remember.
 
 
-Where you're at: 'He finds a todo list Abigail wrote to herself'
+Where you're at: 'I believe they may be responsible for this woman’s death.'
