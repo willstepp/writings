@@ -1,82 +1,36 @@
-The eaters of the fetus try to recreate it, mechanical, dead, mundane
-work.
-
-He triumps over them by yielding to their violence.
-
-The story diverges at a single point, either resenting the fetus and trying to recreate the fetus by machine, or embracing the loss, descending and becoming a fetus
-
-The creatures appear transclucent though this is because his eyes can see through their flesh, like x-rays, rather 
-than because their skin had that characteristic.
-
-A parable about a man who finds himself lost in a forest where the trees 
-are barren and the ground is covered in leaves. The man is unable to remember his 
-name or where he's from. He can't event remember long he has been walking. He 
-discovers a strange fetus floating in a milky pond. In the surrounding forest 
-there are creatures who want to harm the fetus and he protects it from them.
-
-An enormous sun that overtakes the sky and burns away the leaves.
-
-A blue nebula, with tentacles spread across the black firmament. Something so far from him, light years away. Something alluring. If wings sprouted from his back one day he would fly to it.
-
-The creatures black, hardened. Later learn they were burned by the sun.
-
-After he nutures the fetus and it departs, he can either stumble in sadness and clean 
-himself in the milky waters, sinking in and discovering a world below the surface, where 
-he loses his body and floats the surface as a fetus himself, nourished by the waters and a 
-tendril from some depths.
-
-Or, he can grow bitter and angry and resent the fetus for leaving him, burned further, and 
-join in with others who attack other fetuses, and those who want to protect them.
-
-If you join the creatures you learn they hide (in some weird way) during the sunrise, this 
-implies that at one time they too protected fetuses, being exposed, and somehow turned.
-
-In the milk he joins with another being, a scene of making love, becomes the fetus.
-
-You call the things you see all around you trees, and rocks, and grass, and leaves, but not 
-because they are really those things, but because that is how your mind is able to make sense of them. 
-Your memory of those things creates the association, since they have the nearest relationship through 
-both form and behavior. But then sometimes the thing you call a tree will bend down consciously 
-and sniff around and the illusion is broken. But you can't help yourself. It's how the mind works.
-
-He could no longer take the BS. 
-
-"My soul is starving for something good. Something true." As he spoke these words 
-aloud in the car he recognized it was not something people said. Normal people don't speak like that.
-
-I know you’re going through hell, but I don’t deserve to be talked to like that.
-
-Fetus as a conclusion to the story, a kind of redemption to his suffering?
-
-In the central garden of the park there was a room. No building, just a room. The realization of that caused him confusion. Yet there it was.
-
-Blue whale, Momo - something to do with that, maybe instead of following the con-man, he receives an email from him, initiating the game, which leads to the Murder Kroger, behind which he discovers a park in which there is a cabin. The old man who lives there takes your grief. The final message says to kill the man who lives in the room.
-
-images of the murder, eviceration, other things which reveal about his wife
-
-His pain is the loss of a wife and child from a murder/suicide from text game (only hinted at)
-
-The man who lives in the room is part plant part human.
-
-Part one ends with a vision of the future, where the elder thing breaks apart the world in space.
-
-How does the man figure into it? How does he act as the white rabbit? Maybe the man doesn't know why his wife murdered his newborn son and herself. The only thing connecting them is a symbol.
-
-Receives an email with the subject line, 
-
-'Thanks, brother!'
-
-Inside is a link, clicking it opens an app whose icon is the same symbol. Installing it triggers the game.
-
-
-Insight into Will: 'The wisest one of all formed no opinions.' He wants to remain an observer, curious but not a part of things.
-
-
 # Email Notes
 
 ## The Man Who Lives in the Room
 
 ### General
+
+* He could no longer take the BS. 
+
+* "My soul is starving for something good. Something true." As he spoke these words aloud in the car he recognized it was not something people said. Normal people don't speak like that.
+
+* I know you’re going through hell, but I don’t deserve to be talked to like that.
+
+* Fetus as a conclusion to the story, a kind of redemption to his suffering?
+
+* In the central garden of the park there was a room. No building, just a room. The realization of that caused him confusion. Yet there it was.
+
+* Blue whale, Momo - something to do with that, maybe instead of following the con-man, he receives an email from him, initiating the game, which leads to the Murder Kroger, behind which he discovers a park in which there is a cabin. The old man who lives there takes your grief. The final message says to kill the man who lives in the room.
+
+* Images of the murder, eviceration, other things which reveal about his wife
+
+* His pain is the loss of a wife and child from a murder/suicide from text game (only hinted at)
+
+* The man who lives in the room is part plant part human.
+
+* Part one ends with a vision of the future, where the elder thing breaks apart the world in space.
+
+* How does the man figure into it? How does he act as the white rabbit? Maybe the man doesn't know why his wife murdered his newborn son and herself. The only thing connecting them is a symbol.
+
+* Receives an email with the subject line, 'Thanks, brother!'
+
+* Inside is a link, clicking it opens an app whose icon is the same symbol. Installing it triggers the game.
+
+* Insight into Will: 'The wisest one of all formed no opinions.' He wants to remain an observer, curious but not a part of things.
 
 * He stops caring, decides to tell only the truth. Creates a scene in a meeting. Is fired. While driving home a man asks for a ride. Then spins him a yarn, finally asks for money. The man stops at an ATM and gives him his daily maximum. He follows the man into a park. The man is living in a condemned building next to the park. He finds the man paying an elderly woman who lives alone. He learns that for a fee she will take on your sins, freeing your conscience. He goes to see her but finds she has hung herself. Somehow find the deep web. A woman in trouble. Wants to help her. Deeper into dark corners of the city. Start introducing Cthulu mythos.
 
@@ -120,10 +74,6 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 
 * In the journals the suicide man describes how he found the man who lives in the room, how he slowly sucked his lifeforce to feed some eternal horror deep within the bowels of the Earth, becoming less and less like a man himself until the man who lives in the room became something else. At the same time the reader investigates and tries to find this man who lives in the room, discovers a portal where time and space bend, though not explained. He uncovers an ancient magic, goes into the deep web, murder Kroger, and as the story closes he learns the magic, the ability to take on the suffering of others. Suicide man walks into the room. The End.
 
-* Bukowski does a great thing in his books. His chapters have an ability to resonate outside their boundaries. You feel you're getting only a slice of a larger story.
-
-* Evoke the nominus. *numinous.
-
 * He has a dream the night after reading the suicide note, about a distraught woman writing in her journal, putting it in a drawer and then getting up and putting a noose around her neck and hanging herself. This makes him curious, so he goes to the house, where he discovers the journal.
 
 * Sanctum Kthadras
@@ -164,8 +114,6 @@ Insight into Will: 'The wisest one of all formed no opinions.' He wants to remai
 * Do not ask me for my opinion. I do not know — that is all. HP Lovecraft, The Color Out of Space
 
 * I think the problem with Laird Barron is that his writing is too eloquent and ‘le mot just’ and therefore feels safe in a way that undercuts any horror the story contains. With his work I feel like I’m comfortably removed from anything too disturbing to my worldview. Compare this to Ligotti, whose work feels truly dangerous, like the ground has crumbled away beneath your feet, exposing you to the raw void.
-
-* Only use description to describe the environment, people, atmosphere, not to project metaphors or other ideas you have. Keep it about the reality of story’s world. In other words don’t write like the previous reply (He rounds a hill and sees the skyline of the city spread before him, half a million lights coalesced into a glow...). This is important if you want readers to feel the uncanny when it comes.
 
 * The story of a photojournalist who took a photo of a starving child who died and then soon thereafter killed himself.
 
@@ -211,6 +159,73 @@ Give an oath/vow about being a whale
 * Before you get any deeper, be sure this is what you want.
 
 * The trials have him hurt things, starting small.
+
+* He is threatened to do the trial, ending with the words of entrance.
+
+* Could there be a parallel in the trials and abigail’s deteriorating spirit?
+
+* They both snap at a woman in a queue. He snaps at a woman. She snaps at a man.
+
+* The trials happen via a smartphone that is left in a park under a statue. Remember the number 3365.
+ The phone is locked with that code. On the phone is a text message, 
+
+You will get the book once you complete the trials. Reply OK if you understand.
+OK
+Do not give this phone to authorities. We will know. We know who you are.
+(receives drivers license photo of Will, his address)
+Reply OK if you understand
+OK
+Do not give this phone to authorities. We will know. We know who they are.
+(receives drivers license photo of his family and their address)
+Reply OK if you understand
+OK
+This phone has a camera. Record video as proof. Send video to complete stage. Reply OK if you understand.
+OK
+
+1/10 - Make a stranger uncomfortable
+2/10 - Mock a stranger
+3/10 - Steal food from a stranger
+4/10 - Make a stranger lose their job (prove by stealing)
+5/10 - Make a stranger lose their home (prove by violating some rule of lease)
+6/10 - Make a stranger lose their spouse (plant evidence of affair)
+7/10 - Make a stranger lose their children (plant evidence of child pornography, planned murder of family)
+8/10 - Make a stranger beg for their life (mug them with knife)
+9/10 - Talk a stranger into suicide (prove by a phone call from suicide hotline)
+
+* By unlocking this phone you have begun the initiation. Reply OK if you understand.
+
+* Read and understand.
+
+* The horror needs to be universal, hers 'How thin the walls that sheltered me...', his is believing he is impartial to the suffering in the world, but turning out not to be.
+
+* Need to make sure you establish why Abigail keeps writing the journal, in a plausible way.
+
+* Make sure the dates of the journal line up with the timeline of Will's narrative, time of year, weather.
+
+* Second chapter picks up back at home, feeling good about his first day, describe new apt, walk down the street for dinner, slowly turn to computer, what he discovers about Abigail. Sees an email about having to be out from a death in the family. Looks up her profile on intranet, has photo, birthday, hobbies, contact information including phone, address. Finds photo album of her with her mother on a cruise. That turns his thoughts to his own family and friends, with whom he is now estranged. End with him feeling deeply, deeply alone. Third Chapter: A week passed...
+
+* Second chapter needs a narrative draw, maybe getting the reminder to write in journal. By the third chapter he’s still receiving the notification, every other day. But still hasn’t found it, which leads into his drive by her house.
+
+* And then he emerged momentarily from the thoughts stirring in his brain and looked around in the dark, in bed, in the bedroom, in the apartment, in the city, and in the perfect stillness of three in the morning he realized he was and had been deeply, deeply alone.
+
+* It’s very important for Abigails scenes to flow from one another instead of being episodic, so that you can trace everything back, so that it’s all related.
+
+
+### Writing
+
+* You have to believe in the story as a reality. You have to believe in your own ability to create it. Hold nothing back out of fear. Believe!
+
+* Be suggestive, not pornographic in detailing both sex and violence.
+
+* Only use description to describe the environment, people, atmosphere, not to project metaphors or other ideas you have. Keep it about the reality of story’s world. In other words don’t write like the previous reply (He rounds a hill and sees the skyline of the city spread before him, half a million lights coalesced into a glow...). This is important if you want readers to feel the uncanny when it comes.
+
+* Bukowski does a great thing in his books. His chapters have an ability to resonate outside their boundaries. You feel you're getting only a slice of a larger story.
+
+* Evoke the nominus. *numinous.
+
+* Trust the reader to fill in the gaps. Make them participate in the storytelling!
+
+* Samuel Delaney on what makes a believable character: purposeful, habitual, and gratuitous actions
 
 
 ### Abigail
@@ -275,6 +290,63 @@ Give an oath/vow about being a whale
 
 * We cannot ignore the inferno.
 
+* She begins with sex and drugs, then when money runs out she starts tricking, then robbing, then violence.
+
+* You ain’t a bitch. You just ain’t there at all.
+
+* ...my faith, even though I didn’t know to call it that back then. It was faith, a deep faith in the goodness of all things.
+
+* How precarious life is. How delicate.
+
+* How delicate the parts that separate a person from happiness and endless despair.
+
+* What a mess my life turned out to be...
+
+* Her first journal entry should talk about death of mother, how she is unable to sleep, unable to be in the house not from the bad but good memories. Then into day she meets mwlir
+
+* She has a moment where she laughs and becomes guilt-ridden. Someone tells a joke?
+
+* Abigail finds something that reminds her of a bad memory, a fight she and her mother had (a grapefruit spoon) and cries all night regretting it, wishing she could take it back.
+
+* A doll. She wanted a Cabbage Patch Kid but her mom couldn't afford it and got her a knock-off. Her mom was so excited to give it to her and she could see the hurt in her eyes when Abigail started crying.
+
+* She gets an STD, HIV, Herpes? Incurable for sure
+
+* Maybe not
+
+* She feels as if she is living inside of a deep dream.
+
+* Abigail doesn't want to admit, even to herself, that she is slipping. She 'puts on a brave face'. It should be endearing at first, and then sad.
+
+* She writes gibberish. She doesn’t care.
+
+* 'A memory of a cool, summer night when they lived in a trailer out in Adairsville, katydids chirping in the nearby thickets, on her stomach in the living room in front of the box fan on its highest setting, melting crayon tips against the spinning center of the blades, mother in the kitchen frying up chicken, dancing to Reba McEntyre on the radio as she worked. She watched her mother through the spinning blades of the fan and breathed in the greasy aroma from the frying pan. I was overcome by emotions I wasn’t able to articulate then, but can now, of love and true happiness and most of all a deep faith in the goodness of all things.'
+
+This quote should be in the first journal entry. She has been told to remember something good about her mother...
+
+* How precarious it all was. How thin the walls that protected me from a despair with no end.
+
+* How precarious it all was. How thin the walls that protected me against a despair without end.
+
+* How precarious it all was, looking back. How thin the walls that sheltered me my entire life from a despair that has no end.
+
+* How precarious it all was, looking back. How thin those walls that sheltered me all my life against a despair that has no end.
+
+* How precarious it all was, looking back. How thin the walls that sheltered me all my life against a despair that has no end.
+
+* April 9
+Mentioned to Dr. Patel during our appointment today that I kept a diary back in high school and he suggested it could be helpful for me to start a new one. To "get all these feelings out of your head and onto paper" as he put it. So this is me starting a new one. Still not sure about it and I don't really feel like diving into things right at this moment, but I wanted to write something at least so I can tell him I'm doing it.
+
+* he suggested it could be helpful for me to start a new one as part of my therapy.
+
+* April 10
+Today I was pulling out of the Walmart parking lot, waiting at the red light, and right in front of me a Honda turning into the lot was t-boned by a pickup truck with a rebel flag in the back window. It happened right in front of me. I saw the windshield shatter, the airbag deploy, the lady in the car whiplashed, all in slow motion. It was shocking. I felt a sense of responsibility to do something to help. At the same time I was in traffic, there were also cars behind me, waiting. The light turned green and I made a wide turn to avoid the wreckage and continued down the road. Did I do something wrong? A part of me says no, but there's another part of me that says yes. It's a smaller voice, but it's there. I think you should help people in life. Today I failed to do that and my guilt is my conscious re-affirming that to me. I can rationalize and tell myself it was better for me to get out of the way, that I would have just caused more problems if I stopped to help. But bullshit. I should have done something. And I didn't. I have a feeling I'll still think back on this day fifty years from now, when I'm old and shriveled up. Maybe on my death bed I'll remember this day and still feel this pang of regret. If mama was still here I could tell her about it and she would tell me not to worry. But she's not.
+
+* April 16
+Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said it could take up to two weeks to achieve the full effect. In our appointment today I told him I started this journal based on his recommendation. He was glad to hear that. He asked what I wrote so far and I told him about the accident at the traffic light and how it made me feel guilty. He reassured me that in a public place that is a common feeling. The Bystander Effect, he said it's called. Perhaps I could have stopped or called the police, but that it was perfectly normal to react how I did. Weirdly, him saying that made me feel better. Like lifted a weight I had been carrying around all week, from that little thing. He asked me to write down some good memories about my mother in the journal. That it "doesn't have to be all bad feelings". I told him I would. Just not today. Tomorrow.
+
+* I wish I never found that room. I wish I had never gone inside. There is so much I don’t understand and never will.
+
 
 ### Will
 
@@ -332,6 +404,35 @@ Give an oath/vow about being a whale
 
 * Millions of souls asleep and dreaming of surreal, wonderful, and even terrifying worlds that live only a few hours of time and then blink out of existence forever. In these dreams we process the mundane problems of waking life and fulfill the deepest and most secret wishes of our hearts. Weird shit if you thought about it long enough. Fucking weird.
 
+* He is the one who wakes with feelings of suffocation, remembers being locked in a small wooden box, where he can’t move.
+
+* brother in diapers. Once we were so close, but I haven’t spoken to him since Christmas. That makes me very sad.
+
+* What had begun as a morbid curiosity had now changed. He felt as if he were connected to Abigail’s suffering and wanted to reach across time itself to do what, help? Yes. Somehow he wanted to help this woman who had been dead for more than half a year.
+
+* Across the threshold of time and space
+
+* Across the barrier of time and space
+
+* Give Will a wry sense of humor that makes him a bit aloof from the people around him.
+
+* His vision of Kthadras is a psychedelic vision
+
+* Will is estranged from his family. Years of bitterness and resentments that grew into a wall of briars between them.
+
+* After cursing out his mother: He knew he was in the wrong but pride had prevented him so far from taking any steps towards reconciliation. The thought of apologizing to his mother or any of the rest turned him sour, going through that whole predictable charade. He didn't have the energy anymore. Best just let it die.
+
+* He wrestles with reaching out to his mother but his pride won’t let him. He is unable to forgive.
+
+* He felt restless, rootless, and deeply, deeply alone.
+
+* He takes down his dating profile but cannot say why.
+
+* Nervous breakdown. That was the phrase nobody had ever said to him, but he had seen it in their eyes and heard it in their voices. His family and friends. Estranged now, for one reason or another. This was a beginning. A new job in the city, a new apartment in a hip, gentrified neighborhood in the Poncey-Highlands.
+
+* Estranged now, because of the things he had said and done. Things you can’t take back.
+
+* The deeply, deeply alone sentence should come in chapter two.
 
 
 ### Rabbit
@@ -339,6 +440,20 @@ Give an oath/vow about being a whale
 * The pendant is in the con mans mouth
 
 * His name is Rabbit. He’s a black albino.
+
+* Rabbit attacks him, saying ‘Gimme dat key, gimme dat key’.
+
+* Motherfucker ran so slow he coulda run a whole other marathon before he finished the first one.
+
+* He would come out with these bizarre non-sequiters from time to time, for example he told me about a cousin of his from Lafayette who ran long distance races, and I quote: “Motherfucker ran so slow he coulda run a whole other marathon before he finished the first one” Things like that, things that sounded normal if you weren’t paying attention but once your brain began processing the meaning of it it made less and less sense.
+
+* "Sometimes it's like my brain got a mind of its own, know what I mean?" Rabbit says this disorienting phrase when they are driving.
+
+* Word Salad
+
+* He told me he liked cars and was going to put a new exhaust on his 92 Mustang GT, so you can really hear that engine purr. Then he said he had a cat and he was going to put an exhaust on it too one day. His brain went like that, one topic bleeding into another, making less and less sense.
+
+* "Sometimes it be like my brain got a mind of his own, know what I'm sayin?"
 
 
 ### Work (Sanctuary Park)
@@ -361,6 +476,17 @@ Give an oath/vow about being a whale
 
 * Why is it everyplace you work there has to be at least one asshole? They joke at lunch. And if there isn’t one, it may be you! I’ve never worked with an asshole.
 
+* They found her hanged in her mother's bedroom closet. She had been dead for three days when they found her. Neighbors said there was an awful smell. That's all I know.
+
+* Imagining his naked walk inside, he references the imp of the perverse by Poe.
+
+* Sounds like Abbie really left you guys high and dry. *crickets*
+
+* As he watches the workers walk from the parking lot to the building, he feels a lurking despair — this will be my life from now on. Day in, day out. Here is the routine.
+
+* Abigail passed away. About six months ago now. It was -- she committed suicide. They found her hanging in a closet, in her mother's bedroom closet. They said she -- I'm really sorry. I had no idea. They didn't tell me. Some days me and her would walk down to the pond, down that path yonder, on our lunch break. We would talk about things. Office gossip. Family stuff. You know. She was a beautiful soul, Abigail was. And so kind to me.
+
+
 ### Murder Kroger
 
 * The place is below the Murder Kroger. The Man Who Lives in the Room. He takes away feelings of sorrow. The place links to the past and the future. Somehow the Dark Web is involved.
@@ -381,6 +507,20 @@ Give an oath/vow about being a whale
 
 ### State Hospital (Virginia)
 
+* Maybe instead he has a surreal encounter with a man who he thinks he's running from but ends up being afraid of him.
+
+* There is a chase through a surreal (how?) building, room to room. He is being chased by someone with a knife. Then he is attacked and is stabbed, bleeding out the lights come on and he is the one holding the knife, a black albino is on the floor, bleeding out. "Don't kill me man. Don't kill me." He looks with horror at the knife and drops it, then looks in a satchel he is carrying - the book.
+
+* Give a reason for the hallucination, a strange smell, a fume of some kind.
+
+* The state hospital he must approach from a certain place, time, and orientation. That is what explains the surreal atmosphere.
+
+* The state hospital, one room the walls, floors, and ceiling are fluid and they swim through.
+
+* He was laughing. Laughing at me.
+
+* In the asylum he sees a skull, emerging from a storm with lightning
+
 ### Will's Apartment
 
 ### Abigail's Apartment
@@ -392,6 +532,10 @@ Give an oath/vow about being a whale
 * The place looks like his dream, except reverse. And darker. He uses phone as flashlight.
 
 * Exploring the house he sees his reflection in the mirror and is startled.
+
+* Once the idea was planted within his brain it would not leave him alone. It seemed wrong and inwardly he even asked himself, can a person do things like this? Somewhere inside he knew he wanted his inner voice to reassure him. Don't be silly, of course not. There are laws prohibiting such things. But that voice never came and he knew that as long as no one found out, a person could do things like this. And worse things, if need be.
+
+* While exploring the house, Will sees an old doll on the bed next to the pillow, maybe it startles him.
 
 
 ### The Goat Farm (Art Center)
@@ -426,6 +570,18 @@ Give an oath/vow about being a whale
 
 * You have this pendant because they want you to have it. Why don’t you see that?
 
+* I believe they may be responsible for this woman’s death. Abigail? Yes. Not suicide then? They may have brainwashed her, I don’t know.
+
+* You can’t save her. She’s gone. But if I can uncover the truth, then —
+
+* Their role is to offer sustenance.
+
+* Make it more explicit that the doctor thinks the mythology is bullshit but that the order is real (from Derek)
+
+* One thing I’ve learned over years and years studying religion and occult belief systems. Human being’s capacity for self-delusion is very, very high.
+
+* If you can imagine it, you can talk yourself into believing it.
+
 
 ### The Room
 
@@ -451,9 +607,24 @@ Give an oath/vow about being a whale
 
 * Why should I seek out suffering? I don’t believe in that sort of thinking. You don’t need to do anything. Suffering will seek out you.
 
+* Where are we? A place, a time, and an orientation.
+
+* Where am I? You are in a time, a place, and an orientation.
+
+* A certain place, a certain time, a certain orientation
+
+* The walls of the room are pulsating, slowly, like the slow beating of a heart.
+
+* The man's deterioration should expose his skull
+
+* A diffuse light bathed the room and yet there was no fixture or lamp that I could see. The light reminded me of a particular alley...
+
+
 ### McDonald's
 
 ### George's (Bar and Grill)
+
+* Will becomes frustrated and texts the number he was given by Dr. Burrows, offering 5000 upfront for a copy of the handbook. Fifteen minutes later he receives a reply: "ok" End of chapter
 
 ### The Man
 
@@ -479,10 +650,22 @@ Give an oath/vow about being a whale
 
 * Your entire life is nothing but a wish.
 
+* Your entire life is a wish.
+
 
 ### Weekly-Rate Motel
 
 * She sees a woman out the window, pushing a stroller down the sidewalk and longs to be her, sees how far she is from that reality and it breaks her heart.
+
+* Mother is wearing a t-shirt with a bluebird on it. She can't stand the bluebird.
+
+* Where is your mama? I don't have a mama.
+
+* She sees the phrase etched in the headboard, underneath - The Way of Force is Not the Way of Love. And her mind spins off, trying to figure out who could have written it. Was it a preacher, waylayed...
+
+* The woman she watches is kind, helps her neighbor.
+
+* She imagines killing the woman, but the actual killing is off page
 
 
 ### The Book
@@ -490,7 +673,6 @@ Give an oath/vow about being a whale
 * A crude sketch in the book of a man inside a box
 
 * When he has the book, it is written in strange English, with words he does not understand. There is repeated reference to the ‘words of admittance’ but he cannot find them anywhere mentioned. As he is drifting off to sleep reading his vision blurs and he sees hidden text on the page, between the visible words. From this he learns the phrase which will open the door.
-
 
 
 ## The Fetus
@@ -507,13 +689,13 @@ Give an oath/vow about being a whale
 
 * Should feel like a discovery, each scene revealing something strange and mysterious about the world in which you are in.
 
-* The Fetus - make it feel like Revelations, strange vision after strange vision, unfolding in front of our protagonists eyes. He is along for the journey until he decides to act and save the fetus.
+* make it feel like Revelations, strange vision after strange vision, unfolding in front of our protagonists eyes. He is along for the journey until he decides to act and save the fetus.
 
-* The Fetus - craft the narrative itself to pull the reader through. End first chapter as the protagonist crests an outcropping overlooking a valley, ‘you cannot believe your eyes.’ The protag eats the mud and debris, though there is no nutrition in it.
+* craft the narrative itself to pull the reader through. End first chapter as the protagonist crests an outcropping overlooking a valley, ‘you cannot believe your eyes.’ The protag eats the mud and debris, though there is no nutrition in it.
 
-* The Fetus - protagonist is not aware he/she is not human, until the encounter with the carapaced hunters.
+* protagonist is not aware he/she is not human, until the encounter with the carapaced hunters.
 
-* The Fetus - Exploring the Ruins of a Once-Great Civilazation.
+* Exploring the Ruins of a Once-Great Civilazation.
 
 * You are filled with an inconsolable longing but for what exactly you do not know.
 
@@ -525,11 +707,72 @@ Give an oath/vow about being a whale
 
 * You hate what you see. And you are consumed by that hatred.
 
-* The Fetus - he walks through a forest of old bones, gargantuan and fractal-shaped.
+* he walks through a forest of old bones, gargantuan and fractal-shaped.
 
-* The Fetus - you feel as if who you are or were faded is there but obscured, in a fog that will not blow through. There are times it comes into a clearing and you glimpse it better.
+* you feel as if who you are or were faded is there but obscured, in a fog that will not blow through. There are times it comes into a clearing and you glimpse it better.
 
-* The Fetus - a constant sense of unease, homesickness, nostalgia for a time and place you can’t remember.
+* a constant sense of unease, homesickness, nostalgia for a time and place you can’t remember.
 
+* lured by a call from a ruined civilization 
 
-Where you're at: 'I believe they may be responsible for this woman’s death.'
+* swallowed by an immensity, digested, then evacuated
+
+* A storm of lightning and wind that had blown for thirty seven million years. Take shelter from the sunrise
+
+* Seek shelter from the rising of the sun.
+
+* On the alien world, a storm that never ends, until the sunrise burns the clouds away.
+
+* You wonder where you have this idea of a better place, a better world of less struggle and less pain. If this is all there is and all that can be, why does your mind wander there?
+
+* Should feel like Begotten.
+
+* When the lifeform emerges from the milky ocean, the atmosphere has regenerated, the implication being perhaps millions of years has passed.
+
+* The way of force is not the way of love.
+
+* Should feel psychedelic, like a salvia Trip. The buildings in the city are portals to other dimensions. The lacteal sea.
+
+* A lacteal fluid
+
+* The world of the fetus is chaotic, the life, the geography, the physics - so his act of empathy is an anchor to something that makes sense.
+
+* The eaters of the fetus try to recreate it, mechanical, dead, mundane work.
+
+* He triumps over them by yielding to their violence.
+
+* The story diverges at a single point, either resenting the fetus and trying to recreate the fetus by machine, or embracing the loss, descending and becoming a fetus
+
+* The creatures appear transclucent though this is because his eyes can see through their flesh, like x-rays, rather 
+than because their skin had that characteristic.
+
+* A parable about a man who finds himself lost in a forest where the trees 
+are barren and the ground is covered in leaves. The man is unable to remember his 
+name or where he's from. He can't event remember long he has been walking. He 
+discovers a strange fetus floating in a milky pond. In the surrounding forest 
+there are creatures who want to harm the fetus and he protects it from them.
+
+* An enormous sun that overtakes the sky and burns away the leaves.
+
+* A blue nebula, with tentacles spread across the black firmament. Something so far from him, light years away. Something alluring. If wings sprouted from his back one day he would fly to it.
+
+* The creatures black, hardened. Later learn they were burned by the sun.
+
+* After he nutures the fetus and it departs, he can either stumble in sadness and clean 
+himself in the milky waters, sinking in and discovering a world below the surface, where 
+he loses his body and floats the surface as a fetus himself, nourished by the waters and a 
+tendril from some depths.
+
+* Or, he can grow bitter and angry and resent the fetus for leaving him, burned further, and 
+join in with others who attack other fetuses, and those who want to protect them.
+
+* If you join the creatures you learn they hide (in some weird way) during the sunrise, this 
+implies that at one time they too protected fetuses, being exposed, and somehow turned.
+
+* In the milk he joins with another being, a scene of making love, becomes the fetus.
+
+* You call the things you see all around you trees, and rocks, and grass, and leaves, but not 
+because they are really those things, but because that is how your mind is able to make sense of them. 
+Your memory of those things creates the association, since they have the nearest relationship through 
+both form and behavior. But then sometimes the thing you call a tree will bend down consciously 
+and sniff around and the illusion is broken. But you can't help yourself. It's how the mind works.
