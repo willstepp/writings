@@ -8,6 +8,7 @@ REVISION ONE
 -) Record chapter as is, only fixing minor readability problems you discover
 
 
+Epilogue begins: My imprisoners depart and I am left alone. In the silence and the darkness of this room I return again to the place I once was.
 
 Epilogue: And then he goes. And the door closes. And the darkness and the silence returns. So then I return to the place I was.
 
