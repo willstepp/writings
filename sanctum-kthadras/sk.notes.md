@@ -428,9 +428,20 @@ The man she meets in browsing personals ends up being her drug source, pimp, tha
 
 * I was overcome by feelings I wouldn't have been able to articulate as a nine year old girl, but can now I think, of home, and pure love, and most of all a deep faith in the goodness of all things.
 
-* I was overwhelmed by a feeling I wasn’t able to fully understand as a nine year old girl, but do now I believe — of home, and pure happiness, and most of all a deep faith in the goodness of all things.
+* I was overwhelmed by a feeling I wasn’t able to fully understand as a nine year old girl, but do now I believe — of home, and unconditional love, and most of all a deep faith in the goodness of all things.
 
 * Today I watched an episode of The Office. It was the one where Michael...and I caught myself giggling like an idiot...and caught my reflection in the glass of the entertainment center. I turned it off. I don't want to be happy. I don't want to laugh.
+
+* 
+
+all I want is for you to be alive again
+to see your radiance
+to feel your warmth
+nobody warned me
+about the darkness
+now I am driftless
+alone in the void
+a planet without a sun
 
 ### Will
 
