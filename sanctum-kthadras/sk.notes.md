@@ -210,6 +210,21 @@ OK
 
 * It’s very important for Abigails scenes to flow from one another instead of being episodic, so that you can trace everything back, so that it’s all related.
 
+* Chapter Two: It’s a downpour, driving home
+
+* Chapter 4
+Start of journal
+Ends with Adairsville memory of mother
+
+* Chapter 5
+Meeting man who lives in the room
+Should end immediately after, or maybe with the passage about ‘he never left...’
+Do not end with her happy. That happens at beginning of next Abigail chapter
+
+* Actually Chapter 4 is actual house visit. So Chapter 5 is Start of journal.
+
+* The man in the room is not some symbol for drug abuse or ‘the man’ as in a pusher. But there is a relationship between them. Drugs are not a means within themselves, they are used to fill some deeper hole. The man is interested in this void that is growing within Abbie.
+
 
 ### Writing
 
@@ -226,6 +241,29 @@ OK
 * Trust the reader to fill in the gaps. Make them participate in the storytelling!
 
 * Samuel Delaney on what makes a believable character: purposeful, habitual, and gratuitous actions
+
+* At some time between first and final draft, you must ask yourself of each sentence, “What is it saying?” and “What is it doing?” Next, ask if there is any way to make it say it more intensely, or do it with more bravura. Even better, is there any way to make the sentence be an example of what it’s about? Failing that, is there a way to get the sentence to say, do, or be something that supports the basic statement in an interesting way? Ask yourself if any part of the sentence gets in the way of (prepositional phrases, frequently toward the sentence’s end, are often the worst offenders—also, parenthetical phrases or dangling ideas) the sentence’s doing its job as economically as possible. Can that part be reduced or eliminated? - Samuel Delaney
+
+* Things you do in writing to avoid:
+1) overly verbose sentences
+2) rushing through scenes (pacing)
+3) using flowery dialogue attributions
+4) lazy description, narration
+
+* Microincidence, micronarrative
+
+* Break all chapters into scenes. Understand each scene’s purpose before you begin the chapter.
+
+* Think about the micro-narratives happening at both scene and chapter level. Consciously develop them and be sure to resolve them in a satisfactory way.
+
+* “The great enemy of clear language is insincerity. When there is a gap between one’s real and one’s declared aims, one turns as it were instinctively to long words and exhausted idioms, like a cuttlefish spurting out ink.”
+― George Orwell, Politics and the English Language
+
+* You can approach the act of writing with nervousness, excitement, hopefulness, or even despair--the sense that you can never completely put on the page what's in your mind and heart. You can come to the act with your fists clenched and your eyes narrowed, ready to kick ass and take down names. You can come to it because you want a girl to marry you or because you want to change the world. Come to it any way but lightly. Let me say it again: you must not come lightly to the blank page.
+
+* Write in scenes, not chapters. How many scenes per chapter is down to rhythm. Whatever feels right.
+
+* Start scenes late as possible. End with a punch, narratively or emotionally.
 
 
 ### Abigail
@@ -347,6 +385,52 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 
 * I wish I never found that room. I wish I had never gone inside. There is so much I don’t understand and never will.
 
+* I feel...happy. I really do. Wanted to tell somebody (even if it's just me).
+
+* I awoke to find a pit had opened in the floor of my bedroom, my mother’s bedroom, where I now slept. And looking into it I could see that it had no bottom. Everything would, I knew, eventually fall into this pit, and it paralyzed me. And then somehow I realized I was dreaming and the pit was a part of my dream but that also it was a part of me, and then I woke up.
+
+I’m sorry for not always being a good daughter to you. I’m sorry for putting you second. All those times when I saw you were down and didn’t ask how you were.
+
+* Abigail is like the girl in the play, gentle, kind - she is waifish, always wearing a cardigan, short bob of hair exposing a delicate collar bone. Think a young Olivia Williams.
+
+* April 23
+Happy. Truly I am. Last night I had the most peaceful sleep and only good dreams. Tomorrow I will write more. Today is for me.
+
+* It started one night when I couldn’t sleep. Going down the internet rabbit hole I somehow ended up on Craigslist personals...
+
+* But I wasn’t there to meet a man. I was there cause some girl on a message board said that’s how she scored when money was tight and she was feeling the burn.
+
+* For the life of me I don’t know what I was thinking. It seems crazy now, looking back. And I do remember thinking, this is not safe Abbie, even as I got out of the car and approached the pathway. It was getting late, already after sunset...
+
+* This is not safe Abbie, you don’t know this man.
+
+* I miss her so much. I just want her to be alive. No one prepares you for this pain. Maybe no one can. No one prepares you for this much hurt.
+
+* I miss her so much. I just want her to be alive. No one prepares you for this much hurt. The center of my world is gone.
+
+* I am driftless. Alone in the cosmos. A planet without a sun.
+
+* How do I live? How can I?
+
+* "You're mine baby. I gave you drugs, you're mine forever."
+And I liked it.
+The man she meets in browsing personals ends up being her drug source, pimp, that she kills.
+
+* I was in a tunnel. I didn’t want happiness because it would betray her memory.
+
+* But now I think I can, of home and pure happiness and most of all a deep faith in the goodness of all things.
+
+* pure love
+
+* I was overcome by a feeling I wouldn't have been able to articulate back then, but can now I think, of home and pure love and most of all a deep faith in the goodness of all things.
+
+* Time was so short. And then gone.
+
+* I was overcome by feelings I wouldn't have been able to articulate as a nine year old girl, but can now I think, of home, and pure love, and most of all a deep faith in the goodness of all things.
+
+* I was overwhelmed by a feeling I wasn’t able to fully understand as a nine year old girl, but do now I believe — of home, and pure happiness, and most of all a deep faith in the goodness of all things.
+
+* Today I watched an episode of The Office. It was the one where Michael...and I caught myself giggling like an idiot...and caught my reflection in the glass of the entertainment center. I turned it off. I don't want to be happy. I don't want to laugh.
 
 ### Will
 
@@ -434,6 +518,24 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 
 * The deeply, deeply alone sentence should come in chapter two.
 
+* He realized he had spent all night inside his own head and only now did he notice the overwhelming stillness of his apartment.
+
+* The weight of his isolation in this strange and  silent city bore down on him and he felt it as a physical sensation, on his shoulders, behind his eyes, and even in his heart. He was sick in his heart and utterly alone.
+
+* Now the weight of his isolation...
+
+* Becoming estranged from his family and friends was not something he had planned for or really wanted. It just happened, one small gesture at a time, not calling back his sister, not being there for his best friend when he asked help to move. And then there was the Thanksgiving debacle, a final blowup that severed all connection for months. It wasn’t that they never spoke at all, a phone call here a text there, but something had been lost. Something that didn’t even have a name really, but now that it was gone he missed it terribly. All he had to do would be to reach out, say forget all this, forgive me as I have forgiven you. All we have in this world are the brief moments of being together. But every time he seriously considered picking up the phone there was something inside him that pulled back, that didn’t want to face the awkwardness and the bringing into light things that had long lived in darkness. He hated it. Everything about it. It made him feel suffocated and more than anything else he longed to breathe free again. But he just couldn’t. Or wouldn’t. And here we are.
+
+* All those moments gone. He was very close to his baby sister once, though nineteen years apart they made up games in the backyard and made impromptu ice cream runs in late summer evenings. But now they were merely polite to one another other, as you would be to someone in line with you at the bank. She was grown, living out of state. But he did love her.
+
+* He was sick in his heart and deeply, deeply alone.
+
+* He just, liked her. And he was mature enough to appreciate how rare that is to find in the world, liking someone.
+
+* He was sick in the heart and deeply alone.
+
+* On the drive home a deluge. He screams until stars appear in his periphery. This outburst of anger shocks him, as he didn't think he was upset.
+
 
 ### Rabbit
 
@@ -486,6 +588,11 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 
 * Abigail passed away. About six months ago now. It was -- she committed suicide. They found her hanging in a closet, in her mother's bedroom closet. They said she -- I'm really sorry. I had no idea. They didn't tell me. Some days me and her would walk down to the pond, down that path yonder, on our lunch break. We would talk about things. Office gossip. Family stuff. You know. She was a beautiful soul, Abigail was. And so kind to me.
 
+* Chapter Three
+A week passed. Starts at work, in a meeting, Will demoing his automation script, and being praised for it. During his talk he gives credit to Abigail, to which there are murmurs and stern looks. There is a party, with drinks, he gets a little drunk and it’s late before he drives home, driving by the address. He goes inside...dream vision.
+
+* slits of rain appeared on the windshield...
+
 
 ### Murder Kroger
 
@@ -520,6 +627,9 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 * He was laughing. Laughing at me.
 
 * In the asylum he sees a skull, emerging from a storm with lightning
+
+* Maybe the man at state hospital shouldn’t laugh, play it more real in the moment.
+
 
 ### Will's Apartment
 
@@ -582,6 +692,75 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 
 * If you can imagine it, you can talk yourself into believing it.
 
+* Kthadras is not a spiritual concept. That’s very important to keep in mind. It is a being just as much a part of the cosmos as you and me. It may not share our biology or chemistry or even our physics, but it is real. At least, to the adherents of the Order.
+
+* There are no known artistic representations.
+
+* What is he, it waiting for?
+Laughter
+That is a very good question that I don’t know the answer to, and unfortunately know one does. The best guess we have about that comes from a series of petroglyphs found in the mountains of Patagonia. *she flips to a slide of some old figures hewn into rock in a artificially lit cave* See the egg here, you remember that from the rubbings I showed you. And now, look what comes after. Anyone recognize it? 
+A bird?
+That’s right, and look at the direction the bird is facing, toward the egg. The direction is not insignificant. This particular series has been translated as ‘Sleeping, it awaits the return’
+I told you we are a poor group, is Kthadras-lore-hunters. We have only straws to grasp at.
+Laughter.
+
+* The Whispers - that’s what they call the book of rituals, parables, we honestly don’t know what’s inside this thing. Or even whether it exists. There was a hoax in 1893. Someone created a book and sold it
+
+* It is thought Moloch, referenced in the Old Testament may very well have been a sect of Kthadras. One of my good friends, Dr. Byron Matthews, a historian at the University of Maine, wrote a fascinating paper about just that subject. If you’d like to read it send me an email and I’ll forward it to you.
+
+* One interesting fact about the sanctums is that they aren’t built, but instead discovered by the order. The sites for worship are chosen for being a known loci of a particular energy. I hesitate to say ‘evil’ because that is not a term the adherents use. But that is what most of us would call it. Places known for being haunted, locations where murders have taken place.
+
+* What about priests? People who live within the sanctum walls, Will asked.
+No clergy that we know about, no hierarchy at all really. Adherents is the only word we can find for those in the order. To my knowledge they don’t live in these places.
+
+* Locus
+
+* But what will happen when whatever is returning returns?
+
+She shrugged. 
+Chuckles around the room.
+
+Welcome to my world. But you know, I sort of love the mystery of it all. What fun is knowing all the answers.
+
+So, human beings are just like little insects on the shell of the earth egg?
+
+You got it, babe.
+
+Damn.
+
+And what happens when the egg cracks?
+
+Exactly!
+
+* What if I told you that underlying all the great religions of the world - Christianity, Islam, Judaism, Hinduism, Buddhism was a belief system more ancient, more primeval. Lurking in the shadows of those more well-known belief systems. Well, that is what I’m here to tell you today. You have likely never heard of this religion or if it’s deity, but I can assure you it is unlike any you have ever encountered before. The earliest reference we have for the deity of this religion comes from petroglyphs uncovered deep within caves systems. Take a look at these, found in within the mountains of Patagonia, in southern Chile, dated by scientists to be at least one hundred and fifty thousand years old, written in red ochre. The earliest pronounceable reference comes from a Tamil text, here the same symbol is referred to as K’thadras.
+
+* We forget in our daily lives that the universe remains a profound mystery to us. We don’t think about these things as we stand in line at Starbucks. I think it is healthy to remember that.
+
+* But if I could get inside and talk to this man she met. He seems to know what’s going on. I feel like they were indoctrinating her, something.
+
+* Where is love? Happiness.
+You are ascribing human emotions and standards of morality to something beyond such concepts. They don’t consider him to be evil.
+
+* Any more than you are evil when you accidentally step on a bug, or eat a hamburger. But what do they get from him. It doesn’t seem to contain any truths about our human existence.
+
+* This religion seems, brutal, unloving, what do the adherents get from it? How does it fulfill their lives.
+
+Well I think the simple answer to that is that it doesn’t. I would ask where you got the idea that religion is meant to fulfill you. That is a recent idea. Religion in its fundamental sense has always been about reconnecting with the origin of life. Fulfillment has nothing to do with it.
+
+They would see his works everywhere. Look at what our life has become, unending consumption of material possessions, ravaging the earth, and remember who he is: 
+
+consumer of the consumed, ravager of the ravaged
+
+* Interestingly, this word K’thadras is not itself Tamilic. We think it is from an even more ancient language now lost to us. Like, for example, if I am speaking to you and throw in a Latin phrase here and there - you know, et cetera. Laughter.
+
+* Interestingly, this word K'thadras is not itself Dravidian...
+
+* The only scripture known to exist is a book, considered a living text that grows with each subsequent generation of adherents, which is referred to in the lost language as the Vothmwag-Ab (try saying that three times fast) but has been come to be known colloquially as The Book of Whispers.
+
+* Myself and other scholars have attempted to procure a copy, I'm sure it's fascinating and we could learn so much more than we know now, but adherents are quite adept at keeping secrets. Hence the name, I suppose. But I'm always on the lookout, for any of you closet adherents in the audience today.
+
+* Sumerian?
+
 
 ### The Room
 
@@ -619,12 +798,25 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 
 * A diffuse light bathed the room and yet there was no fixture or lamp that I could see. The light reminded me of a particular alley...
 
+* He lived in this strange room behind the Kroger on Ponce De Leon. And he never left. Don’t ask me how I know that. But I do.
+
+* She reveals in journal that she kept mothers death from coworkers
+
+* It looked like something out of a bad horror movie. But I was not afraid. Strangely, looking back.
+
+* It felt almost physical in the way it happened. A vision he could never unsee. A knowledge he could never unknow.
+
+* The transformation of the room is becoming the distant planet, like opening a portal, the man is disintegrating from this world.
+
 
 ### McDonald's
 
 ### George's (Bar and Grill)
 
 * Will becomes frustrated and texts the number he was given by Dr. Burrows, offering 5000 upfront for a copy of the handbook. Fifteen minutes later he receives a reply: "ok" End of chapter
+
+* He writes a text to his mother, but doesn't send it - "I'd like to talk, when you can. I need to" (changes it to 'want to' before not sending)
+
 
 ### The Man
 
@@ -652,6 +844,8 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 
 * Your entire life is a wish.
 
+* His embrace is compassion. He accepts yet he is not doing the harm.
+
 
 ### Weekly-Rate Motel
 
@@ -667,12 +861,37 @@ Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said
 
 * She imagines killing the woman, but the actual killing is off page
 
+* That bitch Margaret...I always knew she’d be the one to throw me under the bus. Well fuck it.
+
+* Steve, in the background, we never learn much about him.
 
 ### The Book
 
 * A crude sketch in the book of a man inside a box
 
 * When he has the book, it is written in strange English, with words he does not understand. There is repeated reference to the ‘words of admittance’ but he cannot find them anywhere mentioned. As he is drifting off to sleep reading his vision blurs and he sees hidden text on the page, between the visible words. From this he learns the phrase which will open the door.
+
+* What is it? Devourer of the devoured. Eater of the eaten. Consumer of the consumed. He is the one who waits.
+
+* Eyes, his eyes, spanning untold and innumerable dimensions, gazing each into the others.
+
+* All this existence is consumption and all that will ever exist is the consumption and mindless devouring unto the end of the world and even unto the end of time. All this we believe and all this we know.
+
+* All existence is consumption and all that has ever existed or ever will exist is consumption and ceaseless devouring. This is what we believe and this is what we know.
+
+* All existence is consumption and all that has ever existed and all that ever will exist is consumption and ceaseless devouring. This we see. This we know.
+
+* All existence is consumption and all that has ever existed and all that ever will exist is consumption and ceaseless devouring. This is what we see. This is what we know.
+
+* We offer sustenance to Him in the hope one day He will acknowledge our presence and recognize that we are his adherents. We know and accept that to Him we are amoeba. Less than amoeba. Less than that.
+
+* We offer sustenance to Him in the hope one day He will acknowledge our presence and recognize that we are his true adherents. We know and accept that to Him we are amoeba. Less than amoeba. Less than that. Yet we serve and we offer.
+
+* We offer in faith eternal. K’thadras piy gwam
+
+* We offer in the hope one day He will know our presence and see that we are His true adherents. Yet we know and we accept that we are like the amoeba floating in stagnant waters to Him. Less than amoeba! We are less than that. Yet we serve in humility and we offer in faith eternal, K’thadras piy gwam
+
+* floating in brackish waters to Him
 
 
 ## The Fetus
@@ -776,3 +995,21 @@ because they are really those things, but because that is how your mind is able 
 Your memory of those things creates the association, since they have the nearest relationship through 
 both form and behavior. But then sometimes the thing you call a tree will bend down consciously 
 and sniff around and the illusion is broken. But you can't help yourself. It's how the mind works.
+
+* Depersonalized memories of Earth
+
+* You remember others. Your mother. And father. You remember being loved. For a moment you catch a glimpse of a smile and then laughter and your heart is overwhelmed by a feeling you are not able to fully comprehend but somehow know is lost to you forever and you weep for the loss of it.
+
+* It is about food. Hunger. Consumption.
+
+* The inanimate objects of this world move from phase to phase, solid, liquid, gas.
+
+* A kindness done, perhaps yesterday, perhaps a million years ago, but the memory was there.
+
+* It does not know what it will find on the other side of the nebula, nor how long it will take to get there, but it does know, somehow it knows, that it will be home.
+
+* It does not know what it will find on the other side of the nebula, nor does it know how long it will take to get there, but it does know, somehow it knows, that it will be home.
+
+* It does not know what it will find on the other side of the nebula, nor does it know how long it will take to get there, but it does know, somehow it does know, that it will be home.
+
+* A danger, being chased by a predator of some kind.
