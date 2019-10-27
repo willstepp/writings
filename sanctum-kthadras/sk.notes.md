@@ -428,7 +428,7 @@ The man she meets in browsing personals ends up being her drug source, pimp, tha
 
 * I was overcome by feelings I wouldn't have been able to articulate as a nine year old girl, but can now I think, of home, and pure love, and most of all a deep faith in the goodness of all things.
 
-* I was overwhelmed by a feeling I wasn’t able to fully understand as a nine year old girl, but do now I believe — of home, and unconditional love, and most of all a deep faith in the goodness of all things.
+* I was overcome by a feeling I wasn’t able to fully understand as a nine year old girl, but do now I believe — of home, and unconditional love, and most of all a deep faith in the goodness of all things.
 
 * Today I watched an episode of The Office. It was the one where Michael...and I caught myself giggling like an idiot...and caught my reflection in the glass of the entertainment center. I turned it off. I don't want to be happy. I don't want to laugh.
 
@@ -1021,6 +1021,6 @@ and sniff around and the illusion is broken. But you can't help yourself. It's h
 
 * It does not know what it will find on the other side of the nebula, nor does it know how long it will take to get there, but it does know, somehow it knows, that it will be home.
 
-* It does not know what it will find on the other side of the nebula, nor does it know how long it will take to get there, but it does know, somehow it does know, that it will be home.
+* It does not know what it will find on the other side of the nebula, nor does it know how long it will take to get there, perhaps it will take a million years -- and yet it does know, somehow it does know, that the place it is going to will be home.
 
 * A danger, being chased by a predator of some kind.
