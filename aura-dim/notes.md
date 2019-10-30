@@ -1,5 +1,6 @@
 REVISION ONE
 ========================================
+-) Richard accuses Zoey of living off her parents, before they died at least, as a criticism of her anti-capitalistic worldview
 -) Read chapter aloud, recording
 -) Make notes about what works and doesn't work on a story level, then ideas for improvement
 -) Come up with ideas where chapter can be expanded by 1500 words (adding new content|deepening what exists)
