@@ -443,6 +443,11 @@ now I am driftless
 alone in the void
 a planet without a sun
 
+* Then I was overcome by a feeling I wasn’t able to fully understand as a nine year old girl, but do now I believe — of home, of unconditional love, but most of all a deep faith in the goodness of all things.
+
+* all I want is for you to be alive again to see your radiance to feel your warmth nobody warned me about the darkness now I am driftless alone in a void a planet without a sun
+
+
 ### Will
 
 * He IS the man who lives in the room, the cause of the previous worker’s suicide. The man who committed suicide is in despair after his mother passed away. He writes his confessions in git, overwriting the previous entries.
@@ -1024,3 +1029,12 @@ and sniff around and the illusion is broken. But you can't help yourself. It's h
 * It does not know what it will find on the other side of the nebula, nor does it know how long it will take to get there, perhaps it will take a million years -- and yet it does know, somehow it does know, that the place it is going to will be home.
 
 * A danger, being chased by a predator of some kind.
+
+* Hunger should be the motivating thrust of the story leading up to daylight.
+
+* The creature which hunts him he slaughters and feasts upon, a living fungus.
+
+* Do not
+
+* The voice could be ignored. You could ignore it. And you consider what will happen if you do. Before you ate and nothing happened. It could be the same.
+
