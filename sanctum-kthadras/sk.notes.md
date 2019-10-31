@@ -225,6 +225,9 @@ Do not end with her happy. That happens at beginning of next Abigail chapter
 
 * The man in the room is not some symbol for drug abuse or ‘the man’ as in a pusher. But there is a relationship between them. Drugs are not a means within themselves, they are used to fill some deeper hole. The man is interested in this void that is growing within Abbie.
 
+* Abigail's story: April - June, Will's story: January - March
+  This will give a space of 6 months between their working at the same place
+
 
 ### Writing
 
