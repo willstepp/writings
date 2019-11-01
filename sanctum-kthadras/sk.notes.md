@@ -1041,3 +1041,15 @@ and sniff around and the illusion is broken. But you can't help yourself. It's h
 
 * The voice could be ignored. You could ignore it. And you consider what will happen if you do. Before you ate and nothing happened. It could be the same.
 
+
+
+
+Part One: The Man who Lives in the Room
+
+Chapter One:
+
+Scenes:
+-) Arriving to work
+-) Introduced to job (mentions previous person, doesn't say anything)
+-) Lunch (an offhand mention, strange non-answers)
+-) Outside (told the truth)
