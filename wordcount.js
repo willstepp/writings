@@ -14,9 +14,10 @@ if (process.argv.length <= 2) {
 
 // 1) read in book name from arg
 let bookName = process.argv[2];
+let draftName = process.argv[3];
 
 // 2) get list of all chapters from __dirname/<book name>/chapters
-let chapterSrc = __dirname + '/' + bookName + '/chapters/*.md';
+let chapterSrc = __dirname + '/' + bookName + '/' + draftName + '/*.txt';
 let chapters = glob.sync(chapterSrc);
 
 // 3) calculate all chapter word counts
