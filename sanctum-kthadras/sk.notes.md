@@ -912,6 +912,9 @@ consumer of the consumed, ravager of the ravaged
 
 * floating in brackish waters to Him
 
+* One whose eyes gaze from this dimension into the next, into yet another, a billion times over, one from another and back again, even to the very beginning of time - where the true home of such a one?
+
+
 
 ## The Fetus
 
