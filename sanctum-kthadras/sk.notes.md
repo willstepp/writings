@@ -228,6 +228,8 @@ Do not end with her happy. That happens at beginning of next Abigail chapter
 * Abigail's story: April - June, Will's story: January - March
   This will give a space of 6 months between their working at the same place
 
+* Maybe all of Will’s chapters should be roughly the same length, while Abigail’s vary. 
+
 
 ### Writing
 
@@ -1043,24 +1045,3 @@ and sniff around and the illusion is broken. But you can't help yourself. It's h
 * Do not
 
 * The voice could be ignored. You could ignore it. And you consider what will happen if you do. Before you ate and nothing happened. It could be the same.
-
-
-
-
-Part One: The Man who Lives in the Room
-
-Chapter One:
-
-Scenes:
--) Arriving to work
--) Introduced to job (mentions previous person, doesn't say anything)
--) Lunch (an offhand mention, strange non-answers)
--) Outside (told the truth)
-
-Chapter Two:
-
-Scenes:
--) Driving home
--) The apartment, dinner
--) Learning more about Abigail
--) Family trouble
