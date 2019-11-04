@@ -1056,3 +1056,11 @@ Scenes:
 -) Introduced to job (mentions previous person, doesn't say anything)
 -) Lunch (an offhand mention, strange non-answers)
 -) Outside (told the truth)
+
+Chapter Two:
+
+Scenes:
+-) Driving home
+-) The apartment, dinner
+-) Learning more about Abigail
+-) Family trouble
