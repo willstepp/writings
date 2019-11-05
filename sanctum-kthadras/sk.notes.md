@@ -1045,3 +1045,10 @@ and sniff around and the illusion is broken. But you can't help yourself. It's h
 * Do not
 
 * The voice could be ignored. You could ignore it. And you consider what will happen if you do. Before you ate and nothing happened. It could be the same.
+
+
+Chapter Three:
+-) Will gives a presentation to a room full of coworkers
+-) Will gets a little drunk at the after party, looks up Abigail in the company directory, finds her address
+-) Drives home, going a little out of the way, and passes by her address. He pulls in.
+-) Inside the house he sees a grotesque figure hanging in the closet, pointing at the desk
