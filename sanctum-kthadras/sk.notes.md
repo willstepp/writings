@@ -1052,3 +1052,31 @@ Chapter Three:
 -) Will gets a little drunk at the after party, looks up Abigail in the company directory, finds her address
 -) Drives home, going a little out of the way, and passes by her address. He pulls in.
 -) Inside the house he sees a grotesque figure hanging in the closet, pointing at the desk
+
+	 Homes in Virginia Highland are sought-after by fans of the neighborhood’s modest century-old bungalows, cottages and charming Tudor style homes.
+	 
+ Gabled roof, patio area
+ 
+ Exterior
+Balanced and well-proportioned, but not symmetrical, appearance from the front
+A low, exposed roof, often with beams or rafters showing
+A modest front porch or veranda
+Square, tapered columns, sometimes called “bungalow columns”
+
+Finds a key under a clay vase
+
+All the muscle, bone, sinew, and vicera of her body spiraled inward on itself, as if she were caught in the gravitational vortex of a black hole.
+
+
+
+* (Dream) Sees her try to light the journal on fire, put it out, then hide it instead.
+
+* Has a dream he visits the house and discovers a journal when her hung body with tentacles for a face point at the dresser. He wakes up, unaware he was dreaming. It’s the middle of the night. The house is the same as his dream. He finds the journal.
+
+* The place looks like his dream, except reverse. And darker. He uses phone as flashlight.
+
+* Exploring the house he sees his reflection in the mirror and is startled.
+
+* Once the idea was planted within his brain it would not leave him alone. It seemed wrong and inwardly he even asked himself, can a person do things like this? Somewhere inside he knew he wanted his inner voice to reassure him. Don't be silly, of course not. There are laws prohibiting such things. But that voice never came and he knew that as long as no one found out, a person could do things like this. And worse things, if need be.
+
+* While exploring the house, Will sees an old doll on the bed next to the pillow, maybe it startles him.
