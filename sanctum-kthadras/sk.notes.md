@@ -1080,3 +1080,9 @@ All the muscle, bone, sinew, and vicera of her body spiraled inward on itself, a
 * Once the idea was planted within his brain it would not leave him alone. It seemed wrong and inwardly he even asked himself, can a person do things like this? Somewhere inside he knew he wanted his inner voice to reassure him. Don't be silly, of course not. There are laws prohibiting such things. But that voice never came and he knew that as long as no one found out, a person could do things like this. And worse things, if need be.
 
 * While exploring the house, Will sees an old doll on the bed next to the pillow, maybe it startles him.
+
+Chapter Four:
+-) He paces around his apartment after the dream
+-) He looks up the address in the directory
+-) He drives to the neighborhood
+-) Everything is the same as before, except reversed. He finds the journal, takes it home and begins to read.
