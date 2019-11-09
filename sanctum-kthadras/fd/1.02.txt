@@ -27,10 +27,10 @@ Two
 	"Jesus Fucking Christ."
 	One he had regained composure he clicked on the notification. It was a calendar reminder: 
 	
-	Write in Journal
+	Write in Diary
 	
-  His mind spun off in several directions. This was a turn. One, it meant Abigail's calendar was likely still linked to this computer somehow. So he'd be able to look through that if he wanted. And two, even more interesting, she kept a journal.
-	With this news he snapped back to focus and began scouring the filesystem for anything that remotely looked like a journal. He went through the Documents folder, looked through Downloads, and for completeness sake Pictures, Movies, and App Data. But there was nothing. Then he went through the list of applications and opened Word, Notepad, TextEdit, basically anything one could use to write a journal. Still nothing.
+  His mind spun off in several directions. This was a turn. One, it meant Abigail's calendar was likely still linked to this computer somehow. So he'd be able to look through that if he wanted. And two, even more interesting, she kept a diary.
+	With this news he snapped back to focus and began scouring the filesystem for anything that remotely looked like a diary. He went through the Documents folder, looked through Downloads, and for completeness sake Pictures, Movies, and App Data. But there was nothing. Then he went through the list of applications and opened Word, Notepad, TextEdit, basically anything one could use to write a diary. Still nothing.
 	At one in the morning he closed the laptop, defeated for now, too tired to process anything else tonight. He put the bottle of wine in the fridge, placed his dishes in the sink, and went straight to bed, collapsing on the mattress on the floor, the bed frame still leaning against the wall.
 	In his dreams that night he visited his sister in Nashville. His brother was also there. In reality they had not seen each other or even spoken since the Christmas before last. All of them are in his Jeep driving to a concert in the park downtown. But by the time they arrived they had all become children again, and were not in the Jeep but on bicycles. They entered the park and walked their bikes up a grassy hill in the middle of the park. On top was a vista that overlooked the entire city. He recognized the Batman building.
 	"Let's have a race," his sister said, "Whoever wins get the prize!"
