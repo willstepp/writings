@@ -1089,13 +1089,13 @@ Chapter Four:
 
 Chapter Five:
 a)
--) We are introduced to the diary, why she's writing it
--) Establishes how difficult she is having it
--) Establishes that it does her good to write
--) She was leaving Hobby Lobby parking lot, with crochet supplies
--) Establish all the ways she is trying to deal with grief, diary, psychiatrist,
+*) We are introduced to the diary, why she's writing it
+*) Establishes how difficult she is having it
+*) Establishes that it does her good to write
+*) She was leaving Hobby Lobby parking lot, with crochet supplies
+*) Establish all the ways she is trying to deal with grief, diary, psychiatrist,
    medication, hobbies -- none take
--) Talk about bystander effect. Leads into discussion of goodness, everything leads to selfishness, which then leads to an example of her own selfishness. A memory where her mother asked her to do something and she lied.
+*) Talk about bystander effect. Leads into discussion of goodness, everything leads to selfishness, which then leads to an example of her own selfishness. A memory where her mother asked her to do something and she lied.
 b)
 -) Steps to return to normal life
 -) Return to work, reach out to friends
