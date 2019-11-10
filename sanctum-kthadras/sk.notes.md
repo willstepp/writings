@@ -1093,12 +1093,20 @@ a)
 *) She opens by saying she doesn't know where to begin, she's still trying to understand.
 *) Abigail has not slept well for a few days, she is anxious, irritated
 *) During a meeting with some of the tech leads, and Ponce, she snaps at Byron
--) After being asked to take the rest of the day off, she drives off, furious
--) She drives and drives, not aware of where she is
--) At a corner near the San Francisco coffee shop she sees a man. He walks over and she thinks he wants money, but he asks for a ride
--) She gives the man a ride who is an obvious con man, he spins her a story about his mother being in the hospital with breast cancer, 
+*) After being asked to take the rest of the day off, she drives off, furious
+*) She drives and drives, not aware of where she is
+*) At a corner near the San Francisco coffee shop she sees a man. He walks over and she thinks he wants money, but he asks for a ride
+*) She gives the man a ride who is an obvious con man, he spins her a story about his mother being in the hospital with breast cancer, 
    and that he is supposed to meet his brother at a BBQ place down the road. When they get there the brother is not there. It's then he 
-   asks her for some money to fly in his sister from Kansas City. After he asks her to drop him off at a McDonald's.
+   asks her for some money to fly in his sister from Kansas City.
 b)
+-) He asks for three hundred dollars. She gives him four hundred. Then he asks to be let out at a McDonald's.
 -) She watches him go into the McDonald's and then come out again with a bag. He eats French Fries from the bag as he walks around to the back, and enters an opening into the woods behind the place.
 -) Feeling taken, and a bit reckless, she decides to follow him. It is evening.
+
+Sometimes my brain has a mind of its own.
+Nobody ever goes to that restaurant there. It's too crowded.
+I thought you weren't from around here?
+I've been around.
+It's like my mama said, what is better than eternal happiness? Nothing. But a slice of bread is better than nothing. So a slice of bread is better than eternal happiness. Now eat yo bread!
+And he laughed.
