@@ -3,3 +3,30 @@ Six
 
 May 5
 
+I'm not sure how to begin. I'm still trying to understand what happened to me. Things are very strange right now. But I need to get it down while it's still fresh in my mind. I feel like if I don't I might lose it altogether, like a dream that fades from memory after you wake up. But this was not a dream. You need to remember that, Abigail, if nothing else.
+
+Let me go back to the beginning. Today is Monday. I barely slept all weekend. The Lexapro is not working and I don't know what to do. I tossed and turned. I thought about my mother. Needless to say I've been very tired, a little stressed, easily agitated. Overall not in the best of moods. Because of the way I was feeling I thought about calling in sick to work, but then I remembered there was a scheduled meeting with the QA and Dev leads, as well as Pence, to review the plan we've all agreed upon, come up with a timetable, all that jazz. And I needed to be there. Porting the build scripts to the build servers is a large part of this effort and I feel responsible. So I decided to go in at least until after the meeting, which was at 11.
+
+So meeting. It was me, Chen, Steve, Crystal, and Byron and then Hannah from QA and Dave from Development. We had all sat down at the table with our coffees by the time Pence arrived. He apologized for being late and then asked Chen to start off with an overview, to get everyone on the same page. Chen did that and then we took a short break after Chen observed it may be helpful to have someone from Operations come in to get an idea about how long it's going to take to provision the new servers. 
+
+I don't know why I'm going into all this detail. I just want to make sure I don't leave anything out. I don't want to forget.
+
+James from Operations arrives and he answers all Chen's questions about the servers. And then it comes time for me to walkthrough the new build scripts: what I've had to do in order for them to run on our build servers, which are isolated contexts, the authentication method I came up with, all that technical stuff. Well, the second I get into how I plan to use a token that never expires, to communicate from service to service mind you, and not anything client facing, Byron had to say something. I saw him shake his head and knew he was about to give me shit about the decision.
+
+"Sorry, but that's not a good idea," he said, and then addressed the table, "You don't ever want to use non-expiring tokens. Remember, these are cloud servers, not on-prem. If those servers are ever compromised, and a malicious actor gets access to those tokens, you got a real problem on your hands. At least from my experience."
+
+It wasn't that he was wrong. It was the lecturing, condescending way he said it, not having the courtesy to even look my way. And any other day I would have nodded, agreed to another plan, and let it go. But with no sleep and because this wasn't the first time he's disrespected me like that, well, I lost it. I completely lost it.
+
+"What the fuck is your problem with me, Byron?" I said, "Do you not think I know how to do my job? I don't go around telling you how to do your job."
+
+The eyes of everyone at the table grew wide. All of a sudden it got very quiet in the room. Byron sat back in his chair and held up his hands.
+
+"Hey, I'm just giving y'all my opinion. And I think it's pretty fucking dumb to use non-expiring tokens on a cloud server. And it is. Sorry if you don't want to hear about it."
+
+I then stood up, told him to fuck off and to wipe that smug grin off his face or I'd do it for him, and walked out of the room, slamming the door behind me. I stormed out back and sat on the bench next to the walking path, and I just cried. There was so much anger and frustration and tiredness all together. I couldn't handle it coming out like that, all at once. I was out of control. A few minutes later I got a text from Chen, "pls come see me" and then a moment later a follow up, "its okay".
+
+I went to see Chen in his office, going the long way around so I didn't have to see the others. He asked me if I was okay and I said yes but that I was very tired. He told me I should just go home and get some rest and not to worry about anything. With him being so nice I started to feel bad and I apologized. He said it's okay, Abigail. We all have bad days. Get home and get some rest. We'll talk tomorrow.
+
+It was after 2. I got into my car and drove, and drove, and drove. My mind was a blur. I couldn't focus on anything. Even when I looked at things I didn't really see them. It was like I was in a tunnel, disconnected from the objects around me. As I drove I thought about everything that had happened, all the times Byron had undermined me, and my anger swelled. I started cursing him out inside my car, saying hateful things, even violent things, to an imaginary version of him.
+
+I drove into the city, not knowing where I was headed. It wasn't even a decision to drive into the city. I was following whatever road kept me moving with the least amount of friction. If it was easier to turn left at this intersection, I turned left. If there was less traffic on that exit, I took it. Before I knew it I was in midtown. By now it was nearly 3:30 and the afternoon traffic was getting heavy. Still more turns and I found myself in a small residential neighborhood, with crooked sidewalks and narrow streets. A lot of trees.

@@ -1046,28 +1046,14 @@ and sniff around and the illusion is broken. But you can't help yourself. It's h
 
 * The voice could be ignored. You could ignore it. And you consider what will happen if you do. Before you ate and nothing happened. It could be the same.
 
+* A kindness done to you...
+
 
 Chapter Three:
--) Will gives a presentation to a room full of coworkers
--) Will gets a little drunk at the after party, looks up Abigail in the company directory, finds her address
--) Drives home, going a little out of the way, and passes by her address. He pulls in.
--) Inside the house he sees a grotesque figure hanging in the closet, pointing at the desk
-
-	 Homes in Virginia Highland are sought-after by fans of the neighborhood’s modest century-old bungalows, cottages and charming Tudor style homes.
-	 
- Gabled roof, patio area
- 
- Exterior
-Balanced and well-proportioned, but not symmetrical, appearance from the front
-A low, exposed roof, often with beams or rafters showing
-A modest front porch or veranda
-Square, tapered columns, sometimes called “bungalow columns”
-
-Finds a key under a clay vase
-
-All the muscle, bone, sinew, and vicera of her body spiraled inward on itself, as if she were caught in the gravitational vortex of a black hole.
-
-
+*) Will gives a presentation to a room full of coworkers
+*) Will gets a little drunk at the after party, looks up Abigail in the company directory, finds her address
+*) Drives home, going a little out of the way, and passes by her address. He pulls in.
+*) Inside the house he sees a grotesque figure hanging in the closet, pointing at the desk
 
 * (Dream) Sees her try to light the journal on fire, put it out, then hide it instead.
 
@@ -1082,10 +1068,10 @@ All the muscle, bone, sinew, and vicera of her body spiraled inward on itself, a
 * While exploring the house, Will sees an old doll on the bed next to the pillow, maybe it startles him.
 
 Chapter Four:
--) He paces around his apartment after the dream
--) He looks up the address in the directory
--) He drives to the neighborhood
--) Everything is the same as before, except reversed. He finds the journal, takes it home and begins to read.
+*) He paces around his apartment after the dream
+*) He looks up the address in the directory
+*) He drives to the neighborhood
+*) Everything is the same as before, except reversed. He finds the journal, takes it home and begins to read.
 
 Chapter Five:
 a)
@@ -1097,7 +1083,22 @@ a)
    medication, hobbies -- none take
 *) Talk about bystander effect. Leads into discussion of goodness, everything leads to selfishness, which then leads to an example of her own selfishness. A memory where her mother asked her to do something and she lied.
 b)
--) Steps to return to normal life
--) Return to work, reach out to friends
--) Keeping mother's death from everyone
--) The good memory
+*) Steps to return to normal life
+*) Return to work, reach out to friends
+*) Keeping mother's death from everyone
+*) The good memory
+
+Chapter Six:
+a)
+*) She opens by saying she doesn't know where to begin, she's still trying to understand.
+*) Abigail has not slept well for a few days, she is anxious, irritated
+*) During a meeting with some of the tech leads, and Ponce, she snaps at Byron
+-) After being asked to take the rest of the day off, she drives off, furious
+-) She drives and drives, not aware of where she is
+-) At a corner near the San Francisco coffee shop she sees a man. He walks over and she thinks he wants money, but he asks for a ride
+-) She gives the man a ride who is an obvious con man, he spins her a story about his mother being in the hospital with breast cancer, 
+   and that he is supposed to meet his brother at a BBQ place down the road. When they get there the brother is not there. It's then he 
+   asks her for some money to fly in his sister from Kansas City. After he asks her to drop him off at a McDonald's.
+b)
+-) She watches him go into the McDonald's and then come out again with a bag. He eats French Fries from the bag as he walks around to the back, and enters an opening into the woods behind the place.
+-) Feeling taken, and a bit reckless, she decides to follow him. It is evening.

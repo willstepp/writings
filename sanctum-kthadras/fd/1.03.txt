@@ -17,11 +17,11 @@ Three
   The presentation lasted another hour. Afterwards, the CEO gave a motivational speech to the group and closed his speech by saying there was a catered buffet and open bar waiting in the meeting room next door. Everyone clapped and then rose to their feet in unison.
   At the buffet table he dished a plate of roast beef, asparagus, and mashed potatoes and then grabbed a Dos Equis from the bar. He sat down at table with the rest of the DevOps group and they congratulated him on both the presentation and the progress he had made in such a short period of time.
   Fifteen minutes later the CEO came up to the table and also congratulated the team on their progress. Then he turned to Will and extended his hand.
-  "Ponce Newton. So glad to finally meet you. We're super impressed with the work you've done so far, Will, and are so excited to have you on board."
-  "Thank you, Ponce," he said, "I'm glad to be here."
-  Ponce scanned the table, nodding to Chen, Steve, Crystal, and Byron in quick succession.
-  "Last year was difficult," Ponce said, "But through the our hard work we got through it and look at us now. Guys there's a lot of positive things on the horizon. We got this!"
-  Ponce left and Byron said Ponce always sounds like he is giving a keynote. Everyone laughed.
+  "Pence Kenton. So glad to finally meet you. We're super impressed with the work you've done so far, Will, and are so excited to have you on board."
+  "Thank you, Pence," he said, "I'm glad to be here."
+  Pence scanned the table, nodding to Chen, Steve, Crystal, and Byron in quick succession.
+  "Last year was difficult," Pence said, "But through the our hard work we got through it and look at us now. Guys there's a lot of positive things on the horizon. We got this!"
+  Pence left and Byron remarked that he always sounds like he is giving a keynote. Everyone laughed.
   
    After dinner the people went home, very full and a little drunk, and for some it was the other way around. But Will stuck around, not feeling like the drive home just yet, still too wound up from the success of his presentation.
    He ordered a double whisky from the bar and went upstairs, his intention to tackle a bug in the code that had been nagging him all day long. Anyway, he liked the office at night. The vast empty cubicles. The dim lighting, providing just enough illumination to find your cubicle, or the exit. The quiet hum of computers. The lack of voices. It was a fine time to get things done.
