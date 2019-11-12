@@ -782,6 +782,8 @@ consumer of the consumed, ravager of the ravaged
 
 * Sumerian?
 
+* The Dweller of The Egg, The One Who Waits
+
 
 ### The Room
 
@@ -1100,13 +1102,21 @@ a)
    and that he is supposed to meet his brother at a BBQ place down the road. When they get there the brother is not there. It's then he 
    asks her for some money to fly in his sister from Kansas City.
 b)
--) He asks for three hundred dollars. She gives him four hundred. Then he asks to be let out at a McDonald's.
--) She watches him go into the McDonald's and then come out again with a bag. He eats French Fries from the bag as he walks around to the back, and enters an opening into the woods behind the place.
--) Feeling taken, and a bit reckless, she decides to follow him. It is evening.
+*) He asks for three hundred dollars. She gives him four hundred. Then he asks to be let out at a McDonald's.
+*) She watches him go into the McDonald's and then come out again with a bag. He eats French Fries from the bag as he walks around to the back, and enters an opening into the woods behind the place.
+*) Feeling taken, and a bit reckless, she decides to follow him. It is evening.
 
-Sometimes my brain has a mind of its own.
-Nobody ever goes to that restaurant there. It's too crowded.
-I thought you weren't from around here?
-I've been around.
-It's like my mama said, what is better than eternal happiness? Nothing. But a slice of bread is better than nothing. So a slice of bread is better than eternal happiness. Now eat yo bread!
-And he laughed.
+
+Chapter Seven:
+
+*) Will finishes the journal, looks up, and realizes he is late for work
+*) He races to the office, late for the daily meetings
+*) He can't get Abigail's journal off his mind
+*) Looks up directions, learns it's the Murder Kroger
+*) Decides to drive to the Krogers on Ponce De Leon at lunch
+-) Once down there, he is unable to locate the door
+-) He enters another door and walks in the back
+-) Sees a man in the breakroom fitting Rabbit's description
+-) Rabbit leaves and he follows him to his car later
+-) He asks Rabbit if he remembers a woman who gave him 500 dollars. He says no
+-) Will returns home and reopens the journal

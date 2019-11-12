@@ -63,7 +63,7 @@ I found out they had been using my laptop for builds, since my scripts were stil
 
 At lunch they took me out to PF Chang's. I got the Singapore Street Noodles. Too good!
 
-In the afternoon the entire DevOps team met with the leads of QA and Development and talked about what we could do to improve build and deployment times, since the project has been falling behind schedule. I have to be honest, I tuned out a little. There were a couple glances my way, polite smiles. 
+In the afternoon the entire Build team met with the leads of QA and Development and talked about what we could do to improve build and deployment times, since the project has been falling behind schedule. I have to be honest, I tuned out a little. There were a couple glances my way, polite smiles. 
 
 The whole day I get the feeling that nobody knew quite what to say to me. I guess that's my fault for not talking about my absence. For all they know I could have been in a methadone clinic this whole time. I just want things to get back to normal as soon as possible.
 
