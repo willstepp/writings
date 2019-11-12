@@ -1114,9 +1114,9 @@ Chapter Seven:
 *) He can't get Abigail's journal off his mind
 *) Looks up directions, learns it's the Murder Kroger
 *) Decides to drive to the Krogers on Ponce De Leon at lunch
--) Once down there, he is unable to locate the door
--) He enters another door and walks in the back
--) Sees a man in the breakroom fitting Rabbit's description
--) Rabbit leaves and he follows him to his car later
+*) Once down there, he is unable to locate the door
+*) He enters another door and walks in the back
+*) Sees a man in the breakroom fitting Rabbit's description
+*) Rabbit leaves and he follows him to his car later
 -) He asks Rabbit if he remembers a woman who gave him 500 dollars. He says no
 -) Will returns home and reopens the journal
