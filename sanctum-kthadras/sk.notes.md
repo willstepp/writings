@@ -273,6 +273,8 @@ Do not end with her happy. That happens at beginning of next Abigail chapter
 
 ### Abigail
 
+* The words have always been there, in my mind. There, but unexpressed. Now I simply say them: I am going to die. How strange my life turned out to be, with still so much not understood. How precarious it was, looking back. How thin the walls that sheltered me, all my life, against a despair that has no end.
+
 * The horror of watching yourself become something you don’t recognize. Losing your humanity without being able to stop.
 
 * And as the feeling of numbness went away there was left a hole. Deep and wide. Crying out like a child to be filled. I became more and more depraved. Oh God please forgive the things I’ve done. I dove into the deep web. Forgive me.
@@ -1118,5 +1120,23 @@ Chapter Seven:
 *) He enters another door and walks in the back
 *) Sees a man in the breakroom fitting Rabbit's description
 *) Rabbit leaves and he follows him to his car later
--) He asks Rabbit if he remembers a woman who gave him 500 dollars. He says no
--) Will returns home and reopens the journal
+*) He asks Rabbit if he remembers a woman who gave him 500 dollars. He says no
+*) Will returns home and reopens the journal
+
+Chapter Eight:
+
+Things are going well.
+She is getting sleep.
+Makes up with Byron.
+Takes a crochet class.
+Stops taking Lexapro against Dr Patels orders
+Wakes up vomiting, trembling, feeling dizzy
+The next day she is hungry and eats a large breakfast. By noon the hunger has grown. Her stomach is in pain. She stops at the Golden Corral and eats plate after plate.
+She eats so much she has to run to the bathroom and vomits. Then she eats more, and is finally asked to leave.
+On the way home she stops at the liquor store and picks up jack Daniels and coke
+She gets drunk, trying to get rid of this empty feeling. She has a joint that Crystal gave her and smokes that too.
+She is unable to sleep all night.
+The next morning she calls in sick and returns to the Kroger.
+She cannot find the door, goes into Greens and buys more liquor, goes into the Kroger for grapefruit juice.
+Breaks down in her car. She then remembers what the man told her when she asked where they were: A certain place, a certain time, and a certain orientation.
+She waits until evening, goes through the opening in the fence, the woods, finds the door. She enters and the man asks the same question as before.
