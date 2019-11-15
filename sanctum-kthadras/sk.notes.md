@@ -1131,7 +1131,10 @@ Chapter Eight:
 *) Stops taking Lexapro against Dr Patels orders
 *) Takes a crochet class.
 *) Wakes up vomiting, trembling, feeling dizzy
--) The next day she is hungry and eats a large breakfast. By noon the hunger has grown. Her stomach is in pain. She stops at the Golden -) Corral and eats plate after plate.
+
+Chapter Nine:
+
+*) The next day she is hungry and eats a large breakfast. By noon the hunger has grown. Her stomach is in pain. She stops at the Golden *) Corral and eats plate after plate.
 -) She eats so much she has to run to the bathroom and vomits. Then she eats more, and is finally asked to leave.
 -) On the way home she stops at the liquor store and picks up jack Daniels and coke
 -) She gets drunk, trying to get rid of this empty feeling. She has a joint that Crystal gave her and smokes that too.
