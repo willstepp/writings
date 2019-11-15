@@ -1135,10 +1135,10 @@ Chapter Eight:
 Chapter Nine:
 
 *) The next day she is hungry and eats a large breakfast. By noon the hunger has grown. Her stomach is in pain. She stops at the Golden *) Corral and eats plate after plate.
--) She eats so much she has to run to the bathroom and vomits. Then she eats more, and is finally asked to leave.
--) On the way home she stops at the liquor store and picks up jack Daniels and coke
--) She gets drunk, trying to get rid of this empty feeling. She has a joint that Crystal gave her and smokes that too.
--) She is unable to sleep all night.
+*) She eats so much she has to run to the bathroom and vomits. Then she eats more, and is finally asked to leave.
+*) On the way home she stops at the liquor store and picks up jack Daniels and coke
+*) She gets drunk, trying to get rid of this empty feeling. She has a joint that Crystal gave her and smokes that too.
+*) She is unable to sleep all night.
 -) The next morning she calls in sick and returns to the Kroger.
 -) She cannot find the door, goes into Greens and buys more liquor, goes into the Kroger for grapefruit juice.
 -) Breaks down in her car. She then remembers what the man told her when she asked where they were: A certain place, a certain time, and a certain orientation.
