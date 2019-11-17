@@ -1058,17 +1058,11 @@ Chapter Three:
 *) Will gets a little drunk at the after party, looks up Abigail in the company directory, finds her address
 *) Drives home, going a little out of the way, and passes by her address. He pulls in.
 *) Inside the house he sees a grotesque figure hanging in the closet, pointing at the desk
-
 * (Dream) Sees her try to light the journal on fire, put it out, then hide it instead.
-
 * Has a dream he visits the house and discovers a journal when her hung body with tentacles for a face point at the dresser. He wakes up, unaware he was dreaming. It’s the middle of the night. The house is the same as his dream. He finds the journal.
-
 * The place looks like his dream, except reverse. And darker. He uses phone as flashlight.
-
 * Exploring the house he sees his reflection in the mirror and is startled.
-
 * Once the idea was planted within his brain it would not leave him alone. It seemed wrong and inwardly he even asked himself, can a person do things like this? Somewhere inside he knew he wanted his inner voice to reassure him. Don't be silly, of course not. There are laws prohibiting such things. But that voice never came and he knew that as long as no one found out, a person could do things like this. And worse things, if need be.
-
 * While exploring the house, Will sees an old doll on the bed next to the pillow, maybe it startles him.
 
 Chapter Four:
@@ -1139,7 +1133,19 @@ Chapter Nine:
 *) On the way home she stops at the liquor store and picks up jack Daniels and coke
 *) She gets drunk, trying to get rid of this empty feeling. She has a joint that Crystal gave her and smokes that too.
 *) She is unable to sleep all night.
--) The next morning she calls in sick and returns to the Kroger.
--) She cannot find the door, goes into Greens and buys more liquor, goes into the Kroger for grapefruit juice.
--) Breaks down in her car. She then remembers what the man told her when she asked where they were: A certain place, a certain time, and a certain orientation.
--) She waits until evening, goes through the opening in the fence, the woods, finds the door. She enters and the man asks the same question as before. End of chapter.
+*) The next morning she calls in sick and returns to the Kroger.
+*) She cannot find the door, goes into Greens and buys more liquor, goes into the Kroger for grapefruit juice.
+*) Breaks down in her car. She then remembers what the man told her when she asked where they were: A certain place, a certain time, and a certain orientation.
+*) She waits until evening, goes through the opening in the fence, the woods, finds the door. She enters and the man asks the same question as before. End of chapter.
+
+Chapter Ten:
+
+-) He pulls into the McDonald's about 5:30 p.m. As he sits in the parking lot the golden arches sign lights up bright yellow.
+-) He enters the opening and finds the arrow and railroad tracks. He follows them.
+-) When he emerges from the woods, he sees Rabbit sitting on the steps, smoking a cigarette. Then finished, he rises, removes a necklac from around his neck, slides the pendant into a slot, looks as if he is saying a prayer, and opens the door. But as he shoves the necklace into his pocket, it falls to the ground.
+-) He walks over, finds the pendant, a flat river stone, egg shaped, with a symbol. He enters it into the slot on the doorknob, but the door won't open.
+-) He is hit across the head with a 2x4. Rabbit is shouting at him to "Gimme dat key back. Gimme dat key."
+-) He is chased into the woods and is lost. It gets dark. His cell phone dies.
+
+
+K'thadras the Undying, Dweller of the Egg, the One Who Waits.
