@@ -1149,3 +1149,6 @@ Chapter Ten:
 
 
 K'thadras the Undying, Dweller of the Egg, the One Who Waits.
+
+
+Chapter One: 
