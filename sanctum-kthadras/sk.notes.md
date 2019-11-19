@@ -673,6 +673,8 @@ A week passed. Starts at work, in a meeting, Will demoing his automation script,
 
 ### The Goat Farm (Art Center)
 
+* K'thadras the Undying, Dweller of the Egg, the One Who Waits.
+
 * You think you are safe. You are not safe. Thanks, I’ll watch my back. It’s not your back I would worry about. What should I worry about then? Your soul.
 
 * You’re too cocky. He laughed. You think you’re safe...
@@ -1140,15 +1142,26 @@ Chapter Nine:
 
 Chapter Ten:
 
--) He pulls into the McDonald's about 5:30 p.m. As he sits in the parking lot the golden arches sign lights up bright yellow.
--) He enters the opening and finds the arrow and railroad tracks. He follows them.
--) When he emerges from the woods, he sees Rabbit sitting on the steps, smoking a cigarette. Then finished, he rises, removes a necklac from around his neck, slides the pendant into a slot, looks as if he is saying a prayer, and opens the door. But as he shoves the necklace into his pocket, it falls to the ground.
--) He walks over, finds the pendant, a flat river stone, egg shaped, with a symbol. He enters it into the slot on the doorknob, but the door won't open.
--) He is hit across the head with a 2x4. Rabbit is shouting at him to "Gimme dat key back. Gimme dat key."
--) He is chased into the woods and is lost. It gets dark. His cell phone dies.
+*) He pulls into the McDonald's about 5:30 p.m. As he sits in the parking lot the golden arches sign lights up bright yellow.
+*) He enters the opening and finds the arrow and railroad tracks. He follows them.
+*) When he emerges from the woods, he sees Rabbit sitting on the steps, smoking a cigarette. Then finished, he rises, removes a necklac from around his neck, slides the pendant into a slot, looks as if he is saying a prayer, and opens the door. But as he shoves the necklace into his pocket, it falls to the ground.
+*) He walks over, finds the pendant, a flat river stone, egg shaped, with a symbol. He enters it into the slot on the doorknob, but the door won't open.
+*) He is hit across the head with a 2x4. Rabbit is shouting at him to "Gimme dat key back. Gimme dat key."
+*) He is chased into the woods and is lost. It gets dark. His cell phone dies.
+*) He comes into a clearing, realizes he is sweating, the air is warm
+*) Runs directly into a leathery wall, feeling along it, he feels it swell, it is a creature that hasn't be alive for millions of years
+*) Sees the nebula reflected in it's eye, turns to look at the real thing
+-) Backs carefully away, sees the golden arches shining through the night forest
 
 
-K'thadras the Undying, Dweller of the Egg, the One Who Waits.
+With every plastic bottle I casually toss into the trash I knowingly destroy this world. I do it every day. How did it happen? The disassociation.
 
 
-Chapter One: 
+Following after what Abigail discovered about the door Will too drives to the McDonald's and finds the path leading into the woods and the railroad tracks all the way to the Murder Kroger. It is twilight by the time he emerges and hard to make out the details of things, but he can see the door. He turns the knob but finds it locked. At that point he hears someone else coming through the woods and hides behind a large trash bin. He watches the black albino emerge and approach the same door. Rabbit takes the pendant from around his neck, inserts it into a slot in the door, mutters strange words, turns the knob and enters. After a few moments Will once again approaches the door because he can see the pendant and chain still hanging from the slot. He turns the knob but it still won't open. He removes the pendant from the slot and looks at it. Suddenly he is hit over the head by something hard. He has just enough time to see Rabbit from the corner of his eye swinging a 2x4 in his direction, hitting him squarely on the shoulder. Rabbit is shouting, "Gimme dat key back! Gimme dat key!" Will falls down and scrambles away into the woods. He hears Rabbit following close behind, 2x4 in hand.
+
+Will loses his way in the darkening woods but soon he no longer hears Rabbit behind him and stops to rest. His breathing is hard. He is too afraid to use his phone's flashlight since it might give his location away. He continues slowly through the woods, feeling for the railroad tracks by foot. But then he hits a hard wall and reaches out and feels that it is cold and leathery, much like the skin of a lizard. The wall heaves and knocks him to the ground. He sees a large black orb, glistening, watching him. Without being able to explain why he understands this is a creature that has not walked the Earth for millions of years, yet he is also not afraid. He gazes into its eye and sees the starry night sky reflected in its blackness. Then in the reflection he sees a vast, blue nebula and turns to look at the actual thing. It mesmerizes him. Hearing the mountainous creature stir he scrambles back and goes back the way he came through the woods, soon seeing the light of the golden arches through the trees.
+
+The following day Will uses a photo of the pendant to do an image search online and learns that it's an ancient symbol for the Order of Kthadras, the One Who Waits. Kthadras is an Outer God whose followers believe resides in the core of the planet Earth. According to their religion, planet Earth formed around the sleeping abomination billions of years ago as it waited for the return of something entirely unknown to us. Adherents believe their purpose in life is to offer sustenance to the hibernating God. The Orders are known to congregate around places where it is believed Kthadras has broken through the shell of the world (hence the egg metaphor) and caused the surrounding landscape to wither and decay. This ground is sacred to them because it is a physical manifestation of Kthadras in the everyday world.
+
+He finds the email of a woman named Susan Burrows, who has written more than anyone else on the history of the Order. He sends her the photo of the pendant, asking if she has ever seen anything like it and if so can help him to understand the strange things he's seen over the last few days. She responds very quickly wanting to discuss the pendant. They Skype briefly and it turns out she will be in the city in a few weeks time on a lecture tour and they make tentative arrangements to meet up then. She asks him to not show anyone else the pendant until they talk. He agrees.
+
