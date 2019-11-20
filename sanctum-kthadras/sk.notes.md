@@ -1155,9 +1155,9 @@ Chapter Ten:
 
 Chapter Eleven
 
--) He wakes up after bad dreams, losing grip, calls in sick
--) Takes a photo of the pendant, does a reverse image search
--) The first clue is an image from a conspiracy theory forum, ten years earlier, a drawing
+*) He wakes up after bad dreams, losing grip, calls in sick
+*) Takes a photo of the pendant, does a reverse image search
+*) The first clue is an image from a conspiracy theory forum, ten years earlier, a drawing
 -) There is a forum post describing a ritual he witnessed, ending with 'K'thadras the Undying, Dweller of the Egg, The One Who Waits'
 -) Nobody on the forum believed him, saying this was bullshit creepypasta that's been around since the days of Usenet
 -) Searching for K'thadras indeed finds several posts in the same vein, but also some references on conspiracy theory websites
@@ -1172,16 +1172,3 @@ The following day Will uses a photo of the pendant to do an image search online 
 He finds the email of a woman named Susan Burrows, who has written more than anyone else on the history of the Order. He sends her the photo of the pendant, asking if she has ever seen anything like it and if so can help him to understand the strange things he's seen over the last few days. She responds very quickly wanting to discuss the pendant. They Skype briefly and it turns out she will be in the city in a few weeks time on a lecture tour and they make tentative arrangements to meet up then. She asks him to not show anyone else the pendant until they talk. He agrees.
 
 
-Ed's house was bulldozed after it mysteriously burned down in 1958, but people still seek the spot where he practiced his peculiar form of carnage.
-Address:
-
-N5691 2nd Ave., Plainfield, WI
-Directions:
-I-39 exit 136. West on Hwy 73 a little over a mile, then left (south) on Hwy KK. After two miles, turn right (west) on Archer Ave. The former Gein property is one mile west, at the SW corner of Archer and 2nd Aves. NO TRESPASSING signs are on almost every tree on the property that lines Archer. The driveway is overgrown and blocked by a chain with a wooden sign that reads "Fischer."
-Hours:
-Private property.
-
-Site of Ed Gein's House
-Last week my boyfriend and I traveled to Ed Gein's house. We actually used roadsideamerica.com to find the location of his house. It was very helpful.
-
-However, when we got there, all we saw were tons of trees cut down. We were on the corner of Archer and 2nd, and we did see a dirt path, and everything was overgrown. The gate was not locked so we drove through it. It led to an opening where tons of trees were being cut down. Now, either the directions were wrong, or the house was torn down, but we did not see the house Ed Gein lived in. We were told later on that his house had been burned down a couple months after he was arrested.
