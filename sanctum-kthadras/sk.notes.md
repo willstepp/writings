@@ -1151,17 +1151,37 @@ Chapter Ten:
 *) He comes into a clearing, realizes he is sweating, the air is warm
 *) Runs directly into a leathery wall, feeling along it, he feels it swell, it is a creature that hasn't be alive for millions of years
 *) Sees the nebula reflected in it's eye, turns to look at the real thing
--) Backs carefully away, sees the golden arches shining through the night forest
+*) Backs carefully away, sees the golden arches shining through the night forest
 
+Chapter Eleven
 
-With every plastic bottle I casually toss into the trash I knowingly destroy this world. I do it every day. How did it happen? The disassociation.
-
-
-Following after what Abigail discovered about the door Will too drives to the McDonald's and finds the path leading into the woods and the railroad tracks all the way to the Murder Kroger. It is twilight by the time he emerges and hard to make out the details of things, but he can see the door. He turns the knob but finds it locked. At that point he hears someone else coming through the woods and hides behind a large trash bin. He watches the black albino emerge and approach the same door. Rabbit takes the pendant from around his neck, inserts it into a slot in the door, mutters strange words, turns the knob and enters. After a few moments Will once again approaches the door because he can see the pendant and chain still hanging from the slot. He turns the knob but it still won't open. He removes the pendant from the slot and looks at it. Suddenly he is hit over the head by something hard. He has just enough time to see Rabbit from the corner of his eye swinging a 2x4 in his direction, hitting him squarely on the shoulder. Rabbit is shouting, "Gimme dat key back! Gimme dat key!" Will falls down and scrambles away into the woods. He hears Rabbit following close behind, 2x4 in hand.
-
-Will loses his way in the darkening woods but soon he no longer hears Rabbit behind him and stops to rest. His breathing is hard. He is too afraid to use his phone's flashlight since it might give his location away. He continues slowly through the woods, feeling for the railroad tracks by foot. But then he hits a hard wall and reaches out and feels that it is cold and leathery, much like the skin of a lizard. The wall heaves and knocks him to the ground. He sees a large black orb, glistening, watching him. Without being able to explain why he understands this is a creature that has not walked the Earth for millions of years, yet he is also not afraid. He gazes into its eye and sees the starry night sky reflected in its blackness. Then in the reflection he sees a vast, blue nebula and turns to look at the actual thing. It mesmerizes him. Hearing the mountainous creature stir he scrambles back and goes back the way he came through the woods, soon seeing the light of the golden arches through the trees.
+-) He wakes up after bad dreams, losing grip, calls in sick
+-) Takes a photo of the pendant, does a reverse image search
+-) The first clue is an image from a conspiracy theory forum, ten years earlier, a drawing
+-) There is a forum post describing a ritual he witnessed, ending with 'K'thadras the Undying, Dweller of the Egg, The One Who Waits'
+-) Nobody on the forum believed him, saying this was bullshit creepypasta that's been around since the days of Usenet
+-) Searching for K'thadras indeed finds several posts in the same vein, but also some references on conspiracy theory websites
+-) He finds one talking about Adherents spotted at Anasazi ruins in New Mexico, grainy photos, a body was discovered in a shallow grave
+-) Finds other blogs, but nothing that speaks to him as being real, until he finds a mention of K'thadras in a paper by Susan Burrows
+-) He contacts Susan by email and asks her if she can tell him anything about the pendant
+-) She responds within the hour, asking if they can talk, gives him her phone number
+-) They talk and she tells him not to tell anyone, asks him where he is, says she is on a lecture tour at the moment, and will be at the Goat Farm next week
 
 The following day Will uses a photo of the pendant to do an image search online and learns that it's an ancient symbol for the Order of Kthadras, the One Who Waits. Kthadras is an Outer God whose followers believe resides in the core of the planet Earth. According to their religion, planet Earth formed around the sleeping abomination billions of years ago as it waited for the return of something entirely unknown to us. Adherents believe their purpose in life is to offer sustenance to the hibernating God. The Orders are known to congregate around places where it is believed Kthadras has broken through the shell of the world (hence the egg metaphor) and caused the surrounding landscape to wither and decay. This ground is sacred to them because it is a physical manifestation of Kthadras in the everyday world.
 
 He finds the email of a woman named Susan Burrows, who has written more than anyone else on the history of the Order. He sends her the photo of the pendant, asking if she has ever seen anything like it and if so can help him to understand the strange things he's seen over the last few days. She responds very quickly wanting to discuss the pendant. They Skype briefly and it turns out she will be in the city in a few weeks time on a lecture tour and they make tentative arrangements to meet up then. She asks him to not show anyone else the pendant until they talk. He agrees.
 
+
+Ed's house was bulldozed after it mysteriously burned down in 1958, but people still seek the spot where he practiced his peculiar form of carnage.
+Address:
+
+N5691 2nd Ave., Plainfield, WI
+Directions:
+I-39 exit 136. West on Hwy 73 a little over a mile, then left (south) on Hwy KK. After two miles, turn right (west) on Archer Ave. The former Gein property is one mile west, at the SW corner of Archer and 2nd Aves. NO TRESPASSING signs are on almost every tree on the property that lines Archer. The driveway is overgrown and blocked by a chain with a wooden sign that reads "Fischer."
+Hours:
+Private property.
+
+Site of Ed Gein's House
+Last week my boyfriend and I traveled to Ed Gein's house. We actually used roadsideamerica.com to find the location of his house. It was very helpful.
+
+However, when we got there, all we saw were tons of trees cut down. We were on the corner of Archer and 2nd, and we did see a dirt path, and everything was overgrown. The gate was not locked so we drove through it. It led to an opening where tons of trees were being cut down. Now, either the directions were wrong, or the house was torn down, but we did not see the house Ed Gein lived in. We were told later on that his house had been burned down a couple months after he was arrested.
