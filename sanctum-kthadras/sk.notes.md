@@ -1158,11 +1158,11 @@ Chapter Eleven
 *) He wakes up after bad dreams, losing grip, calls in sick
 *) Takes a photo of the pendant, does a reverse image search
 *) The first clue is an image from a conspiracy theory forum, ten years earlier, a drawing
--) There is a forum post describing a ritual he witnessed, ending with 'K'thadras the Undying, Dweller of the Egg, The One Who Waits'
--) Nobody on the forum believed him, saying this was bullshit creepypasta that's been around since the days of Usenet
--) Searching for K'thadras indeed finds several posts in the same vein, but also some references on conspiracy theory websites
--) He finds one talking about Adherents spotted at Anasazi ruins in New Mexico, grainy photos, a body was discovered in a shallow grave
--) Finds other blogs, but nothing that speaks to him as being real, until he finds a mention of K'thadras in a paper by Susan Burrows
+*) There is a forum post describing a ritual he witnessed, ending with 'K'thadras the Undying, Dweller of the Egg, The One Who Waits'
+*) Nobody on the forum believed him, saying this was bullshit creepypasta that's been around since the days of Usenet
+*) Searching for K'thadras indeed finds several posts in the same vein, but also some references on conspiracy theory websites
+*) He finds one talking about Adherents spotted at Anasazi ruins in New Mexico, grainy photos, a body was discovered in a shallow grave
+*) Finds other blogs, but nothing that speaks to him as being real, until he finds a mention of K'thadras in a paper by Susan Burrows
 -) He contacts Susan by email and asks her if she can tell him anything about the pendant
 -) She responds within the hour, asking if they can talk, gives him her phone number
 -) They talk and she tells him not to tell anyone, asks him where he is, says she is on a lecture tour at the moment, and will be at the Goat Farm next week
