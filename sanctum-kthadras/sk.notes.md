@@ -388,7 +388,7 @@ Mentioned to Dr. Patel during our appointment today that I kept a diary back in 
 Today I was pulling out of the Walmart parking lot, waiting at the red light, and right in front of me a Honda turning into the lot was t-boned by a pickup truck with a rebel flag in the back window. It happened right in front of me. I saw the windshield shatter, the airbag deploy, the lady in the car whiplashed, all in slow motion. It was shocking. I felt a sense of responsibility to do something to help. At the same time I was in traffic, there were also cars behind me, waiting. The light turned green and I made a wide turn to avoid the wreckage and continued down the road. Did I do something wrong? A part of me says no, but there's another part of me that says yes. It's a smaller voice, but it's there. I think you should help people in life. Today I failed to do that and my guilt is my conscious re-affirming that to me. I can rationalize and tell myself it was better for me to get out of the way, that I would have just caused more problems if I stopped to help. But bullshit. I should have done something. And I didn't. I have a feeling I'll still think back on this day fifty years from now, when I'm old and shriveled up. Maybe on my death bed I'll remember this day and still feel this pang of regret. If mama was still here I could tell her about it and she would tell me not to worry. But she's not.
 
 * April 16
-Lexapro is starting to work. I think. Finding it easier to sleep. Dr. Patel said it could take up to two weeks to achieve the full effect. In our appointment today I told him I started this journal based on his recommendation. He was glad to hear that. He asked what I wrote so far and I told him about the accident at the traffic light and how it made me feel guilty. He reassured me that in a public place that is a common feeling. The Bystander Effect, he said it's called. Perhaps I could have stopped or called the police, but that it was perfectly normal to react how I did. Weirdly, him saying that made me feel better. Like lifted a weight I had been carrying around all week, from that little thing. He asked me to write down some good memories about my mother in the journal. That it "doesn't have to be all bad feelings". I told him I would. Just not today. Tomorrow.
+Antidepressant is starting to work. I think. Finding it easier to sleep. Dr. Patel said it could take up to two weeks to achieve the full effect. In our appointment today I told him I started this journal based on his recommendation. He was glad to hear that. He asked what I wrote so far and I told him about the accident at the traffic light and how it made me feel guilty. He reassured me that in a public place that is a common feeling. The Bystander Effect, he said it's called. Perhaps I could have stopped or called the police, but that it was perfectly normal to react how I did. Weirdly, him saying that made me feel better. Like lifted a weight I had been carrying around all week, from that little thing. He asked me to write down some good memories about my mother in the journal. That it "doesn't have to be all bad feelings". I told him I would. Just not today. Tomorrow.
 
 * I wish I never found that room. I wish I had never gone inside. There is so much I don’t understand and never will.
 
@@ -1124,7 +1124,7 @@ Chapter Eight:
 *) Things are going well.
 *) She is getting sleep.
 *) Makes up with Byron.
-*) Stops taking Lexapro against Dr Patels orders
+*) Stops taking antidepressant against Dr Patels orders
 *) Takes a crochet class.
 *) Wakes up vomiting, trembling, feeling dizzy
 
@@ -1163,10 +1163,37 @@ Chapter Eleven
 *) Searching for K'thadras indeed finds several posts in the same vein, but also some references on conspiracy theory websites
 *) He finds one talking about Adherents spotted at Anasazi ruins in New Mexico, grainy photos, a body was discovered in a shallow grave
 *) Finds other blogs, but nothing that speaks to him as being real, until he finds a mention of K'thadras in a paper by Susan Burrows
--) He contacts Susan by email and asks her if she can tell him anything about the pendant
--) She responds within the hour, asking if they can talk, gives him her phone number
--) They talk and she tells him not to tell anyone, asks him where he is, says she is on a lecture tour at the moment, and will be at the Goat Farm next week
+*) He contacts Susan by email and asks her if she can tell him anything about the pendant
+*) She responds within the hour, asking if they can talk, gives him her phone number
+*) They talk and she tells him not to tell anyone, asks him where he is, says she is on a lecture tour at the moment, and will be at the Goat Farm next week
 
-The following day Will uses a photo of the pendant to do an image search online and learns that it's an ancient symbol for the Order of Kthadras, the One Who Waits. Kthadras is an Outer God whose followers believe resides in the core of the planet Earth. According to their religion, planet Earth formed around the sleeping abomination billions of years ago as it waited for the return of something entirely unknown to us. Adherents believe their purpose in life is to offer sustenance to the hibernating God. The Orders are known to congregate around places where it is believed Kthadras has broken through the shell of the world (hence the egg metaphor) and caused the surrounding landscape to wither and decay. This ground is sacred to them because it is a physical manifestation of Kthadras in the everyday world.
+Chapter Twelve
 
-He finds the email of a woman named Susan Burrows, who has written more than anyone else on the history of the Order. He sends her the photo of the pendant, asking if she has ever seen anything like it and if so can help him to understand the strange things he's seen over the last few days. She responds very quickly wanting to discuss the pendant. They Skype briefly and it turns out she will be in the city in a few weeks time on a lecture tour and they make tentative arrangements to meet up then. She asks him to not show anyone else the pendant until they talk. He agrees.
+-) We learn that Abigail is worried that something isn't right
+-) She goes back and says that after food, she starting drinking
+-) She buys weed from Crystal, but after that doesn't feel comfortable
+-) She browses internet forums, learning how to access meth, anything
+-) She browses Craigslist and meets up with a man named Steve
+-) She drives to a sketchy part of town, apt where a toddler is outside at night alone
+-) Steve gives her meth, she reacts strongly to it, he takes advantage of her and she likes it
+-) The next morning she leaves before he wakes, steals the meth, drives away crying, feels the hunger
+-) The man in the room is weak, his voice thinner, in the corners of the room, something is growing.
+-) We learn that she feels good, happy, but it's not real. 
+
+But I know inside it's not real what I'm feeling now. It's just not.
+
+It's not real.
+
+parTy = Meth codeword
+Come party with me and my girl Tina
+
+
+Mid 40's Male looking for female or Male for late night activitiess
+Looking for male or female to have some hot fun tonight. Come hang with me. I have parTy favors ...Contact me::: Rohinga7 @gmail .com
+
+
+30s wm needs female to party n chill for a few. (Party favs included).
+
+30s wm needs female to party n chill for a few. (Party favs included). Activities include ice skating, 420 and there's one more of my friend named proxy. And she's 20. Looking for now. I'm mobile also. Let me know asap
+
+Party and Play
