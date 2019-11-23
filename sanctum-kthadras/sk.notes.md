@@ -1169,11 +1169,11 @@ Chapter Eleven
 
 Chapter Twelve
 
--) We learn that Abigail is worried that something isn't right
--) She goes back and says that after food, she starting drinking
--) She buys weed from Crystal, but after that doesn't feel comfortable
--) She browses internet forums, learning how to access meth, anything
--) She browses Craigslist and meets up with a man named Steve
+*) We learn that Abigail is worried that something isn't right
+*) She goes back and says that after food, she starting drinking
+*) She buys weed from Crystal, but after that doesn't feel comfortable
+*) She browses internet forums, learning how to access meth, anything
+*) She browses Craigslist and meets up with a man named Steve
 -) She drives to a sketchy part of town, apt where a toddler is outside at night alone
 -) Steve gives her meth, she reacts strongly to it, he takes advantage of her and she likes it
 -) The next morning she leaves before he wakes, steals the meth, drives away crying, feels the hunger
@@ -1183,17 +1183,3 @@ Chapter Twelve
 But I know inside it's not real what I'm feeling now. It's just not.
 
 It's not real.
-
-parTy = Meth codeword
-Come party with me and my girl Tina
-
-
-Mid 40's Male looking for female or Male for late night activitiess
-Looking for male or female to have some hot fun tonight. Come hang with me. I have parTy favors ...Contact me::: Rohinga7 @gmail .com
-
-
-30s wm needs female to party n chill for a few. (Party favs included).
-
-30s wm needs female to party n chill for a few. (Party favs included). Activities include ice skating, 420 and there's one more of my friend named proxy. And she's 20. Looking for now. I'm mobile also. Let me know asap
-
-Party and Play
