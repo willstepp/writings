@@ -1174,12 +1174,11 @@ Chapter Twelve
 *) She buys weed from Crystal, but after that doesn't feel comfortable
 *) She browses internet forums, learning how to access meth, anything
 *) She browses Craigslist and meets up with a man named Steve
--) She drives to a sketchy part of town, apt where a toddler is outside at night alone
--) Steve gives her meth, she reacts strongly to it, he takes advantage of her and she likes it
--) The next morning she leaves before he wakes, steals the meth, drives away crying, feels the hunger
--) The man in the room is weak, his voice thinner, in the corners of the room, something is growing.
--) We learn that she feels good, happy, but it's not real. 
+*) She drives to a sketchy part of town, apt where a toddler is outside at night alone
+*) Steve gives her meth, she reacts strongly to it, he takes advantage of her and she likes it
+*) The next morning she leaves before he wakes, steals the meth, drives away crying, feels the hunger
+*) The man in the room is weak, his voice thinner, in the corners of the room, something is growing.
+*) We learn that she feels good, happy, but it's not real. 
 
-But I know inside it's not real what I'm feeling now. It's just not.
+Chapter Thirteen
 
-It's not real.
