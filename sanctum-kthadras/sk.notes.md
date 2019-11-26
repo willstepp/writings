@@ -1185,10 +1185,22 @@ Chapter Thirteen
 *) Susan Burrows Talk
 *) Coffee Talk
 
-Chapter Fourteen
+Chapter Fifteen
 
--)
--)
+*) Fired
+*) She is meeting men on craigslist, returns to Stephen, he starts asking her to meet friends
+-) Stephen is sending her on dates for money, making her pay for the drugs she's using
+-) Stephen arranges a group party and play, they've rented out several rooms, he tells her to distract them and he plans to rob
+-) The night of, she is asked, "are you on the menu?" she sleeps with women and men
+-) they are caught stealing and beat up, she getting cut across her face
+-) The power is turned off, she takes the TV and other electronics to pawn, going to move in with stephen at the weekly-rate motel
+-) she visits the man in the room who is not affixed to the floor, things growing out of him, the walls are pulsating, he can barely speak. she embraces in horror. she no longer wants this but feels compelled.
+
+
+
+The chapter opens with a scene where Abigail is fired, sittting down with Tammy and Chen, who give her pamphlets about drug abuse, tell her she’s lost weight and doesn’t look healthy. She storms out. Then it tells about a bender, spending the rest of her savings on drugs, meeting up with men, selling sex for cash and drugs. Stephen is now staying at weekly-rate motel off Buford Highway. He comes up with a scheme to go to this swingers sex party, and rob them while they’re distracted. Abigail agrees. Children outside looking in. She has sex with a group of men. Signals to Stephen where the money is, but Stephen gets caught and they are both beaten within an inch, told they are methheads and whores. When Abigail gets home the power has been shut off. She packs her things, and loads up the tv to sell, heads to the weekly-rare to crash with Stephen.
+
+But she stops at the room. The walls are covered with red and black mold, pulsating. Something toxic floating in the air. The man wheezing, whispers to her, Where are you hurting, Abigail?
 
 A month has gone by because she finds the journal as she's moving out, after the power was turned off, packing her stuff.
 Are you on the menu?
