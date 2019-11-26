@@ -1182,128 +1182,13 @@ Chapter Twelve
 
 Chapter Thirteen
 
-I want to help her.
+*) Susan Burrows Talk
+*) Coffee Talk
 
-But you can't, honey. Not anymore.
+Chapter Fourteen
 
-My advice. Walk away from this.
+-)
+-)
 
-* K'thadras the Undying, Dweller of the Egg, the One Who Waits.
-
-* You think you are safe. You are not safe. Thanks, I’ll watch my back. It’s not your back I would worry about. What should I worry about then? Your soul.
-
-* You’re too cocky. He laughed. You think you’re safe...
-
-* You still think you’re safe...
-
-* Places like the Murder Kroger are areas where Kthadras has broken through the shell and manifested himself in the everyday world.
-
-* Why are you looking at me that way? You’ve been giving me these looks this whole time. This bemused look, and I don’t like it. Do you not take me seriously? I admit I do find you a bit amusing. I apologize. My mother never taught me manners. But why are you amused? This is not a joke to me. It’s been keeping me awake. I have barely slept. I laugh to myself, and I do apologize for that, because you still think you’re merely an observer to all the horrible and tragic events you’ve uncovered here. You still think you can close the journal anytime you like and simply walk away. In a word, you still think you’re safe. You are not safe.
-
-* This professor woman is giving a lecture, which he attends, at which she explains the origin of the Kthadras myth...with all brethren forming the planets of our solar system, sanctums in the nomenclature of the adherents. He speaks to her about the pendant and discloses the journal. She smiles at the end and he blows up. She grabs his hand and he sees a tattoo of the egg symbol on her wrist. You are not safe.
-
-* Impartial observer. In the vernacular of the adherents
-
-* I admit I do find your situation a tad amusing. This is not a joke to me...
-
-* I’m not sure it was a suicide. Murder? I don’t know. I feel like this group took advantage of her somehow, drugged her, whatever. How else do you explain the things she’s described. How indeed.
-
-* (She is not in the Order) The professor cannot help him get into the room, however, there is a book that describes the inner workings of the Order. It is not published and cannot be found on the World Wide Web, as far as I know. But I have a contact for such arcana, obscure primary texts, that sort of thing. I could give him your information and tell him what you are looking for? He’s a strange guy (at least I think he’s a guy) but reliable. Please do that. I have this feeling Alicia’s suicide is not what it appears to be. And I want to find out more before I do anything like going to the police. Out of curiosity, may I ask why? I don’t want them to dismiss me as some lunatic and fail to give it the proper attention. On paper this sounds completely insane. So I want to have all my ducks in a row. And what else? Why are you smiling at me that way? You’ve had this look the whole time we’ve been speaking. Do you know something? Tell me Goddamnit! Her smile faded and she took a moment to collect her thoughts. I apologize. I’m sorry. Okay? This amateur detective work of yours is amusing to me, and my mother didn’t teach me any manners. But let me ask you one question, have you ever stopped for one moment to reflect on your current situation? What do you mean? It’s all I can think about. It’s eating me up inside. Obviously. But what I mean is, you still believe you are nothing but an impartial observer...
-
-* What I mean is, you reach out to me and tell me this bizarre story of a woman’s death, looking for clues like you’re Colombo or something, just ‘workin a case ma’am’, you see what I mean? But that’s not what’s really going on here. It’s as clear as day, you just haven’t recognized it yet. You still think you’re nothing more than a concerned citizen, an impartial observer to the tragedy you’ve uncovered. You still think you can close that journal anytime you like, maybe make an anonymous phone call to the police, and then go on with your life, just like it was before. But you are a part of this story now. A role has been written for you and you are playing it at this very moment, by coming to speak with me. Don’t you see that? To put it more bluntly, because I can see by your reaction that you’re not seeing it — you still think you’re safe. She reached out and grabbed his hand and squeezed it hard, as you would to wake someone who was inside of a deep dream. You are not safe.
-
-* There is a handbook of some kind, a practical guide the Order uses to conduct it’s rituals. It may have the information you require. I’ve never seen it myself. My man on the inside claims he can get a copy for me, but it doesn’t come cheap. That’s what has prevented me so far, on my shit salary. But if you were willing to pay the asking price?
-
-* I’ll be speaking at the Anthropology and the Occult conference in Chattanooga over the weekend, you’re welcome to come by. I’d love to hear more of your story and to be perfectly honest take a gander at that pendant!
-
-* Important that the lecturer gives him a contact on the deep web, accessed via Tor, then the arrangement to meet in a public place, Clairmont?
-
-* You have this pendant because they want you to have it. Why don’t you see that?
-
-* I believe they may be responsible for this woman’s death. Abigail? Yes. Not suicide then? They may have brainwashed her, I don’t know.
-
-* You can’t save her. She’s gone. But if I can uncover the truth, then —
-
-* Their role is to offer sustenance.
-
-* Make it more explicit that the doctor thinks the mythology is bullshit but that the order is real (from Derek)
-
-* One thing I’ve learned over years and years studying religion and occult belief systems. Human being’s capacity for self-delusion is very, very high.
-
-* If you can imagine it, you can talk yourself into believing it.
-
-* Kthadras is not a spiritual concept. That’s very important to keep in mind. It is a being just as much a part of the cosmos as you and me. It may not share our biology or chemistry or even our physics, but it is real. At least, to the adherents of the Order.
-
-* There are no known artistic representations.
-
-* What is he, it waiting for?
-Laughter
-That is a very good question that I don’t know the answer to, and unfortunately know one does. The best guess we have about that comes from a series of petroglyphs found in the mountains of Patagonia. *she flips to a slide of some old figures hewn into rock in a artificially lit cave* See the egg here, you remember that from the rubbings I showed you. And now, look what comes after. Anyone recognize it? 
-A bird?
-That’s right, and look at the direction the bird is facing, toward the egg. The direction is not insignificant. This particular series has been translated as ‘Sleeping, it awaits the return’
-I told you we are a poor group, is Kthadras-lore-hunters. We have only straws to grasp at.
-Laughter.
-
-* The Whispers - that’s what they call the book of rituals, parables, we honestly don’t know what’s inside this thing. Or even whether it exists. There was a hoax in 1893. Someone created a book and sold it
-
-* It is thought Moloch, referenced in the Old Testament may very well have been a sect of Kthadras. One of my good friends, Dr. Byron Matthews, a historian at the University of Maine, wrote a fascinating paper about just that subject. If you’d like to read it send me an email and I’ll forward it to you.
-
-* One interesting fact about the sanctums is that they aren’t built, but instead discovered by the order. The sites for worship are chosen for being a known loci of a particular energy. I hesitate to say ‘evil’ because that is not a term the adherents use. But that is what most of us would call it. Places known for being haunted, locations where murders have taken place.
-
-* What about priests? People who live within the sanctum walls, Will asked.
-No clergy that we know about, no hierarchy at all really. Adherents is the only word we can find for those in the order. To my knowledge they don’t live in these places.
-
-* Locus
-
-* But what will happen when whatever is returning returns?
-
-She shrugged. 
-Chuckles around the room.
-
-Welcome to my world. But you know, I sort of love the mystery of it all. What fun is knowing all the answers.
-
-So, human beings are just like little insects on the shell of the earth egg?
-
-You got it, babe.
-
-Damn.
-
-And what happens when the egg cracks?
-
-Exactly!
-
-* What if I told you that underlying all the great religions of the world - Christianity, Islam, Judaism, Hinduism, Buddhism was a belief system more ancient, more primeval. Lurking in the shadows of those more well-known belief systems. Well, that is what I’m here to tell you today. You have likely never heard of this religion or if it’s deity, but I can assure you it is unlike any you have ever encountered before. The earliest reference we have for the deity of this religion comes from petroglyphs uncovered deep within caves systems. Take a look at these, found in within the mountains of Patagonia, in southern Chile, dated by scientists to be at least one hundred and fifty thousand years old, written in red ochre. The earliest pronounceable reference comes from a Tamil text, here the same symbol is referred to as K’thadras.
-
-* We forget in our daily lives that the universe remains a profound mystery to us. We don’t think about these things as we stand in line at Starbucks. I think it is healthy to remember that.
-
-* But if I could get inside and talk to this man she met. He seems to know what’s going on. I feel like they were indoctrinating her, something.
-
-* Where is love? Happiness.
-You are ascribing human emotions and standards of morality to something beyond such concepts. They don’t consider him to be evil.
-
-* Any more than you are evil when you accidentally step on a bug, or eat a hamburger. But what do they get from him. It doesn’t seem to contain any truths about our human existence.
-
-* This religion seems, brutal, unloving, what do the adherents get from it? How does it fulfill their lives.
-
-Well I think the simple answer to that is that it doesn’t. I would ask where you got the idea that religion is meant to fulfill you. That is a recent idea. Religion in its fundamental sense has always been about reconnecting with the origin of life. Fulfillment has nothing to do with it.
-
-They would see his works everywhere. Look at what our life has become, unending consumption of material possessions, ravaging the earth, and remember who he is: 
-
-consumer of the consumed, ravager of the ravaged
-
-* Interestingly, this word K’thadras is not itself Tamilic. We think it is from an even more ancient language now lost to us. Like, for example, if I am speaking to you and throw in a Latin phrase here and there - you know, et cetera. Laughter.
-
-* Interestingly, this word K'thadras is not itself Dravidian...
-
-* The only scripture known to exist is a book, considered a living text that grows with each subsequent generation of adherents, which is referred to in the lost language as the Vothmwag-Ab (try saying that three times fast) but has been come to be known colloquially as The Book of Whispers.
-
-* Myself and other scholars have attempted to procure a copy, I'm sure it's fascinating and we could learn so much more than we know now, but adherents are quite adept at keeping secrets. Hence the name, I suppose. But I'm always on the lookout, for any of you closet adherents in the audience today.
-
-* Sumerian?
-
-* The Dweller of The Egg, The One Who Waits
-
-
-
-
----
+A month has gone by because she finds the journal as she's moving out, after the power was turned off, packing her stuff.
+Are you on the menu?
