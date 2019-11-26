@@ -1307,22 +1307,3 @@ consumer of the consumed, ravager of the ravaged
 
 
 ---
-
-
-* What if I told you that underlying all the great religions of the world - Christianity, Islam, Judaism, Hinduism, Buddhism was a belief system more ancient, more primeval. Lurking in the shadows of those more well-known belief systems. Well, that is what I’m here to tell you today. You have likely never heard of this religion or if it’s deity, but I can assure you it is unlike any you have ever encountered before. The earliest reference we have for the deity of this religion comes from petroglyphs uncovered deep within caves systems. Take a look at these, found in within the mountains of Patagonia, in southern Chile, dated by scientists to be at least one hundred and fifty thousand years old, written in red ochre. The earliest pronounceable reference comes from a Sumerian text, here the same symbol is referred to as K’thadras.
-
-* What is he, it waiting for?
-Laughter
-That is a very good question that I don’t know the answer to, and unfortunately know one does. The best guess we have about that comes from a series of petroglyphs found in the mountains of Patagonia. *she flips to a slide of some old figures hewn into rock in a artificially lit cave* See the egg here, you remember that from the rubbings I showed you. And now, look what comes after. Anyone recognize it? 
-A bird?
-That’s right, and look at the direction the bird is facing, toward the egg. The direction is not insignificant. This particular series has been translated as ‘Sleeping, it awaits the return’
-I told you we are a poor group, is Kthadras-lore-hunters. We have only straws to grasp at.
-Laughter.
-
-* One thing I’ve learned over years and years studying religion and occult belief systems. Human being’s capacity for self-delusion is very, very high.
-
-* If you can imagine it, you can talk yourself into believing it.
-
-* Kthadras is not a spiritual concept. That’s very important to keep in mind. It is a being just as much a part of the cosmos as you and me. It may not share our biology or chemistry or even our physics, but it is real. At least, to the adherents of the Order.
-
-* There are no known artistic representations.
