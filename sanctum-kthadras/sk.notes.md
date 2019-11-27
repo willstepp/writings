@@ -1189,8 +1189,8 @@ Chapter Fifteen
 
 *) Fired
 *) She is meeting men on craigslist, returns to Stephen, he starts asking her to meet friends
--) Stephen is sending her on dates for money, making her pay for the drugs she's using
--) Stephen arranges a group party and play, they've rented out several rooms, he tells her to distract them and he plans to rob
+*) Stephen is sending her on dates for money, making her pay for the drugs she's using
+*) Stephen arranges a group party and play, they've rented out several rooms, he tells her to distract them and he plans to rob
 -) The night of, she is asked, "are you on the menu?" she sleeps with women and men
 -) they are caught stealing and beat up, she getting cut across her face
 -) The power is turned off, she takes the TV and other electronics to pawn, going to move in with stephen at the weekly-rate motel
