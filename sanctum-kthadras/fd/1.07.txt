@@ -1,7 +1,7 @@
 
 Seven
 
-  He looked up from the composition book and noticed the time on the wall clock in the kitchen: 9:15 a.m.
+  He looked up from the composition book. The time on the clock was nine fifteen in the morning.
   
   Within ten minutes he was in the Jeep weaving through traffic on his way to the office. Eyeballing the road, he sent Chen a quick text that he was on the way, and a few minutes later received a thumbs-up reply. The good thing was he missed the morning congestion and it only took him 30 minutes instead of the usual 45 to make it up Highway 400 to Exit 8. On the passenger seat was Abigail's diary. For some reason he didn't want to leave it behind.
   The Jeep lurched into its regular parking spot at about 10:20. He shouldered his laptop bag and did a fast walk through the parking lot into the building. By the time he reached Conference Room C the daily standup meeting was nearly over. Pence was on the big screen TV, listening intently as Chen stood and explained some logistic hurdle regarding the cloud move. The others gave him a desultory glance and then returned to Chen. He yanked the computer from his bag and turned it on. Without missing a beat, Chen turned to him and asked if he had an update on the migration scripts they planned to use to convert the existing build system over to the new.
