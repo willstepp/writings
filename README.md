@@ -1,8 +1,8 @@
 ### Books
 
-* Trinidad: A Voyage [4th draft]
-* The Dogs of Santiago [1st draft]
-* Hunger [2nd draft]
-* Aura Dim [1st draft]
-* Sanctum Kthadras [1st draft - 53181]
-* Gestation: Diary of a Novel [Notes]
+* Trinidad: A Voyage                        [4th - 62536]
+* The Dogs of Santiago                      [1st - 49248]
+* Hunger                                    [2nd - 30300]
+* Aura Dim                                  [1st - 54742]
+* Sanctum Kthadras                          [1st - 53181]
+* Gestation: Diary of a Novel in Progress   [Notes]
