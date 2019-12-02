@@ -1220,8 +1220,8 @@ spinning platforms on doors
 peeling paint
 
 
-1500: entrance
-1000: chase upside-down
-1000: chase liquid solid
-1000: chase face and blood vessel man
-500: reveal of albino bleeding out, escape, finding book in satchel
+*) 1500: entrance
+-) 1000: chase upside-down
+-) 1000: chase liquid solid
+-) 1000: chase face and blood vessel man
+-) 500: reveal of albino bleeding out in the shed, escape, finding book in satchel
