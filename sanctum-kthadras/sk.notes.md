@@ -1226,8 +1226,10 @@ peeling paint
   *) falls through floor to basement, in morgue, it is dark, swimming through hallway
   *) goes through wall outside, swimming through the air, the town burning and surrounding land is burning, goes up
   *) passes through figure, re-enters main chamber, and finds solid ground again
--) 1000: chase face and blood vessel man
-  -) is chased by a face down the hallway, everytime he looks it gets closer
-  -) is attacked by figure with a shard of bone, he sees the figure, no body, instead a vascular system of blood vessels and a nervous system of nerves, the eyes wild and insane
+*) 1000: chase face and blood vessel man
+  *) is chased by a face down the hallway, everytime he looks it gets closer
+  *) is attacked by figure with a shard of bone, he sees the figure, no body, instead a vascular system of blood vessels and a nervous system of nerves, the eyes wild and insane
 -) 500: reveal of albino bleeding out in the shed, escape, finding book in satchel
 
+http://misterandyriley.com/2019/10/25/how-to-talk-comedy-writer-updated-25th-october-2019/
+http://misterandyriley.com/2016/10/31/how-to-talk-comedy-writer-updated/
