@@ -1191,34 +1191,13 @@ Chapter Fifteen
 *) She is meeting men on craigslist, returns to Stephen, he starts asking her to meet friends
 *) Stephen is sending her on dates for money, making her pay for the drugs she's using
 *) Stephen arranges a group party and play, they've rented out several rooms, he tells her to distract them and he plans to rob
--) The night of, she is asked, "are you on the menu?" she sleeps with women and men
--) they are caught stealing and beat up, she getting cut across her face
--) The power is turned off, she takes the TV and other electronics to pawn, going to move in with stephen at the weekly-rate motel
--) she visits the man in the room who is not affixed to the floor, things growing out of him, the walls are pulsating, he can barely speak. she embraces in horror. she no longer wants this but feels compelled.
-
-
-
-The chapter opens with a scene where Abigail is fired, sittting down with Tammy and Chen, who give her pamphlets about drug abuse, tell her she’s lost weight and doesn’t look healthy. She storms out. Then it tells about a bender, spending the rest of her savings on drugs, meeting up with men, selling sex for cash and drugs. Stephen is now staying at weekly-rate motel off Buford Highway. He comes up with a scheme to go to this swingers sex party, and rob them while they’re distracted. Abigail agrees. Children outside looking in. She has sex with a group of men. Signals to Stephen where the money is, but Stephen gets caught and they are both beaten within an inch, told they are methheads and whores. When Abigail gets home the power has been shut off. She packs her things, and loads up the tv to sell, heads to the weekly-rare to crash with Stephen.
-
-But she stops at the room. The walls are covered with red and black mold, pulsating. Something toxic floating in the air. The man wheezing, whispers to her, Where are you hurting, Abigail?
-
-A month has gone by because she finds the journal as she's moving out, after the power was turned off, packing her stuff.
-Are you on the menu?
-
-
-
+*) The night of, she is asked, "are you on the menu?" she sleeps with women and men
+*) they are caught stealing and beat up, she getting cut across her face
+*) The power is turned off, she takes the TV and other electronics to pawn, going to move in with stephen at the weekly-rate motel
+*) she visits the man in the room who is not affixed to the floor, things growing out of him, the walls are pulsating, he can barely speak. she embraces in horror. she no longer wants this but feels compelled.
 
 
 Chapter 16
-
-
-
-orderlies
-broken plaster
-exposed rafters
-spinning platforms on doors
-peeling paint
-
 
 *) 1500: entrance
 *) 1000: chase upside-down
@@ -1229,7 +1208,37 @@ peeling paint
 *) 1000: chase face and blood vessel man
   *) is chased by a face down the hallway, everytime he looks it gets closer
   *) is attacked by figure with a shard of bone, he sees the figure, no body, instead a vascular system of blood vessels and a nervous system of nerves, the eyes wild and insane
--) 500: reveal of albino bleeding out in the shed, escape, finding book in satchel
+*) 500: reveal of albino bleeding out in the shed, escape, finding book in satchel
 
-http://misterandyriley.com/2019/10/25/how-to-talk-comedy-writer-updated-25th-october-2019/
-http://misterandyriley.com/2016/10/31/how-to-talk-comedy-writer-updated/
+Chapter 17
+
+-) 500: Asks sister for some money to fix her car, they meet at a taco place in a gas station, her sister offers her money on condition, asks if she's using drugs. she refuses and leaves
+-) 500: Stephen has a plan to make some money, since nobody wants to sleep with her anymore, they put an ad on craigslist with old pictures
+-) 1000: A john comes over, then Stephen comes in with gun, robs him. It gets violent. Abigail beats him.
+-) 500: This continues, they get high all the time. This is where the woman across the way is introduced
+-) One night a john contacts. She tells Stephen and goes to the room. The man is violent and rapes her, breaking bones. Stephen never shows up.
+-) She stumbles back to room and finds him passed out. She cries and starts hitting him. He hits her back and refuses to let her go to the emergency room.
+-) She visits the man who can no longer speak. She falls to her knees and holds him.
+
+
+
+Found this diary under a pile of clothes that don’t even fit me anymore. They just fall off. So it’s been a minute! Last time I wrote anything at all was the day I moved in with Stephen and that was over a month ago now. We’ve been staying at the Crown Inn on Monroe Avenue. I’m tired of this shithole. Bunch of Mexicans and drug addicts is all it is. Even worse is I’ve stuck inside the last few days, recuperating from a broken collarbone and a couple ribs too, I think. Stephen doesn't even want me walking to the Dollar General down the road. “Might look suspicious,” he says. But he doesn’t have a fucking clue. Just makes it up as he goes along. I know that. Plus he doesn’t own me. And he doesn’t know everything either. He doesn’t know I went out earlier this evening. And I won’t tell him. He doesn’t need to know about that. But I guess if I’m writing about what’s been going on in the world of Abbie, then I guess I better write it all at once and be done with it. Nothing else to do around here.
+
+Things really went to hell once my car broke down...
+
+Meets sister at a gas station. Asks for money. Her sister gives her some and begs her to get help. Mama would want this for you, and I don’t either.
+
+Men don’t want me anymore. They see my scar and they see the bruises and the needle marks. Even Stephen doesn’t want me. He said fucking me is like fucking a skeleton.
+
+Sister asks her to move back in. Apologizes but she doesn’t want to live under her sisters thumb.
+
+The men in the rape chapter are the same men he noticed his first day at work.
+
+Sister wants to control her addiction, check her into rehab.
+
+
+Please don't. I'm just lonely. I'm sorry. Please, I'm sorry. I'm a good person.
+
+Pregnant woman helps her after rape. But she tells her to fuck off.
+
+Stephen calls her his golden ticket
