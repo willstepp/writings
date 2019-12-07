@@ -1212,8 +1212,8 @@ Chapter 16
 
 Chapter 17
 
--) 500: Asks sister for some money to fix her car, they meet at a taco place in a gas station, her sister offers her money on condition, asks if she's using drugs. she refuses and leaves
--) 500: Stephen has a plan to make some money, since nobody wants to sleep with her anymore, they put an ad on craigslist with old pictures
+*) 500: Asks sister for some money to fix her car, they meet at a taco place in a gas station, her sister offers her money on condition, asks if she's using drugs. she refuses and leaves
+*) 500: Stephen has a plan to make some money, since nobody wants to sleep with her anymore, they put an ad on craigslist with old pictures
 -) 1000: A john comes over, then Stephen comes in with gun, robs him. It gets violent. Abigail beats him.
 -) 500: This continues, they get high all the time. This is where the woman across the way is introduced
 -) One night a john contacts. She tells Stephen and goes to the room. The man is violent and rapes her, breaking bones. Stephen never shows up.
@@ -1242,3 +1242,4 @@ Please don't. I'm just lonely. I'm sorry. Please, I'm sorry. I'm a good person.
 Pregnant woman helps her after rape. But she tells her to fuck off.
 
 Stephen calls her his golden ticket
+
