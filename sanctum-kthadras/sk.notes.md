@@ -1214,32 +1214,107 @@ Chapter 17
 
 *) 500: Asks sister for some money to fix her car, they meet at a taco place in a gas station, her sister offers her money on condition, asks if she's using drugs. she refuses and leaves
 *) 500: Stephen has a plan to make some money, since nobody wants to sleep with her anymore, they put an ad on craigslist with old pictures
--) 1000: A john comes over, then Stephen comes in with gun, robs him. It gets violent. Abigail beats him.
--) 500: This continues, they get high all the time. This is where the woman across the way is introduced
--) One night a john contacts. She tells Stephen and goes to the room. The man is violent and rapes her, breaking bones. Stephen never shows up.
--) She stumbles back to room and finds him passed out. She cries and starts hitting him. He hits her back and refuses to let her go to the emergency room.
--) She visits the man who can no longer speak. She falls to her knees and holds him.
+*) 1000: A john comes over, then Stephen comes in with gun, robs him. It gets violent. Abigail beats him.
+*) 500: This continues, they get high all the time. This is where the woman across the way is introduced
+*) One night a john contacts. She tells Stephen and goes to the room. The man is violent and rapes her, breaking bones. Stephen never shows up.
+*) She stumbles back to room and finds him passed out. She cries and starts hitting him. He hits her back and refuses to let her go to the emergency room.
+*) She visits the man who can no longer speak. She falls to her knees and holds him.
+
+
+Chapter 18
+
+-) Goal of page is to learn about ritual, passphrase
+-) Side goal is to link Kthadras in history, state (Hitler) and religious (Jesus)
+-) Also need to rachet character tension, building on asylum chapter horror
+
+-) Describe the book, old age of pages
+-) That it contains revelation, rituals, and secret histories
+-) Describe a revelation, some other things
+
+-) Describe the Nazi page, symbol drawn in ink
+-) Transition to first third person account, from Hitler POV
+-) Describe vision of Kthadras, suicide
+
+-) Describe the cross symbol page
+-) Transition to first third person account, from Jesus POV
+-) Describe waking up after being dead, seeing the unbelievers believe
+
+-) Describe a ritual with a drawing of a room, a person with a halo of light, creature below, fall asleep
+-) Describe waking up in the morning, seeing the phrase written in his handwriting
+
+
+* A crude sketch in the book of a man inside a box
+
+* When he has the book, it is written in strange English, with words he does not understand. There is repeated reference to the ‘words of admittance’ but he cannot find them anywhere mentioned. As he is drifting off to sleep reading his vision blurs and he sees hidden text on the page, between the visible words. From this he learns the phrase which will open the door.
+
+* What is it? Devourer of the devoured. Eater of the eaten. Consumer of the consumed. He is the one who waits.
+
+* Eyes, his eyes, spanning untold and innumerable dimensions, gazing each into the others.
+
+* All this existence is consumption and all that will ever exist is the consumption and mindless devouring unto the end of the world and even unto the end of time. All this we believe and all this we know.
+
+* All existence is consumption and all that has ever existed or ever will exist is consumption and ceaseless devouring. This is what we believe and this is what we know.
+
+* All existence is consumption and all that has ever existed and all that ever will exist is consumption and ceaseless devouring. This we see. This we know.
+
+* All existence is consumption and all that has ever existed and all that ever will exist is consumption and ceaseless devouring. This is what we see. This is what we know.
+
+* We offer sustenance to Him in the hope one day He will acknowledge our presence and recognize that we are his adherents. We know and accept that to Him we are amoeba. Less than amoeba. Less than that.
+
+* We offer sustenance to Him in the hope one day He will acknowledge our presence and recognize that we are his true adherents. We know and accept that to Him we are amoeba. Less than amoeba. Less than that. Yet we serve and we offer.
+
+* We offer in faith eternal. K’thadras piy gwam
+
+* We offer in the hope one day He will know our presence and see that we are His true adherents. Yet we know and we accept that we are like the amoeba floating in stagnant waters to Him. Less than amoeba! We are less than that. Yet we serve in humility and we offer in faith eternal, K’thadras piy gwam
+
+* floating in brackish waters to Him
+
+* One whose eyes gaze from this dimension into the next, into yet another, a billion times over, one from another and back again, even to the very beginning of time - where the true home of such a one?
+
+
+April 30, 1945
 
 
 
-Found this diary under a pile of clothes that don’t even fit me anymore. They just fall off. So it’s been a minute! Last time I wrote anything at all was the day I moved in with Stephen and that was over a month ago now. We’ve been staying at the Crown Inn on Monroe Avenue. I’m tired of this shithole. Bunch of Mexicans and drug addicts is all it is. Even worse is I’ve stuck inside the last few days, recuperating from a broken collarbone and a couple ribs too, I think. Stephen doesn't even want me walking to the Dollar General down the road. “Might look suspicious,” he says. But he doesn’t have a fucking clue. Just makes it up as he goes along. I know that. Plus he doesn’t own me. And he doesn’t know everything either. He doesn’t know I went out earlier this evening. And I won’t tell him. He doesn’t need to know about that. But I guess if I’m writing about what’s been going on in the world of Abbie, then I guess I better write it all at once and be done with it. Nothing else to do around here.
+Eva lay on the couch, cyanide
+Hitler at desk, shot
 
-Things really went to hell once my car broke down...
-
-Meets sister at a gas station. Asks for money. Her sister gives her some and begs her to get help. Mama would want this for you, and I don’t either.
-
-Men don’t want me anymore. They see my scar and they see the bruises and the needle marks. Even Stephen doesn’t want me. He said fucking me is like fucking a skeleton.
-
-Sister asks her to move back in. Apologizes but she doesn’t want to live under her sisters thumb.
-
-The men in the rape chapter are the same men he noticed his first day at work.
-
-Sister wants to control her addiction, check her into rehab.
+Führerbunker
 
 
-Please don't. I'm just lonely. I'm sorry. Please, I'm sorry. I'm a good person.
+You should start with wikipedia entry and slowly blend it into the narrative, nice!
 
-Pregnant woman helps her after rape. But she tells her to fuck off.
+Eva is desperate. She pulls out a copy of the book and performs a ritual that opens a portal. They are given a glimpse of 
+Him. It horrifies them past the point of insanity. In a moment of clarity Hitler forces Eva to take the pill.
+And he puts the gun in his mouth.
 
-Stephen calls her his golden ticket
+burnt almonds
 
+
+By early 1945, Germany was on the verge of total military collapse. Poland had fallen to the advancing Soviet Red Army, who were preparing to cross the Oder between Küstrin and Frankfurt with the objective of capturing Berlin 82 kilometres (51 mi) to the west.[6] German forces had recently lost to the Allies in the Ardennes Offensive, with British and Canadian forces crossing the Rhine into the German industrial heartland of the Ruhr.[7] American forces in the south had captured Lorraine and were advancing towards Mainz, Mannheim, and the Rhine.[7] German forces in Italy were withdrawing north, as they were pressed by the American and Commonwealth forces as part of the Spring Offensive to advance across the Po and into the foothills of the Alps.[8]
+
+
+Schematic diagram of the Führerbunker
+Hitler retreated to his Führerbunker in Berlin on 16 January 1945. It was clear to the Nazi leadership that the battle for Berlin would be the final battle of the war in Europe.[9] Some 325,000 soldiers of Germany's Army Group B were surrounded and captured on 18 April, leaving the path open for American forces to reach Berlin. By 11 April the Americans crossed the Elbe, 100 kilometres (62 mi) to the west of the city.[10] On 16 April, Soviet forces to the east crossed the Oder and commenced the battle for the Seelow Heights, the last major defensive line protecting Berlin on that side.[11] By 19 April, the Germans were in full retreat from Seelow Heights, leaving no front line. Berlin was bombarded by Soviet artillery for the first time on 20 April, which was also Hitler's birthday. By the evening of 21 April, Red Army tanks reached the outskirts of the city.[12]
+
+At the afternoon situation conference on 22 April, Hitler suffered a total nervous collapse when he was informed that the orders he had issued the previous day for SS-General Felix Steiner's Army Detachment Steiner to counterattack had not been obeyed.[13] Hitler launched a tirade against the treachery and incompetence of his commanders which culminated in a declaration—for the first time—that the war was lost. Hitler announced that he would stay in Berlin until the end and then shoot himself.[14] Later that day, he asked SS physician Dr. Werner Haase about the most reliable method of suicide. Haase suggested the "pistol-and-poison method" of combining a dose of cyanide with a gunshot to the head.[15] Luftwaffe chief Reichsmarschall Hermann Göring learned about this and sent a telegram to Hitler asking for permission to take over the leadership of the Reich in accordance with Hitler's 1941 decree naming him as his successor.[16] Hitler's secretary Martin Bormann convinced Hitler that Göring was threatening a coup.[17] In response, Hitler informed Göring that he would be executed unless he resigned all of his posts. Later that day, he sacked Göring from all of his offices and ordered his arrest.[18]
+
+By 27 April, Berlin was cut off from the rest of Germany. Secure radio communications with defending units had been lost; the command staff in the bunker had to depend on telephone lines for passing instructions and orders, and on public radio for news and information.[19] On 28 April, Hitler received a BBC report originating from Reuters; the report stated that Reichsführer-SS Heinrich Himmler had offered to surrender to the Western Allies. The offer was declined. Himmler had implied to the Allies that he had the authority to negotiate a surrender, and Hitler considered this treason. That afternoon, Hitler's anger and bitterness escalated into a rage against Himmler.[20] Hitler ordered Himmler's arrest and had Hermann Fegelein (Himmler's SS representative at Hitler's headquarters) shot.[21]
+
+By this time, the Red Army had advanced to the Potsdamer Platz, and all indications were that they were preparing to storm the Chancellery. This report and Himmler's treachery prompted Hitler to make the last decisions of his life.[22] Shortly after midnight on 29 April,[23][24] he married Eva Braun in a small civil ceremony in a map room within the Führerbunker. Hitler then hosted a modest wedding breakfast with his new wife, after which he took secretary Traudl Junge to another room and dictated his last will and testament. It left instructions to be carried out immediately following his death, with Grand Admiral Karl Dönitz and Joseph Goebbels assuming Hitler's roles as head of state and chancellor respectively.[25] He signed these documents at 04:00 and then went to bed. Some sources say that he dictated the last will and testament immediately before the wedding, but all agree on the timing of the signing.[o][p]
+
+
+Eva Braun and Hitler (with Blondi), June 1942
+On the afternoon of 29 April, Hitler learned that his ally, Benito Mussolini, had been executed by Italian partisans. The bodies of Mussolini and his mistress, Clara Petacci, had been strung up by their heels. The corpses were later cut down and thrown into the gutter, where they were mocked by Italian dissenters. These events may have strengthened Hitler's resolve not to allow himself or his wife to be made a "spectacle" of, as he had earlier recorded in his testament.[26][q] Doubting the efficacy of the cyanide capsules distributed by SS physician Dr. Ludwig Stumpfegger, Hitler ordered Dr. Haase to test one on his dog Blondi, who died as a result.[27]
+
+Hitler and Braun lived together as husband and wife in the bunker for less than 40 hours. By 01:00 on 30 April, General Wilhelm Keitel had reported that all of the forces on which Hitler had been depending to rescue Berlin had either been encircled or forced onto the defensive.[28] At around 02:30, Hitler appeared in the corridor where about 20 people, mostly women, were assembled to give their farewells. He walked the line and shook hands with each of them before retiring to his quarters.[29] Late in the morning, with the Soviets less than 500 metres (1,600 ft) from the bunker, Hitler had a meeting with General Helmuth Weidling, the commander of the Berlin Defence Area. He told Hitler that the garrison would probably run out of ammunition that night, and that the fighting in Berlin would inevitably come to an end within the next 24 hours.[28] Weidling asked Hitler for permission for a break-out; this was a request he had unsuccessfully made before. Hitler did not answer, and Weidling went back to his headquarters in the Bendlerblock. At about 13:00 he received Hitler's permission to try a break-out that night.[30] Hitler, two secretaries, and his personal cook then had lunch, after which Hitler and Braun said farewell to members of the Führerbunker staff and fellow occupants, including Bormann, Goebbels and his family, the secretaries, and several military officers. At around 14:30 Adolf and Eva Hitler went into Hitler's personal study.[30]
+
+
+Situation of World War II in Europe at the time of Hitler's death. The white areas were controlled by Nazi forces, the pink areas were controlled by the Allies, and the red areas indicate recent Allied advances.
+Several witnesses later reported that they heard a loud gunshot at approximately 15:30. After waiting a few minutes, Hitler's valet, Heinz Linge, opened the study door with Bormann at his side.[31] Linge later stated that he immediately noted a scent of burnt almonds, which is a common observation in the presence of prussic acid (the aqueous form of hydrogen cyanide).[31] Hitler's adjutant, SS-Sturmbannführer Otto Günsche, entered the study and found the two lifeless bodies on the sofa. Eva, with her legs drawn up, was to Hitler's left and slumped away from him. Günsche stated that Hitler "sat ... sunken over, with blood dripping out of his right temple. He had shot himself with his own pistol, a Walther PPK 7.65."[32][31][33] The gun lay at his feet[31] and according to SS-Oberscharführer Rochus Misch, Hitler's head was lying on the table in front of him.[34] Blood dripping from Hitler's right temple and chin had made a large stain on the right arm of the sofa and was pooling on the carpet. According to Linge, Eva's body had no visible physical wounds, and her face showed how she had died—by cyanide poisoning.[r] Günsche and SS-Brigadeführer Wilhelm Mohnke stated "unequivocally" that all outsiders and those performing duties and work in the bunker "did not have any access" to Hitler's private living quarters during the time of death (between 15:00 and 16:00).[35]
+
+Günsche left the study and announced that Hitler was dead.[36] In accordance with Hitler's prior written and verbal instructions, the two bodies were carried up the stairs and through the bunker's emergency exit to the garden behind the Reich Chancellery, where they were to be burned with petrol.[1][2] Misch reported Hitler's death to Franz Schädle and returned to the telephone switchboard, later recalling someone shouting that Hitler's body was being burned.[34][37] After the first attempts to ignite the petrol did not work, Linge went back inside the bunker and returned with a thick roll of papers. Bormann lit the papers and threw them onto the bodies. As the two corpses caught fire, a group including Bormann, Günsche, Linge, Goebbels, Erich Kempka, Peter Högl, Ewald Lindloff, and Hans Reisser raised their arms in salute as they stood just inside the bunker doorway.[38][39]
+
+At around 16:15, Linge ordered SS-Untersturmführer Heinz Krüger and SS-Oberscharführer Werner Schwiedel to roll up the rug in Hitler's study to burn it. Schwiedel later stated that upon entering the study, he saw a pool of blood the size of a "large dinner plate" by the arm-rest of the sofa. Noticing a spent cartridge case, he bent down and picked it up from where it lay on the rug about 1 mm from a 7.65 pistol.[40] The two men removed the blood-stained rug, carried it up the stairs and outside to the Chancellery garden. There the rug was placed on the ground and burned.[41]
+
+The Soviets shelled the area in and around the Reich Chancellery on and off during the afternoon. SS guards brought over additional cans of petrol to further burn the corpses. Linge later noted the fire did not completely destroy the remains, as the corpses were being burned in the open, where the distribution of heat varies.[42] The corpses burned from 16:00 to 18:30.[43] At approximately 18:30, Lindloff and Reisser covered up the remains in a shallow bomb crater.[44]
