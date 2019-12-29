@@ -1318,3 +1318,5 @@ Günsche left the study and announced that Hitler was dead.[36] In accordance wi
 At around 16:15, Linge ordered SS-Untersturmführer Heinz Krüger and SS-Oberscharführer Werner Schwiedel to roll up the rug in Hitler's study to burn it. Schwiedel later stated that upon entering the study, he saw a pool of blood the size of a "large dinner plate" by the arm-rest of the sofa. Noticing a spent cartridge case, he bent down and picked it up from where it lay on the rug about 1 mm from a 7.65 pistol.[40] The two men removed the blood-stained rug, carried it up the stairs and outside to the Chancellery garden. There the rug was placed on the ground and burned.[41]
 
 The Soviets shelled the area in and around the Reich Chancellery on and off during the afternoon. SS guards brought over additional cans of petrol to further burn the corpses. Linge later noted the fire did not completely destroy the remains, as the corpses were being burned in the open, where the distribution of heat varies.[42] The corpses burned from 16:00 to 18:30.[43] At approximately 18:30, Lindloff and Reisser covered up the remains in a shallow bomb crater.[44]
+
+
