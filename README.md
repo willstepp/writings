@@ -4,5 +4,5 @@
 * The Dogs of Santiago                      [1st - 49248]
 * Hunger                                    [2nd - 30300]
 * Aura Dim                                  [1st - 54742]
-* Sanctum Kthadras                          [1st - 65377]
+* Sanctum Kthadras                          [1st - 67942]
 * Gestation: Diary of a Novel in Progress   [Notes]
