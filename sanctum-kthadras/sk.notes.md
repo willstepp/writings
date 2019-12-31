@@ -1324,16 +1324,13 @@ The Soviets shelled the area in and around the Reich Chancellery on and off duri
 
 20
 
--) Gets up, packs the book and pendant into his backpack
--) Goes to work, apologizes for being so absent, family matters
-
-Chen Lu, Steve Kauffman, Crystal Mathers, and Byron Smith
-
--) Goes to lunch with coworkers, talks about future plans
--) Drives home, traffic is bad, plans to visit George's that evening
--) Pulls into the McDonald's parking lot on Ponce De Leon, sun going down
--) Walks through woods, to the back of the Kroger
--) Inserts key, says the phrase from the book, the doorknob turns
+*) Gets up, packs the book and pendant into his backpack
+*) Goes to work, apologizes for being so absent, family matters
+*) Goes to lunch with coworkers, talks about future plans
+*) Drives home, traffic is bad, plans to visit George's that evening
+*) Pulls into the McDonald's parking lot on Ponce De Leon, sun going down
+*) Walks through woods, to the back of the Kroger
+*) Inserts key, says the phrase from the book, the doorknob turns
 
 -) He enters a hallway, some kind of utility corridor
 -) Hearing a faint chant he walks down the hallway
