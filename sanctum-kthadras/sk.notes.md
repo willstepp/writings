@@ -1320,3 +1320,35 @@ At around 16:15, Linge ordered SS-Untersturmführer Heinz Krüger and SS-Obersch
 The Soviets shelled the area in and around the Reich Chancellery on and off during the afternoon. SS guards brought over additional cans of petrol to further burn the corpses. Linge later noted the fire did not completely destroy the remains, as the corpses were being burned in the open, where the distribution of heat varies.[42] The corpses burned from 16:00 to 18:30.[43] At approximately 18:30, Lindloff and Reisser covered up the remains in a shallow bomb crater.[44]
 
 
+
+
+20
+
+-) Gets up, packs the book and pendant into his backpack
+-) Goes to work, apologizes for being so absent, family matters
+
+Chen Lu, Steve Kauffman, Crystal Mathers, and Byron Smith
+
+-) Goes to lunch with coworkers, talks about future plans
+-) Drives home, traffic is bad, plans to visit George's that evening
+-) Pulls into the McDonald's parking lot on Ponce De Leon, sun going down
+-) Walks through woods, to the back of the Kroger
+-) Inserts key, says the phrase from the book, the doorknob turns
+
+-) He enters a hallway, some kind of utility corridor
+-) Hearing a faint chant he walks down the hallway
+-) The corridor turns to hewn stone, polished, and carved with petroglyphs
+-) The chanting gets louder. He looks up and sees the hallway has two levels
+-) The level above is lined with adherents, donning robes that cover their faces
+-) They are holding candles, and continue to chant
+-) He reaches a stairway leading down. He descends.
+-) The stone walls become rough and jagged, the steps wet, he is in a cave
+-) He enters an open space where there are three wooden doors
+-) He opens the first, space before Earth
+-) He opens the second, the area behind the Kroger on Ponce De Leon
+-) The third is locked, he realizes it would always be so
+-) He turns and the stairway is no longer there, only a wall
+-) He looks for a way out, but is trapped inside
+-) The years pass, and he grows old, the walls turn smooth, and every door except one fades
+-) One day a woman enters, pensive and alone.
+-) Where are you hurting, Abigail?
