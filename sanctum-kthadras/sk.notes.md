@@ -1332,20 +1332,20 @@ The Soviets shelled the area in and around the Reich Chancellery on and off duri
 *) Walks through woods, to the back of the Kroger
 *) Inserts key, says the phrase from the book, the doorknob turns
 
--) He enters a hallway, some kind of utility corridor
--) Hearing a faint chant he walks down the hallway
--) The corridor turns to hewn stone, polished, and carved with petroglyphs
--) The chanting gets louder. He looks up and sees the hallway has two levels
--) The level above is lined with adherents, donning robes that cover their faces
--) They are holding candles, and continue to chant
--) He reaches a stairway leading down. He descends.
--) The stone walls become rough and jagged, the steps wet, he is in a cave
--) He enters an open space where there are three wooden doors
--) He opens the first, space before Earth
--) He opens the second, the area behind the Kroger on Ponce De Leon
--) The third is locked, he realizes it would always be so
--) He turns and the stairway is no longer there, only a wall
--) He looks for a way out, but is trapped inside
--) The years pass, and he grows old, the walls turn smooth, and every door except one fades
--) One day a woman enters, pensive and alone.
+*) He enters a hallway, some kind of utility corridor
+*) Hearing a faint chant he walks down the hallway
+*) The corridor turns to hewn stone, polished, and carved with petroglyphs
+*) The chanting gets louder. He looks up and sees the hallway has two levels
+*) The level above is lined with adherents, donning robes that cover their faces
+*) They are holding candles, and continue to chant
+*) He reaches a stairway leading down. He descends.
+*) The stone walls become rough and jagged, the steps wet, he is in a cave
+*) He enters an open space where there are three wooden doors
+*) He opens the first, space before Earth
+*) He opens the second, the area behind the Kroger on Ponce De Leon
+*) The third is locked, he realizes it would always be so
+*) He turns and the stairway is no longer there, only a wall
+*) He looks for a way out, but is trapped inside
+*) The years pass, and he grows old, the walls turn smooth, and every door except one fades
+*) One day a woman enters, pensive and alone.
 -) Where are you hurting, Abigail?
